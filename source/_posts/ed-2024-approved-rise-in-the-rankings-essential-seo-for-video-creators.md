@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Rise in the Rankings  Essential SEO for Video Creators\""
-date: 2024-06-17T14:40:15.752Z
-updated: 2024-06-18T14:40:15.752Z
+date: 2024-07-02T13:14:23.565Z
+updated: 2024-07-03T13:14:23.565Z
 tags:
   - ai video
   - ai youtube
@@ -80,7 +80,7 @@ Now that we’ve decided that we are sticking with the video idea, we are ready 
 
 Come up with as many relevant keywords as you can. Start by entering a keyword into the YouTube search bar. This will tell you what are the most popular searches associated with that keyword:
 
-Once you have an idea of what people are searching for related to your topic, you’ll want to find more relevant keywords. I like to use the free app, [Ubersuggest](https://neilpatel.com/ubersuggest/)to do that.
+Once you have an idea of what people are searching for related to your topic, you’ll want to find more relevant keywords. I like to use the free app, [Ubersuggest](https://neilpatel.com/ubersuggest/) to do that.
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
@@ -204,7 +204,7 @@ Take a look at your competition. If they all look the same, do something differe
 
 Don’t want to pay money for a photo editing software such as Photoshop?
 
-You can use an online service called [Canva](https://www.canva.com/)or download [GIMP](https://www.gimp.org/), an open-source photo editor much like Photoshop, but far less powerful. These will help you get the job done as you are starting out.
+You can use an online service called [Canva](https://www.canva.com/) or download [GIMP](https://www.gimp.org/), an open-source photo editor much like Photoshop, but far less powerful. These will help you get the job done as you are starting out.
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 

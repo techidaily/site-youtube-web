@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  YouTube Banner Tactics  Dos and Don'ts for Optimal Visibility\""
-date: 2024-06-17T15:35:15.304Z
-updated: 2024-06-18T15:35:15.304Z
+date: 2024-07-02T13:14:26.535Z
+updated: 2024-07-03T13:14:26.535Z
 tags:
   - ai video
   - ai youtube
@@ -127,7 +127,7 @@ Now that you know how to make a good YouTube banner, what will you do next?
 
 ## Touch Up YouTube Videos with Filmora
 
-[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 

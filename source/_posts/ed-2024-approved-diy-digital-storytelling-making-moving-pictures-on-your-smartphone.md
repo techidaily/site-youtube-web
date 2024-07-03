@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY Digital Storytelling  Making Moving Pictures on Your Smartphone\""
-date: 2024-06-17T15:34:44.829Z
-updated: 2024-06-18T15:34:44.829Z
+date: 2024-07-02T13:14:23.976Z
+updated: 2024-07-03T13:14:23.976Z
 tags:
   - ai video
   - ai youtube
@@ -50,7 +50,7 @@ thumbnail: https://thmb.techidaily.com/bfce4d332deea76d243f8439048cdd48e83f3f7bf
 
  Those are the three main things to keep in mind, but if you are planning on posting directly to YouTube from your phone then you should also make sure you have a mobile app you can use to edit it first.
 
-[Filmora](https://tools.techidaily.com/wondershare/filmora/download/)is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
+[Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a full-feature video editing app available for both Android and iPhone operating systems. With Filmora you can make awesome YouTube videos quickly using Filmora’s one-touch themes, or take a little bit more time personalizing your creation. One-touch themes are sets of related features, like filters and animated titles, which you can apply to your videos all at once. Filmora’s simple interface also makes it easy to apply filters, titles, overlays, transitions, and even royalty free music to your project one at a time.
 
  After you’ve edited your video in Filmora you can post it directly to YouTube or other social media sites right from the app.
 

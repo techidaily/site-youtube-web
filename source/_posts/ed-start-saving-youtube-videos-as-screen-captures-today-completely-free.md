@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Start Saving YouTube Videos as Screen Captures Today - Completely Free\""
-date: 2024-06-17T14:52:27.103Z
-updated: 2024-06-18T14:52:27.103Z
+date: 2024-07-02T13:14:24.878Z
+updated: 2024-07-03T13:14:24.878Z
 tags:
   - ai video
   - ai youtube
@@ -47,7 +47,7 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ## Recording Screencast Video with YouTube
 

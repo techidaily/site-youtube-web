@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Becoming a Confident Content Creator  YouTube's Top Tips\""
-date: 2024-06-17T15:10:32.479Z
-updated: 2024-06-18T15:10:32.479Z
+date: 2024-07-02T13:14:26.802Z
+updated: 2024-07-03T13:14:26.802Z
 tags:
   - ai video
   - ai youtube
@@ -114,7 +114,7 @@ There you have it, 8 tips to help you vlog like the pros. Anyone can vlog. But o
 
 Even filming yourself in your room with the door closed — and nobody is in the house with you — can be a challenge for beginning vloggers. If you find watching your first few videos to be cringy, don’t be discouraged. There are [fears of vlogging, but you can overcome them](https://tools.techidaily.com/wondershare/filmora/download/).
 
-Take a look at some of the [first videos from popular YouTubers](http://tubularinsights.com/throwback-thursday-first-videos-from-youtubes-top-stars/)and you can see that everyone had a starting point.
+Take a look at some of the [first videos from popular YouTubers](http://tubularinsights.com/throwback-thursday-first-videos-from-youtubes-top-stars/) and you can see that everyone had a starting point.
 
 Do you have any vlogging tricks of your own? Leave a comment below.
 
