@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, How to Effortlessly Eradicate Unwanted Youtube Post-Comments\""
-date: 2024-06-17T14:55:25.928Z
-updated: 2024-06-18T14:55:25.928Z
+date: 2024-07-13T04:12:47.757Z
+updated: 2024-07-14T04:12:47.757Z
 tags:
   - ai video
   - ai youtube
@@ -40,7 +40,7 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 
 In this section, we will tell you how you can do it from your desktop.
 
-1. Go to[https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
+1. Go to [https://www.youtube.com/](https://www.youtube.com/) from your desktop browser and log in.
 2. Once you log in, you need to go to your channel. For this, you can select the My Channel option from the upper-left side of your YouTube home page.
 3. From the list of your videos, select the one you need and scroll down to reach the comment you want to delete.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
@@ -63,9 +63,9 @@ Have you accidentally posted something on a YouTuber’s channel? Are you anxiou
 
 Fear not. Read on to know how to **delete all comments you posted on someone else’s YouTube channel** from your desktop.
 
-1. Visit[https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
+1. Visit [https://www.youtube.com/](https://www.youtube.com/) from your desktop and then sign in YouTube channel.
 2. If your YouTube account is not open, tap on Sign in and enter your email and password to log in to your account.
-3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
+3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
@@ -112,7 +112,7 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
+1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from [here](https://www.youtube.com/account%5Fadvanced).
 
 ![YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
@@ -151,3 +151,52 @@ Follow @Richard Bennett
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/24-top-edits-made-easy-a-newbies-guide-to-video-trimming-and-enhancing/"><u>In 2024, Top Edits Made Easy  A Newbie's Guide to Video Trimming & Enhancing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlock-your-potential-mastering-the-art-of-youtube-edits-for-2024/"><u>[New] Unlock Your Potential  Mastering the Art of YouTube Edits for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/enhancing-user-engagement-through-fb-slideshows/"><u>Enhancing User Engagement Through FB Slideshows</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-account-takeover-restoring-access-in-the-new-year-for-2024/"><u>[New] Account Takeover? Restoring Access in the New Year for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-smartphone-browser-showdown-youtube-app-analysis/"><u>In 2024, Smartphone Browser Showdown  YouTube App Analysis</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-how-to-host-a-webinar-on-youtube-for-free/"><u>[Updated] 2024 Approved  How to Host a Webinar on YouTube for Free</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-which-platform-triumphs-in-revenue-generation-dailymotion-vs-youtube/"><u>2024 Approved  Which Platform Triumphs in Revenue Generation? Dailymotion Vs YouTube</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-honor-play-40c-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Honor Play 40C | Dr.fone</u></a></li>
+<li><a href="https://ai-editing-video.techidaily.com/updated-easy-way-to-create-an-alternate-reality-effect/"><u>Updated Easy Way to Create an Alternate Reality Effect</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-use-special-features-virtual-location-on-xiaomi-redmi-a2plus-drfone-by-drfone-virtual-android/"><u>How To Use Special Features - Virtual Location On Xiaomi Redmi A2+? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-ultimate-recorder-options-for-livestreaming-on-youtube/"><u>In 2024, Ultimate Recorder Options for Livestreaming on YouTube</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-the-ultimate-guide-for-enthusiasts-on-screenshotting-with-zd-software/"><u>[Updated] In 2024, The Ultimate Guide for Enthusiasts on Screenshotting with ZD Software</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-top-10-innovative-tikfilters-transforming-creators-feeds/"><u>[Updated] In 2024, Top 10 Innovative TikFilters Transforming Creator's Feeds</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nleashing-creativity-essential-lenses-for-youtube-vloggers-for-2024/"><u>[New] Unleashing Creativity  Essential Lenses for YouTube Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-source-stock-images-directly-from-trusted-4-youtube-vids/"><u>In 2024, Source Stock Images Directly From Trusted 4 Youtube Vids</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ow-to-establish-lasting-content-partnerships-with-youtubers/"><u>[New] How to Establish Lasting Content Partnerships with YouTubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-exploring-media-top-ranking-camera-apps-for-iphonesandroid-devices/"><u>[Updated] 2024 Approved  Exploring Media  Top-Ranking Camera Apps for iPhones/Android Devices</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-top-5-ai-powered-script-to-video-makers/"><u>Updated Top 5 AI-Powered Script to Video Makers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-budget-friendly-broadcaster-gear-for-video-voyeurs/"><u>[Updated] 2024 Approved  Budget-Friendly Broadcaster Gear for Video Voyeurs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-to-structuring-youtube-content-with-separate-chapters/"><u>Guide to Structuring YouTube Content with Separate Chapters</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-avoid-common-mistakes-in-youtube-livestreaming-with-best-webcams/"><u>[Updated] 2024 Approved  Avoid Common Mistakes in YouTube Livestreaming with Best Webcams</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-3-ways-to-record-whatsapp-call/"><u>[New] 2024 Approved  3 Ways to Record WhatsApp Call</u></a></li>
+<li><a href="https://fake-location.techidaily.com/fixing-foneazy-mockgo-not-working-on-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>Fixing Foneazy MockGo Not Working On OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-clearer-streams-youtube-video-borderless-adjustment/"><u>[Updated] 2024 Approved  Clearer Streams  YouTube Video Borderless Adjustment</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-in-2024-the-authoritative-tiktok-symbol-compendium/"><u>[Updated] In 2024, The Authoritative TikTok Symbol Compendium</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-vivo-y78plus-t1-edition-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Vivo Y78+ (T1) Edition FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/youtube-download-methods-without-apps-for-2024/"><u>Free YouTube Download Methods Without Apps for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-crafting-intriguing-youtube-intros-without-spending/"><u>[New] 2024 Approved  Crafting Intriguing YouTube Intros Without Spending</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-elite-methods-for-streaming-and-preserving-sports-action/"><u>2024 Approved  Elite Methods for Streaming and Preserving Sports Action</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-superior-selections-high-capacity-cloud-options/"><u>[New] Superior Selections  High-Capacity Cloud Options</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-seamlessly-convert-youtube-videos-to-mp3-on-mac/"><u>[New] 2024 Approved  Seamlessly Convert YouTube Videos to MP3 on Mac</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-top-tier-iphone-camera-apps-for-amateurs-and-experts-alike/"><u>[Updated] In 2024, Top-Tier iPhone Camera Apps for Amateurs & Experts Alike</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/cting-ajey-nagars-2023-youtube-economic-landscape-for-2024/"><u>Dissecting Ajey Nagar's 2023 YouTube Economic Landscape for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/st-desktop-and-online-gif-tools-ranked-for-2024/"><u>10 Best Desktop & Online GIF Tools Ranked for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ating-the-markets-youtubes-top-picks-for-2024/"><u>Navigating the Markets  YouTube's Top Picks for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nleashing-revenue-with-review-videos-of-household-items/"><u>[New] Unleashing Revenue with Review Videos of Household Items</u></a></li>
+<li><a href="https://article-tips.techidaily.com/avoiding-unwanted-shaking-in-dynamic-gopro-footage/"><u>Avoiding Unwanted Shaking in Dynamic GoPro Footage</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-harness-the-power-of-imagery-top-7-free-thumbnail-makers/"><u>[New] 2024 Approved  Harness the Power of Imagery  Top 7 Free Thumbnail Makers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-video-editing-101-and-alternative-sources-for-2024/"><u>[New] YouTube Video Editing 101 & Alternative Sources for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-from-idea-to-screen-smartphone-video-creation-tips/"><u>2024 Approved  From Idea to Screen  Smartphone Video Creation Tips</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-from-raw-to-refined-tailoring-youtube-videos-with-premiere-pro/"><u>[Updated] 2024 Approved  From Raw to Refined  Tailoring YouTube Videos with Premiere Pro</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-shedding-light-techniques-for-improving-youtube-video-quality/"><u>2024 Approved  Shedding Light  Techniques for Improving YouTube Video Quality</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-vinyl-virtuoso-access-to-premium-dj-video-samples/"><u>[New] Vinyl Virtuoso  Access to Premium DJ Video Samples</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-font-selection-wonders-enhancing-youtube-video-thumbnails/"><u>[New] 2024 Approved  Font Selection Wonders  Enhancing YouTube Video Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/by-step-wirecast-livestream-on-youtube/"><u>Step-by-Step  WireCast Livestream on YouTube</u></a></li>
+</ul></div>
