@@ -1,0 +1,160 @@
+---
+title: "\"[New] 2024 Approved  Stop Unsolicited YouTube Suggestion Rollouts\""
+date: 2024-07-29T13:38:57.900Z
+updated: 2024-07-30T13:38:57.900Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes [New] 2024 Approved: Stop Unsolicited YouTube Suggestion Rollouts\""
+excerpt: "\"This Article Describes [New] 2024 Approved: Stop Unsolicited YouTube Suggestion Rollouts\""
+keywords: "\"Stop AdSense Spam,YouTube Video Block,Halt Unwanted Suggestions,Prevent Ad Intrusions,Avoid Suggested Videos,Eliminate Auto-Play,Control Video Recommendations\""
+thumbnail: https://thmb.techidaily.com/91d5be9a6861c4c9aa999253b8784315fe4d3aae2f0511baeab6c403517618b1.jpg
+---
+
+## Stop Unsolicited YouTube Suggestion Rollouts
+
+# YouTube Recommended Videos - Block the Videos I Don't Like
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Oct 26, 2023• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+YouTube is forever recommending videos for you whether it's in your dashboard or next to the video you're already watching. In theory, these recommendations are based on your viewing habits and you're only directed to videos you're interested in.
+
+Except we all know that’s not always what happens.
+
+YouTube’s recommendations are based on more than just what you’ve watched and searched for, and sometimes even the data on that can get skewed over time. Not all your searches reflect your real tastes, and as your search history builds up the algorithm can start having trouble with all that data.
+
+Here’s what you can do about it:
+
+1. [**Manage Your Watch History**](#manage)
+2. [**Tell YouTube You Aren’t Interested**](#notinterested)
+3. [**But Why Does It Recommend Stuff I Don’t Like?**](#butwhy)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Manage Your Watch History
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
+![Manage Watch History](https://images.wondershare.com/filmora/article-images/manage-watch-history.jpg)
+
+Scroll to the bottom of any page on YouTube and you will see a button marked **History** with an hourglass icon. To access this feature using a mobile device, go to the **Account** tab and tap **History**.
+
+You will be able to completely clear your watch history, remove specific videos from it, or pause your history while you look at videos you don’t want a record of you visiting. By taking control of your history, you can make sure nothing you looked up on a random whim is reflected in your recommendations.
+
+If you are being recommended more things you aren’t interested in than things you are, you might want to clear your history completely and start fresh. Maybe your tastes have changed since YouTube started keeping track of them.
+
+## Tell YouTube You Aren’t Interested
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Tell YouTube Not Interested](https://images.wondershare.com/filmora/article-images/tell-youtube-not-interested.jpg)
+
+Based on your watch history, YouTube knows what you like. However, they have no way of automatically collecting data on what kinds of videos you’d rather not see.
+
+What they do have is a system for you to flag recommendations you don’t like.
+
+Hover over the thumbnail of a video you don’t want to be recommended to you and a small icon that looks like three stacked dots will appear next to the title. Click on that, and then click **Not Interested**.
+
+When you tell YouTube you aren’t interested in certain videos they use that data to adjust what they recommend for you.
+
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## But Why Does It Recommend Stuff I Don’t Like?
+
+Your search/watch history is not the only thing that determines what YouTube recommends for you. Nobody outside of Google knows exactly how the algorithm works, but we do know one of the major factors influencing it is to watch **time**.
+
+Watch time refers to how a video effects the session time of a viewer. If a video has proven it can keep viewers on YouTube for longer it is more likely to get recommended, even if it isn't closely related to the interests of individual viewers. The ultimate goal of the algorithm is to keep you on the site longer. Part of that is recommending things, surely, you'll be interested in, and part of that is trying to get you interested in things that'll keep you around.
+
+  A video that is simply watched for longer, because it is engaging and can hold viewers’ attention for a long time, will have a high watch time. So will a video that is short, but which leads into a playlist which holds peoples’ attention. If a video is a frequent session starter – people see it outside of YouTube (i.e. in a Google search) and get to the site through it – then its watch time will be high because it is given credit for all of the time viewers are spending on YouTube watching other videos after they get there.
+
+The only way to stop certain types of videos from being recommended for you is to take advantage of the ‘not interested’ feature.
+
+ Are you usually happy with YouTube's recommended videos?
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
+<!-- affiliate ads end -->
+## What video editing software did YouTube suggested videos are used?
+
+[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-a-complete-guide-to-registering-with-youtube/"><u>[New] 2024 Approved  A Complete Guide to Registering with YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-audiovisual-perfection-leading-audio-enhancement-apps/"><u>[New] 2024 Approved  Audiovisual Perfection  Leading Audio Enhancement Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-best-practices-for-inserting-text-on-youtube-videos-effectively/"><u>[New] 2024 Approved  Best Practices for Inserting Text on YouTube Videos Effectively</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-beyond-youtube-elite-video-sharing-hubs-revealed/"><u>[New] 2024 Approved  Beyond YouTube  Elite Video Sharing Hubs Revealed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-charting-a-path-to-monthly-earnings-from-youtube/"><u>[New] 2024 Approved  Charting a Path to Monthly Earnings From YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-content-strategy-mastery-selecting-top-rank-trackers-uncovered/"><u>[New] 2024 Approved  Content Strategy Mastery - Selecting Top Rank Trackers Uncovered</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-craft-your-best-youtubing-exit-tips-from-industry-leaders/"><u>[New] 2024 Approved  Craft Your Best YouTubing Exit - Tips From Industry Leaders</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-crafting-the-perfect-harmony-fusing-lyrics-and-images-with-lyric-video-maker/"><u>[New] 2024 Approved  Crafting the Perfect Harmony  Fusing Lyrics & Images with Lyric Video Maker</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-free-youtube-thumbnails-saving-guide/"><u>[New] 2024 Approved  Free YouTube Thumbnails Saving Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-from-hobbyist-to-host-mac-sports-channel-creation/"><u>[New] 2024 Approved  From Hobbyist to Host  Mac Sports Channel Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-harness-the-power-of-youtube-video-for-stunning-gif-masterpieces/"><u>[New] 2024 Approved  Harness the Power of YouTube Video for Stunning GIF Masterpieces</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-inverted-playback-the-hidden-technique-for-a-reversed-youtube-list/"><u>[New] 2024 Approved  Inverted Playback  The Hidden Technique for a Reversed YouTube List</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-your-unique-fashion-voice/"><u>[New] 2024 Approved  Mastering Your Unique Fashion Voice</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-yt-thumbnail-design-for-enhanced-views/"><u>[New] 2024 Approved  Mastering YT Thumbnail Design for Enhanced Views</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-microtones-and-monikers-shorts-sound-roles/"><u>[New] 2024 Approved  Microtones and Monikers  Shorts' Sound Roles</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-navigating-through-non-displaying-thumbnails-on-your-shorts/"><u>[New] 2024 Approved  Navigating Through Non-Displaying Thumbnails on Your Shorts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-no-cost-mp3-creation-10-youtube-transformers-explained/"><u>[New] 2024 Approved  No-Cost MP3 Creation  10 YouTube Transformers Explained</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-premieres-role-in-your-youtube-creation-process/"><u>[New] 2024 Approved  Premiere's Role in Your YouTube Creation Process</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-rise-on-youtube-initiating-your-chanel-and-earning-pathway/"><u>[New] 2024 Approved  Rise on YouTube  Initiating Your Chanel & Earning Pathway</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-superior-choices-4k-screen-recorder-programs/"><u>[New] 2024 Approved  Superior Choices  4K Screen Recorder Programs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-easy-free-methods-to-master-youtube-video-frames/"><u>[New] 5 Easy, Free Methods to Master YouTube Video Frames</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-maximizing-impact-with-smartly-produced-fb-videos-for-2024/"><u>[New] Maximizing Impact with Smartly Produced FB Videos for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-hosting-and-joining-google-meet-your-free-comprehensive-guidebook/"><u>[Updated] 2024 Approved  Hosting and Joining Google Meet  Your Free, Comprehensive Guidebook</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-mastering-instagram-reels-adding-your-own-soundtrack/"><u>[Updated] 2024 Approved  Mastering Instagram Reels  Adding Your Own Soundtrack</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-fast-track-to-facebooks-latest-viewing-history-2e23/"><u>[Updated] In 2024, Fast Track to Facebook’s Latest Viewing History (2E23)</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-secrets-of-style-perfecting-your-macootd-on-tiktok-for-2024/"><u>[Updated] Secrets of Style  Perfecting Your MacOOTD on TikTok for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-innovative-recorder-software-top-10-of-this-year/"><u>2024 Approved  Innovative Recorder Software  Top 10 of This Year</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/a-deeper-dive-into-ios-visual-data-repository-for-2024/"><u>A Deeper Dive Into IO's Visual Data Repository for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-anomalies-essential-rhythm-altering-tools-for-2024/"><u>Audio Anomalies  Essential Rhythm Altering Tools for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/empower-your-win11-experience-with-expert-led-zoom-insights/"><u>Empower Your Win11 Experience with Expert-Led Zoom Insights</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-steps-in-filmmaking-essentials-for-new-youtube-talents-for-2024/"><u>First Steps in Filmmaking  Essentials for New YouTube Talents for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/how-to-restrict-viewership-of-your-youtube-content-for-2024/"><u>How to Restrict Viewership of Your YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-a-comprehensive-look-at-editing-and-uploading-virtual-reality-videos-to-youtube/"><u>In 2024, A Comprehensive Look at Editing and Uploading Virtual Reality Videos to YouTube</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-hot-40-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Infinix Hot 40 Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/latest-guide-how-to-bypass-honor-x50-gt-frp-without-computer-by-drfone-android/"><u>Latest Guide How To Bypass Honor X50 GT FRP Without Computer</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/lock-your-itel-p40-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Itel P40 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-savvy-your-guide-to-the-top-6-free-android-downloader-apps-for-youtube/"><u>Sound Savvy  Your Guide to the Top 6 Free Android Downloader Apps for Youtube</u></a></li>
+</ul></div>

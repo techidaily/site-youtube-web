@@ -1,7 +1,7 @@
 ---
 title: "\"The Essential Guide to Early Success on YouTube  Steer Clear of These Top 8 Pitfalls\""
-date: 2024-07-13T03:56:58.498Z
-updated: 2024-07-14T03:56:58.498Z
+date: 2024-07-29T13:34:44.445Z
+updated: 2024-07-30T13:34:44.445Z
 tags:
   - ai video
   - ai youtube
@@ -28,22 +28,37 @@ thumbnail: https://thmb.techidaily.com/1dd490a8bd0fd9490b2a1a7e2f3e07f4fe2881674
 
 In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I learned from those mistakes and have helped many new YouTubers start their own channels. Here is a list of eight common mistakes that new YouTubers should avoid, along with tips to do things in a better way.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ![Mistakes To Avoid As a New YouTuber](https://images.wondershare.com/filmora/mistakes-to-avoid-as-a-new-youtuber.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ###  
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -78,6 +93,9 @@ YouTube isn’t the only social media platform that people are spending their ti
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 8\. Spamming comments
 
 Commenting on other YouTube videos is another way to get your channel discovered from people reading over comments. If your profile picture and comment appears interesting enough, out of curiosity, people just might click your username to have a look at your channel.
@@ -113,3 +131,53 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-10-preferred-top-free-image-editing-and-overlay-apps-for-phones/"><u>[New] 2024 Approved  10 Preferred Top-Free Image Editing & Overlay Apps for Phones</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-essential-free-online-music-libraries-15-picks/"><u>[New] 2024 Approved  Essential Free Online Music Libraries  15 Picks</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-mastery-in-making-sense-top-6-persuasive-video-types/"><u>[New] 2024 Approved  Mastery in Making Sense  Top 6 Persuasive Video Types</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-quick-transition-from-original-pictures-to-standout-youtube-thumbnails/"><u>[New] 2024 Approved  Quick Transition  From Original Pictures To Standout YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-streamline-video-analytics-a-guide-to-youtube-statistics-with-social-blade/"><u>[New] 2024 Approved  Streamline Video Analytics  A Guide to YouTube Statistics with Social Blade</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-basic-tale-design-principles-for-2024/"><u>[New] Basic Tale Design Principles for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hannel-building-through-characters-and-plot-twists-for-2024/"><u>[New] Channel-Building Through Characters and Plot Twists for 2024</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-decoding-social-media-storage-extracting-messages-from-messenger/"><u>[New] Decoding Social Media Storage  Extracting Messages From Messenger</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-coping-with-youtube-copyright-claims-a-step-by-step-guide/"><u>[New] In 2024, Coping with YouTube Copyright Claims  A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-pro-tips-for-effective-youtube-tag-utilization/"><u>[New] In 2024, Pro Tips for Effective YouTube Tag Utilization</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/everaging-jump-cuts-to-improve-video-flow/"><u>[New] Leveraging Jump Cuts to Improve Video Flow</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-master-the-art-of-file-conversion-selecting-best-free-tools-for-instagram-videos-windowsosx/"><u>[New] Master the Art of File Conversion  Selecting Best Free Tools for Instagram Videos [Windows/OSX]</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/avigating-the-best-dates-and-hours-for-youtube-impact-for-2024/"><u>[New] Navigating the Best Dates and Hours for YouTube Impact for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-guide-selecting-the-top-7-youtube-live-streaming-apps-for-iosandroid-users/"><u>[New] The Ultimate Guide  Selecting the Top 7 YouTube Live Streaming Apps for iOS/Android Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-online-essentials-video-to-text-conversion-hacks-for-2024/"><u>[New] Top Online Essentials  Video to Text Conversion Hacks for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-download-youtube-beats-on-android-the-ultimate-6-app-guide/"><u>[Updated] 2024 Approved  Download YouTube Beats on Android  The Ultimate 6-App Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-seo-revolution-transforming-your-content-visibility/"><u>[Updated] 2024 Approved  SEO Revolution  Transforming Your Content Visibility</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-analyzing-t-series-revenue-generation-on-youtube-channels/"><u>[Updated] Analyzing T-Series' Revenue Generation on Youtube Channels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-conquering-cross-platform-content-sharing-youtubes-and-fbs/"><u>[Updated] Conquering Cross-Platform Content Sharing  YouTubes & FBs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-charting-updates-youtube-money-standards/"><u>[Updated] In 2024, Charting Updates  YouTube Money Standards</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-essential-techniques-in-creating-youtube-thumbnails-that-stand-out/"><u>[Updated] In 2024, Essential Techniques in Creating YouTube Thumbnails That Stand Out</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-rpg-legacy-meets-innovation-written-by-time/"><u>[Updated] In 2024, RPG Legacy Meets Innovation' Written by Time</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-locate-lively-youtube-conversations/"><u>[Updated] Locate Lively YouTube Conversations</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-strategic-monetization-for-game-streams-for-2024/"><u>[Updated] Strategic Monetization for Game Streams for 2024</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-unleash-creativity-crafting-tiktok-choreographies-on-macos-for-2024/"><u>[Updated] Unleash Creativity  Crafting TikTok Choreographies on MacOS for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-bring-sound-effects-into-premiere-pro/"><u>2024 Approved  Bring Sound Effects Into Premiere Pro</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-transforming-doubt-into-action-channeling-vlogger-excellence/"><u>2024 Approved  Transforming Doubt Into Action  Channeling Vlogger Excellence</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-vidharvest-instagram-live-fb/"><u>2024 Approved  VidHarvest  Instagram Live (FB)</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-oppo-find-x6-pro-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Oppo Find X6 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/erate-engagement-implementing-the-top-12-video-growth-strategies/"><u>Accelerate Engagement - Implementing the Top 12 Video Growth Strategies</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/acoustic-dissolve-windowsmac-playback-guide/"><u>Acoustic Dissolve  Windows/Mac Playback Guide</u></a></li>
+<li><a href="https://fox-access.techidaily.com/action-capture-duel-2022-gopro-hero5-versus-garmin-virb-for-2024/"><u>Action Capture Duel  2022 GoPro Hero5 Versus Garmin VIRB for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-you-play-hevc-h-265-files-on-galaxy-a14-4g-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>How do you play HEVC/H.265 files on Galaxy A14 4G?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-tecno-spark-10-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Tecno Spark 10 Pro? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-infinix-zero-30-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Infinix Zero 30 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-essential-video-marketing-strategies-top-8-verified-services/"><u>In 2024, Essential Video Marketing Strategies  Top 8 Verified Services</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-mr-beasts-monetary-milestones/"><u>In 2024, Mr. Beast’s Monetary Milestones</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-navigating-the-path-stream-your-google-meet-chats-to-youtube/"><u>In 2024, Navigating the Path  Stream Your Google Meet Chats to YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-pro-youtuber-essentials-studio-choice-over-beta-alternative/"><u>In 2024, Pro YouTuber Essentials  Studio Choice Over Beta Alternative</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-tailoring-your-youtube-video-introduction-perfectly/"><u>In 2024, Tailoring Your YouTube Video Introduction Perfectly</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlocking-apple-iphone-xs-passcode-without-a-computer-by-drfone-ios/"><u>In 2024, Unlocking Apple iPhone XS Passcode without a Computer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-weighing-the-pros-and-cons-of-youtube-premium/"><u>In 2024, Weighing the Pros and Cons of YouTube Premium</u></a></li>
+<li><a href="https://extra-information.techidaily.com/seamless-integration-of-video-filters-in-zoom/"><u>Seamless Integration of Video Filters in Zoom</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ird-scribes-writing-the-script-for-youtube-for-2024/"><u>Songbird Scribes  Writing the Script for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-thumbnails-for-increased-video-engagement-on-youtube/"><u>Tailoring Thumbnails for Increased Video Engagement on YouTube</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-2024-approved-are-you-looking-to-make-a-thumbnail-for-your-fortnite-video-this-article-features-a-guide-explaining-creating-a-fortnite-motion-blur-t/"><u>Updated 2024 Approved Are You Looking to Make a Thumbnail for Your Fortnite Video? This Article Features a Guide Explaining Creating a Fortnite Motion Blur Thumbnail</u></a></li>
+</ul></div>
