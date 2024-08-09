@@ -1,0 +1,207 @@
+---
+title: "\"Jittery Text Magic  Two Dynamic Techniques Explored for 2024\""
+date: 2024-08-08T12:47:04.742Z
+updated: 2024-08-09T12:47:04.742Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "\"This Article Describes Jittery Text Magic: Two Dynamic Techniques Explored for 2024\""
+excerpt: "\"This Article Describes Jittery Text Magic: Two Dynamic Techniques Explored for 2024\""
+keywords: "Jittery Text Effects,Dynamic Typography Tricks,Visual Text Dynamics,Magical Typography Tips,Engaging Text Illusions,Creative Text Design Techniques,Interactive Type Magic Methods"
+thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e88315635def6454749492ddb.jpg
+---
+
+## Jittery Text Magic: Two Dynamic Techniques Explored
+
+# How to Create Animated Bouncing Text
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+##### Liza Brown
+
+ Mar 27, 2024• Proven solutions
+
+Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
+
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Method 1: How to Create Bouncing Text in Filmora Video Editor?
+
+When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
+
+These pre-built templates not only make your task easier, they also save your decent amount of time that you would spend while working with After Effects or any other similar app that requires you to build things from scratch.
+
+You can follow the instructions given below to **add animated bounce text** to any of your video footages with Filmora:
+
+#### Step 1: Add a Footage to Timeline
+
+Launch Wondershare Filmora on your Windows or Mac PC. By default, the [aspect ratio](https://tools.techidaily.com/wondershare/filmora/download/) of the project is set to 16:9\. Click anywhere inside the **Media** window at the upper-left section, and select and import footage you want to add bounce text to.
+
+#### Step 2: Insert Text and Add Bounce Effect
+
+Click **Titles** from the standard toolbar at the top, and click and drag your preferred title template from the Library to the timeline. In case you don’t want any specific animation or style on the title, you can use the default title.
+
+In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
+
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
+![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
+
+**Step 3: Add Shake Filters**
+
+Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
+
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
+
+You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
+
+![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+**Step 4: Export the Final Output**
+
+Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
+
+<!-- affiliate ads begin -->
+<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
+<!-- affiliate ads end -->
+![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
+
+Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
+
+Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
+
+As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
+
+<!-- affiliate ads begin -->
+<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+## Method 2: Generate Animated Bouncing Texts Online
+
+If you don’t want any heavy and resource-intensive app on your PC merely for some special text effects, you can try any of the online solutions instead. The benefit of using any such web app is that all the processing is done on site’s server, and it is only a web browser and an Internet connection that you need to have at your side.
+
+Some most trusted websites to generate **bounce text** are listed below:
+
+#### 1\. ENGFTO
+
+Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
+![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
+
+**Step 1: Get to the Animated Bouncing Text Page**
+
+Launch your favorite web browser, and go to the link given above to get to the Engfto’s animated bouncing text page.
+
+**Step 2: Customize Text and Preferences**
+
+Modify the values in the fields under the **SIZE AREA** and **TEXT** sections to customize the text area, the text itself, its size, and font. Next, adjust the values in the fields under the **EFFECT PARAMETERS** section to get the required bounce effect. Also, use the fields under the **BACKGROUND** section to either change the background color, or pick a background image from your PC.
+
+**Step 3: Obtain the Animated Text**
+
+Click the **SAVE GIF ANIMATION** button from the lower section of the page to download the animated text to your PC.
+
+#### 2\. Loading.io
+
+The instructions given below explain how to use Loading.io to get animated **bounce text** effect for your footages:
+
+**Step 1: Get to the Loading.io Webpage**
+
+Launch your favorite web browser and go to <https://loading.io/animation/text/>.
+
+**Step 2: Customize the Text and Choose Animation Effect**
+
+![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
+
+Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
+
+**Step 3: Obtain the Text**
+
+Click your preferred option from next to the **Download As** section to download the animated text to your PC.
+
+**Note:** Regardless of the web solution you choose to generate and obtain animated **bounce text**, you will still need a post-production tool to add the downloaded text to your footage.
+
+**Conclusion**
+
+Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
+
+![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+Liza Brown
+
+Liza Brown is a writer and a lover of all things video.
+
+Follow @Liza Brown
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-a-complete-guide-to-registering-with-youtube/"><u>[New] 2024 Approved  A Complete Guide to Registering with YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-audiovisual-perfection-leading-audio-enhancement-apps/"><u>[New] 2024 Approved  Audiovisual Perfection  Leading Audio Enhancement Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-become-a-youtube-gif-wizard-your-complete-online-transformation-tutorial/"><u>[New] 2024 Approved  Become a Youtube Gif Wizard  Your Complete Online Transformation Tutorial</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-best-practices-for-inserting-text-on-youtube-videos-effectively/"><u>[New] 2024 Approved  Best Practices for Inserting Text on YouTube Videos Effectively</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-best-youtube-ad-creators/"><u>[New] 2024 Approved  Best YouTube Ad Creators</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-beyond-youtube-elite-video-sharing-hubs-revealed/"><u>[New] 2024 Approved  Beyond YouTube  Elite Video Sharing Hubs Revealed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-charting-a-course-essential-equipment-for-youtube-enthusiasts/"><u>[New] 2024 Approved  Charting a Course  Essential Equipment for YouTube Enthusiasts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-craft-your-best-youtubing-exit-tips-from-industry-leaders/"><u>[New] 2024 Approved  Craft Your Best YouTubing Exit - Tips From Industry Leaders</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-crafting-the-perfect-harmony-fusing-lyrics-and-images-with-lyric-video-maker/"><u>[New] 2024 Approved  Crafting the Perfect Harmony  Fusing Lyrics & Images with Lyric Video Maker</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-designing-an-editorial-epilogue/"><u>[New] 2024 Approved  Designing an Editorial Epilogue</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-exclusive-guide-to-affordable-premium-video-editors/"><u>[New] 2024 Approved  Exclusive Guide to Affordable, Premium Video Editors</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-free-youtube-thumbnails-saving-guide/"><u>[New] 2024 Approved  Free YouTube Thumbnails Saving Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-from-hobbyist-to-host-mac-sports-channel-creation/"><u>[New] 2024 Approved  From Hobbyist to Host  Mac Sports Channel Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-harness-the-power-of-youtube-video-for-stunning-gif-masterpieces/"><u>[New] 2024 Approved  Harness the Power of YouTube Video for Stunning GIF Masterpieces</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-inverted-playback-the-hidden-technique-for-a-reversed-youtube-list/"><u>[New] 2024 Approved  Inverted Playback  The Hidden Technique for a Reversed YouTube List</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-your-unique-fashion-voice/"><u>[New] 2024 Approved  Mastering Your Unique Fashion Voice</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-yt-thumbnail-design-for-enhanced-views/"><u>[New] 2024 Approved  Mastering YT Thumbnail Design for Enhanced Views</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-navigating-through-non-displaying-thumbnails-on-your-shorts/"><u>[New] 2024 Approved  Navigating Through Non-Displaying Thumbnails on Your Shorts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-no-cost-mp3-creation-10-youtube-transformers-explained/"><u>[New] 2024 Approved  No-Cost MP3 Creation  10 YouTube Transformers Explained</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-premieres-role-in-your-youtube-creation-process/"><u>[New] 2024 Approved  Premiere's Role in Your YouTube Creation Process</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-rise-on-youtube-initiating-your-chanel-and-earning-pathway/"><u>[New] 2024 Approved  Rise on YouTube  Initiating Your Chanel & Earning Pathway</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-easy-free-methods-to-master-youtube-video-frames/"><u>[New] 5 Easy, Free Methods to Master YouTube Video Frames</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-full-range-locomotion-appraisal/"><u>[New] In 2024, Full Range Locomotion Appraisal</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-mastering-angular-adjustments-in-vlc-player/"><u>[Updated] In 2024, Mastering Angular Adjustments in VLC Player</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-top-software-for-game-recordings/"><u>[Updated] Top Software for Game Recordings</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-complete-evaluation-of-slomo-recording-software/"><u>2024 Approved  Complete Evaluation of SloMo Recording Software</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-the-definitive-guide-to-ios-and-android-maker-tools/"><u>2024 Approved  The Definitive Guide to iOS & Android Maker Tools</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-tecno-spark-20-proplus-system-crash-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Tecno Spark 20 Pro+ System Crash Issue | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/crucial-elements-for-online-tale-artistry/"><u>Crucial Elements for Online Tale Artistry</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-content-consummation-for-2024/"><u>Elite Content Consummation for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/enhancing-everyday-living-using-chatgpt-strategies-and-tips/"><u>Enhancing Everyday Living Using ChatGPT – Strategies and Tips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-steps-in-filmmaking-essentials-for-new-youtube-talents-for-2024/"><u>First Steps in Filmmaking  Essentials for New YouTube Talents for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-funimate-unlocking-the-secrets-of-easy-downloads/"><u>In 2024, Funimate  Unlocking the Secrets of Easy Downloads</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-fix-apple-iphone-8-plus-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>In 2024, How To Fix Apple iPhone 8 Plus Unavailable Issue With Ease | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-tecno-camon-20-premier-5g-to-samsung-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Tecno Camon 20 Premier 5G to Samsung Phone | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/lenovo-yoga-900s-windows-11-drivers-download/"><u>Lenovo Yoga 900S Windows 11 Drivers Download</u></a></li>
+<li><a href="https://win-answers.techidaily.com/quick-guide-getting-multiversus-running-smoothly-on-your-pc/"><u>Quick Guide: Getting MultiVersus Running Smoothly on Your PC</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-focused-chroma-keying-101-for-2024/"><u>Speed-Focused Chroma Keying 101 for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-upcoming-oneplus-10-insider-information-on-when-to-expect-it-what-it-may-offer-and-how-much-youll-pay/"><u>The Upcoming OnePlus 10 – Insider Information on When to Expect It, What It May Offer, and How Much You'll Pay!</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/what-you-want-to-know-about-two-factor-authentication-for-icloud-from-your-iphone-6-by-drfone-ios/"><u>What You Want To Know About Two-Factor Authentication for iCloud From your iPhone 6</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Leveraging Videos with Text  A Cost-Free Approach\""
-date: 2024-07-13T05:34:58.271Z
-updated: 2024-07-14T05:34:58.271Z
+date: 2024-08-08T12:39:03.461Z
+updated: 2024-08-09T12:39:03.461Z
 tags:
   - ai video
   - ai youtube
@@ -18,6 +18,9 @@ thumbnail: https://thmb.techidaily.com/da3401fb2ac78eb6ea2665b0f0063719a28f111af
 
 # How to Add Video to Text
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 ##### Liza Brown
@@ -28,6 +31,10 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -44,12 +51,18 @@ The next step you will have to take is to create the cut-out of the text within 
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
@@ -58,6 +71,9 @@ Besides presentation software, you can also use video editing software products 
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
@@ -80,6 +96,9 @@ There are so many different ways to create visually striking content, and adding
 
 Merging text with video is equally easy in PowerPoint and Filmora, so you just have to choose which software better suits your needs and select the materials that fit the style of your project. Learning how to add a video to text won’t take too much of your time, as this process can be completed in just a few quick steps. Which software are you using to add a video to text? Leave a comment below and let us know.
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 Liza Brown
@@ -105,3 +124,48 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/new-10-best-free-live-streaming-apps-for-android-and-iphone/"><u>[New] 10 Best Free Live Streaming Apps for Android and iPhone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-earning-big-on-youtube-shorts-must-haves-opportunities-and-more/"><u>[New] 2024 Approved  Earning Big on YouTube Shorts  Must-Haves, Opportunities and More</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-birth-of-an-internet-persona-the-vtuber-blueprint-for-2024/"><u>[New] Birth of an Internet Persona – The VTuber Blueprint for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ore-ethos-universal-youtube-guidelines/"><u>[New] Core Ethos  Universal YouTube Guidelines</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ow-to-easily-disableremove-youtube-shorts-permanently/"><u>[New] How to Easily Disable/Remove YouTube Shorts Permanently?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-maximize-money-from-youtube-shorts-tactics-and-tricks/"><u>[New] In 2024, Maximize Money From YouTube Shorts  Tactics & Tricks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-directors-toolkit-youtube-lessons-on-film-making/"><u>[New] In 2024, The Director's Toolkit  YouTube Lessons on Film Making</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-ultimate-gear-premium-lenses-for-vloggers/"><u>[New] In 2024, Ultimate Gear  Premium Lenses for Vloggers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/erfect-your-presentation-the-yt-guide-to-background-softening/"><u>[New] Perfect Your Presentation  The YT Guide to Background Softening</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-guide-youtube-channel-titles-for-video-blogging-max-156/"><u>[New] Ultimate Guide  YouTube Channel Titles For Video Blogging (Max 156)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/38502520-updated-2024-approved-master-youtube-ad-creation-with-no-cost-guide-inside/"><u>[Updated] 2024 Approved  Master YouTube Ad Creation with No Cost – Guide Inside!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-monetary-impact-of-mr-beast/"><u>[Updated] 2024 Approved  The Monetary Impact of Mr. Beast</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-digital-arena-100plus-titles-for-the-true-gamer-for-2024/"><u>[Updated] Digital Arena  100+ Titles for the True Gamer for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-capture-youtubes-iconic-icons-online-tools-desktop-software-and-commands/"><u>[Updated] In 2024, Capture YouTube's Iconic Icons  Online Tools, Desktop Software & Commands</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-cross-platform-connection-masterclass-instagramfacebook/"><u>[Updated] In 2024, Cross-Platform Connection Masterclass  Instagram/Facebook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-time-traveling-through-retro-filmmaking-techniques/"><u>[Updated] In 2024, Time Traveling Through Retro Filmmaking Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-laughter-loops-scouring-the-best-chuckles-in-youtube-worlds-for-2024/"><u>[Updated] Laughter Loops  Scouring the Best Chuckles in YouTube Worlds for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-mastering-channels-on-the-fly-tubebuddy-essentials-for-2024/"><u>[Updated] Mastering Channels on the Fly - TubeBuddy Essentials for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-step-into-wealthy-creator-land-via-youtube-shorts-revenue-for-2024/"><u>[Updated] Step Into Wealthy Creator Land via YouTube Shorts Revenue for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-enhancing-productivity-how-to-master-screen-capture-on-an-hp-device/"><u>2024 Approved  Enhancing Productivity  How to Master Screen Capture on an HP Device</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mastery-in-minimalism-essential-thumbnail-font-selection/"><u>2024 Approved  Mastery in Minimalism  Essential Thumbnail Font Selection</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-power-players-unleashed-youtubes-female-elite/"><u>2024 Approved  Power Players Unleashed  YouTube’s Female Elite</u></a></li>
+<li><a href="https://android-location.techidaily.com/9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-tecno-pop-7-pro-drfone-by-drfone-virtual/"><u>9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Tecno Pop 7 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/9-insights-into-the-future-workforce-for-prompt-crafting/"><u>9 Insights Into the Future Workforce for Prompt Crafting</u></a></li>
+<li><a href="https://fox-http.techidaily.com/drone-purchasing-made-easy-a-step-by-step-buyers-guide/"><u>Drone Purchasing Made Easy  A Step-by-Step Buyer’s Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/ensuring-audio-clarity-amidst-remote-recording-challenges/"><u>Ensuring Audio Clarity Amidst Remote Recording Challenges</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-capture-youtubes-subtitles-on-no-cost-platforms/"><u>In 2024, Capture YouTube's Subtitles on No-Cost Platforms</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-how-to-join-someones-live-on-tiktok-as-a-guest/"><u>In 2024, How To Join Someone’s Live on TikTok as a Guest</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-maximizing-youtube-exposure-with-ongoing-creative-commons-compliance/"><u>In 2024, Maximizing YouTube Exposure with Ongoing Creative Commons Compliance</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-optimizing-group-chats-with-google-meets-filtering-options/"><u>In 2024, Optimizing Group Chats with Google Meet's Filtering Options</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-pc-guide-extract-twitters-funny-images/"><u>In 2024, PC Guide  Extract Twitter's Funny Images</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-professional-streaming-boost-unveiling-best-9-live-stream-filters/"><u>In 2024, Professional Streaming Boost  Unveiling Best 9 Live-Stream Filters</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-youtube-income-mastery-latest-policy-guide/"><u>In 2024, YouTube Income Mastery  Latest Policy Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tart-your-professional-filmmaking-exclusive-cost-free-green-screen-training-from-top-youtube-educators-for-2024/"><u>Jumpstart Your Professional Filmmaking  Exclusive, Cost-Free Green Screen Training From Top YouTube Educators for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nal-growth-chronicles-for-youtube-audience/"><u>Personal Growth Chronicles for YouTube Audience</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/cast-your-youtube-selection-playlists/"><u>Quickcast Your Youtube Selection, Playlists!</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/resolving-obs-software-issues-a-comprehensive-guide-for-windows-1110-users/"><u>Resolving OBS Software Issues: A Comprehensive Guide for Windows 11/10 Users</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/snap-to-perfection-editing-strategies-that-work-wonders-for-2024/"><u>Snap to Perfection  Editing Strategies That Work Wonders for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-quest-for-visual-excellence-can-pickup-be-the-top-photo-editor-on-android/"><u>The Quest for Visual Excellence – Can PickUp Be the Top Photo Editor on Android?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-secure-approaches-for-youtube-to-mp3-file-conversion-for-2024/"><u>Three Secure Approaches for YouTube-to-MP3 File Conversion for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/whiz-kids-10-highest-viewing-stars/"><u>Web's Whiz Kids  10 Highest Viewing Stars</u></a></li>
+</ul></div>
