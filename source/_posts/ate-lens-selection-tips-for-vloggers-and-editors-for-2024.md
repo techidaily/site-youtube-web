@@ -1,0 +1,228 @@
+---
+title: "Ultimate Lens Selection Tips for Vloggers & Editors for 2024"
+date: 2024-08-23T02:45:11.459Z
+updated: 2024-08-24T02:45:11.459Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes Ultimate Lens Selection Tips for Vloggers & Editors for 2024"
+excerpt: "This Article Describes Ultimate Lens Selection Tips for Vloggers & Editors for 2024"
+keywords: "Vlogging Lens Guide,Video Editor Gear,Pro Filmmaking Tools,Vlogger Equipment Essentials,Content Creator Optimization,Editing Tech Tips,Media Production Best Practices"
+thumbnail: https://thmb.techidaily.com/6462de374e4f489455f584c5102443a7cb28c7609933729fa2bbdde0fb2df507.jpg
+---
+
+## Ultimate Lens Selection Tips for Vloggers & Editors
+
+# A Vlogger's Guide To Camera Lenses
+
+![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+##### Richard Bennett
+
+ Nov 01, 2022• Proven solutions
+
+[0](#commentsBoxSeoTemplate)
+
+The staple of any vlog is the talking headshot, a shot of the speaker talking directly to the audience. You can compose this shot with different kinds of lenses for your interchangeable lens camera.
+
+But which kind of lens is the right lens for you as a vlogger?
+
+In this article, I’m going to help you figure that out.
+
+* [Part 1: Three Focal Length Groups: Wide, Standard, Telephoto](#ThreeFocalLengthGroups)
+* [Part 2: Vlogging With Each Focal Length Group](#VloggingWithEachFocalLengthGroup)
+* [Part 3: Crop Factor](#CropFactor)
+* [Part 4: Focal Length Equivalency Table](#FocalLengthEquivalencyTable)
+* [Part 5: Aperture](#aperture)
+* [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
+* [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
+
+### Three Focal Length Groups: Wide, Standard, Telephoto
+
+There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
+
+#### Wide-Angle Lens
+
+Wide-angle lenses can “see more.” They allow more of your scene to fit inside your frame. Objects that are closer to the lens appear much bigger while objects that are further away appear even smaller. Perspectives are also enhanced, making close objects and people that just make it into the sides of the frame appear more stretched out. Out of all the other ranges in focal lengths, wide-angle lenses will appear the least zoomed in.
+
+#### Standard Lens
+
+With standard lenses or normal lenses, you won’t get the stretched out objects or enhanced perspectives that you get from wide-angle lenses. Instead, standard lenses are meant to see scenes as the natural human eye is meant to see them. If you shoot a scene with both a wide-angle lens and a standard lens from the same position, you’ll notice that less of the scene fits into your frame. Standard lenses will appear more zoomed-in than wide-angle lenses, but less zoomed-in than telephoto lenses.
+
+#### Telephoto Lens
+
+Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
+
+### Vlogging With Each Focal Length Group
+
+You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
+
+#### When to vlog with a wide-angle lens
+
+Wide-angle lenses are the most commonly used lenses for vlogging. Wide-angle lenses are great when you need to be close to your camera. This might be the case for you if your recording space is small or if you want to film yourself as you hold your camera up with your own hand.
+
+Being close to your camera not only gives you the option to use your camera’s built-in microphone, but it also gives you the option to make use of camera-mounted shotgun microphones.
+
+#### When to vlog with a standard lens
+
+Standard lenses are great when you have more space to be further away from your camera. The perspectives in your shot will look more natural through a standard lens, making your talking head footage feel more corporate or professional. You’ll also be able to get blurrier backgrounds using a standard lens versus a wide-angle lens.
+
+Being further away from your camera, however, means that you’ll have to use a separate microphone positioned closer to you.
+
+#### When to vlog with a telephoto lens
+
+As telephoto lenses are even more zoomed in, you’ll need to be even further away from your camera to fit yourself inside your camera frame. Why would any vlogger ever need to be that far away from their camera? One word… teleprompter. If you want or need to stick to a script, you’ll have to be far away enough from your camera that it doesn’t appear like your eyes are scanning left to right. You then close in the distance with a telephoto lens.
+
+  In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
+
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<!-- affiliate ads end -->
+### Crop Factor
+
+Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
+
+ ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
+ In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Focal Length Equivalency Table
+
+This table shows you the focal lengths needed to achieve the same shot between cameras with different sensor sizes. In order to take a shot as wide as the shot I took of myself with the 24mm lens on my full-frame camera, I would need a 15mm lens on an APS-C sensor camera or a 12mm lens on a micro 4/3 camera.
+
+| Focal Length / Sensor       | Full Frame | APS-C | Micro 4/3 |
+| --------------------------- | ---------- | ----- | --------- |
+| Wide (Handheld Selfie-Safe) | 16mm       | 10mm  | 8mm       |
+| Wide (Handheld Selfie-Safe) | 18mm       | 11mm  | 9mm       |
+| Wide (Handheld Selfie-Safe) | 24mm       | 15mm  | 12mm      |
+| Wide                        | 35mm       | 22mm  | 18mm      |
+| Standard                    | 50mm       | 31mm  | 25mm      |
+| Telephoto                   | 70mm       | 44mm  | 35mm      |
+| Telephoto                   | 100mm      | 63mm  | 50mm      |
+| Telephoto                   | 200mm      | 125mm | 100mm     |
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+### Aperture
+
+ ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+ The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
+
+ ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+ Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
+
+Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
+
+But do you even need a fast lens?
+
+### Vlogging With a Fast Lens
+
+#### Pros of Vlogging With a Fast Lens
+
+* Better low-light performance
+* Better autofocus performance
+* Better "bokeh" (out-of-focus areas, like your background, having that nice blurry look that you see in a lot of movies)
+
+#### Cons of Vlogging With a Fast Lens
+
+* More expensive
+* Moving subjects more likely to get out of focus when shooting with a large aperture
+* Better continuous autofocus performance needed when shooting moving subjects with a large aperture
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
+### Optical Image Stabilization
+
+Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
+
+OIS is very beneficial to have on a lens if you’re a vlogger who films mostly handheld footage. Although this technology adds to the price of your lens as well, it can greatly help you to capture smoother footage that may otherwise be shaky. Nikon calls this technology “Vibration Reduction” (VR) for their lenses.
+
+  In the above video, you can see how much OIS can help to stabilize your footage. MicBergsma simultaneously compares the footage between two GoPro Hero5 Blacks, one with OIS on and one with OIS off.
+
+If, however, you are shooting most of your vlogs on a tripod, you won’t need a lens with OIS.
+
+ Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-a-visual-journey-uncovering-the-best-icons-and-logos-online/"><u>[New] 2024 Approved  A Visual Journey  Uncovering the Best Icons & Logos Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-budget-friendly-designs-for-youtube-content-creators/"><u>[New] In 2024, Budget-Friendly Designs for YouTube Content Creators</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-navigating-to-the-shadows-of-youtube-videos/"><u>[New] In 2024, Navigating to the Shadows of YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nside-look-what-makes-asmr-special/"><u>[New] Inside Look  What Makes ASMR Special</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/avigating-new-waters-personalbusiness-youtube-channels-made-mobile-ready-for-2024/"><u>[New] Navigating New Waters  Personal/Business YouTube Channels Made Mobile-Ready for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/treaming-services-showdown-vimeo-versus-youtube/"><u>[New] Streaming Services Showdown  Vimeo Versus YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ele-loop-techniques-easy-endless-watching-on-television-for-2024/"><u>[New] Tele-Loop Techniques  Easy, Endless Watching on Television for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/anishing-acts-how-to-blur-faces-and-objects-online/"><u>[New] Vanishing Acts  How to Blur Faces and Objects Online</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-elevate-your-cinematography-skills-editing-and-sharing-360-videos-on-youtube/"><u>[Updated] 2024 Approved  Elevate Your Cinematography Skills  Editing and Sharing 360° Videos on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-innovative-hubs-of-affordable-visual-content-sources/"><u>[Updated] 2024 Approved  Innovative Hubs of Affordable Visual Content Sources</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-echoing-ethos-with-closing-credits/"><u>[Updated] Echoing Ethos with Closing Credits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-camera-roll-to-youtube-posting-short-clips-seamlessly/"><u>[Updated] From Camera Roll to YouTube  Posting Short Clips Seamlessly</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-risky-business-buying-non-real-youtube-supporters-for-2024/"><u>[Updated] Risky Business  Buying Non-Real YouTube Supporters for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-setting-up-a-sports-channel-from-scratch-mac-style/"><u>[Updated] Setting up a Sports Channel From Scratch, Mac-Style</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-ace-your-videos-essential-editors-for-youtube/"><u>2024 Approved  Ace Your Videos  Essential Editors for YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-from-clips-to-classrooms-harnessing-youtubes-potential-for-teaching/"><u>2024 Approved  From Clips to Classrooms  Harnessing YouTube's Potential for Teaching</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-sourav-joshis-predictions-on-youtube-profits-in-the-new-year/"><u>2024 Approved  Sourav Joshi's Predictions on YouTube Profits in the New Year</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nce-attraction-in-a-minute-comparing-youtubes-shorts-and-tiktoks/"><u>Audience Attraction in a Minute  Comparing YouTubes Shorts and TikToks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/blueprints-to-hiring-creative-cinematographers-for-2024/"><u>Blueprints to Hiring Creative Cinematographers for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/callers-audio-logger-iphone-24-for-2024/"><u>Caller's Audio Logger  IPhone '24 for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-video-files-on-meizu-21-by-fonelab-android-recover-video/"><u>Complete guide for recovering video files on Meizu 21</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oad-youtube-videos-anywhere-anytime-free-android-tips/"><u>Download YouTube Videos Anywhere, Anytime  Free Android Tips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/st-rated-smartphone-camera-and-recording-apps-iphone-vs-android/"><u>Highest Rated Smartphone Camera & Recording Apps  IPhone vs Android</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-erase-private-data-from-iphone-11-drfone-by-drfone-ios-full-data-eraser-ios-full-data-eraser/"><u>How To Erase Private Data From iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-a-trailblazers-guide-youtube-studio-location-unveiled/"><u>In 2024, A Trailblazer’s Guide  YouTube Studio Location Unveiled</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-audio-visual-synopsis-creator/"><u>In 2024, Audio Visual Synopsis Creator</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-motorola-moto-g84-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Motorola Moto G84 5G Without PUK Codes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-skillful-conversion-of-youtube-videos-to-interactive-gif-artistry/"><u>In 2024, Skillful Conversion of YouTube Videos to Interactive GIF Artistry</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-step-by-step-producing-youtube-trailers-using-filmora/"><u>In 2024, Step-by-Step  Producing YouTube Trailers Using Filmora</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-tangoing-turquoise-toucan/"><u>In 2024, Tangoing Turquoise Toucan</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-which-is-the-best-fake-gps-joystick-app-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>In 2024, Which is the Best Fake GPS Joystick App On Infinix Smart 7? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-powerhouse-the-ultimate-game-collection-for-2024/"><u>Pixel Powerhouse  The Ultimate Game Collection for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/samsungs-upcoming-breakthrough-in-solid-state-drives-introducing-290-layer-v-nand-technology/"><u>Samsung's Upcoming Breakthrough in Solid State Drives: Introducing 290-Layer V-NAND Technology</u></a></li>
+<li><a href="https://games-able.techidaily.com/streamline-visual-performance-with-precision-in-series-sxs-variable-refresh-rate/"><u>Streamline Visual Performance with Precision in Series S/X's Variable Refresh Rate</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-ultimate-guide-enhancing-everyday-life-with-chatgpt-insights/"><u>The Ultimate Guide: Enhancing Everyday Life with ChatGPT Insights</u></a></li>
+</ul></div>

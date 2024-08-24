@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Cost-Effective Techniques for YouTube Intro Creation\""
-date: 2024-07-13T05:26:13.110Z
-updated: 2024-07-14T05:26:13.110Z
+date: 2024-08-23T02:27:10.264Z
+updated: 2024-08-24T02:27:10.264Z
 tags:
   - ai video
   - ai youtube
@@ -92,22 +92,34 @@ If you want to make intro using Filmora then it is advised to follow the steps a
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-import-media-interface.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 **Step 2:** Head over to “Title” and you can add them to you YouTube intro with ease:
 
 **Step 3:** To add opener you need to head to “Opener” under Titles and right-click the one you want to select. Click apply and it will be added to the timeline.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-openers.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 **Step 4:** You can also change the duration of the title effects. Drag its edge on the timeline you can also click the clock icon and enter new duration.
 
 **Step 5:** Under the style tab you can change the font, text type, and other settings.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-text.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Step 6:** To edit the intro, even more, click the “Advanced” button to access the advanced editing panel. Add text boxes, shapes and other effects from here.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-step.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **Step 7:** Under “Effects” you can access the filters and overlays to add to your project.
 
 Step 8: The default length of the filter is 5 seconds that can be extended by dragging its corners on to the timeline.
@@ -120,6 +132,9 @@ Step 8: The default length of the filter is 5 seconds that can be extended by dr
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-export-mp4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 It's very easy right? Download Filmora and make a click-driven intro now!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -204,6 +219,9 @@ The program is known for the awesome workability as well as viability kudos to t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -229,3 +247,66 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-how-to-make-a-stunning-lyric-video-with-lyric-video-maker/"><u>[New] 2024 Approved  How to Make a Stunning Lyric Video with Lyric Video Maker</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-acclaimed-mobile-apps-for-gopro-footage-perfection/"><u>[New] Acclaimed Mobile Apps for GoPro Footage Perfection</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rena-of-achievements-a-million-gaming-milestones-for-2024/"><u>[New] Arena of Achievements  A Million Gaming Milestones for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oosting-visibility-the-art-of-crafting-youtube-channel-backlinks-for-2024/"><u>[New] Boosting Visibility  The Art of Crafting YouTube Channel Backlinks for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-comprehensive-guide-to-vsco-image-enhancement-for-2024/"><u>[New] Comprehensive Guide to VSCO Image Enhancement for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oundations-first-what-to-invest-in-for-youtubing-for-2024/"><u>[New] Foundations First  What To Invest In for YouTubing for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ow-to-find-youtube-sponsorships-by-using-famebit/"><u>[New] How to Find YouTube Sponsorships by Using FameBit</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/deal-watchlist-for-asmr-fans/"><u>[New] Ideal Watchlist for ASMR Fans</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-fb-download-made-simple-free-and-convenient-options-of-23-online/"><u>[New] In 2024, FB Download Made Simple  Free & Convenient Options of '23 Online</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-freeze-time-on-mi-11-with-impeccable-screen-recording-features/"><u>[New] In 2024, Freeze Time on Mi 11 with Impeccable Screen Recording Features</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-guide-eradicating-pending-videos-on-your-youtube-queue/"><u>[New] In 2024, Guide  Eradicating Pending Videos on Your YouTube Queue</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-launching-a-successful-vlog-a-guide-to-profitability/"><u>[New] In 2024, Launching a Successful Vlog  A Guide to Profitability</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-project-management-fees/"><u>[New] In 2024, Project Management Fees</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-where-custom-visuals-for-youtube-live-and-breathe/"><u>[New] In 2024, Where Custom Visuals for YouTube Live and Breathe</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-winning-the-game-with-a-strong-video-game-youtube-presence/"><u>[New] In 2024, Winning the Game with a Strong Video Game Youtube Presence</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-mastering-the-social-media-game-the-best-30-nicknames-for-tiktok-for-2024/"><u>[New] Mastering the Social Media Game  The Best 30 Nicknames for TikTok for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/avigate-through-settings-enabledisable-video-comments-for-2024/"><u>[New] Navigate Through Settings  Enable/Disable Video Comments for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oise-reduction-for-better-video-experiences-on-youtube-for-2024/"><u>[New] Noise Reduction for Better Video Experiences on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/apidly-evolving-yt-spaces-enhancing-cerebral-growth/"><u>[New] Rapidly Evolving YT Spaces Enhancing Cerebral Growth</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/implified-playlist-crafting-for-youtube-fans-on-desktop-and-mobile-devices/"><u>[New] Simplified Playlist Crafting for YouTube Fans on Desktop & Mobile Devices</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2023-strategy-for-twitter-snaps-via-snapchat-uploads/"><u>[Updated] 2023 Strategy for Twitter Snaps via Snapchat Uploads</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-elevating-your-video-content-for-a-fanbase-boom/"><u>[Updated] 2024 Approved  Elevating Your Video Content for a Fanbase Boom</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-seamless-creation-at-your-fingertips-selecting-androids-top-editors/"><u>[Updated] 2024 Approved  Seamless Creation at Your Fingertips  Selecting Android's Top Editors</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-ultimate-guide-to-the-best-10-video-saving-devices/"><u>[Updated] 2024 Approved  Ultimate Guide to the Best 10 Video Saving Devices</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-biggest-fifa-visuals-youtube-insights-graphed-for-2024/"><u>[Updated] Biggest FIFA Visuals  YouTube Insights Graphed for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-boost-your-videos-popularity-on-youtube/"><u>[Updated] Boost Your Video's Popularity on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-chill-vibes-current-hits-to-match-your-yt-short-tunes-for-2024/"><u>[Updated] Chill Vibes  Current Hits to Match Your YT Short Tunes for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-facebook-fans-gain-more-with-streamed-content-sharing/"><u>[Updated] Facebook Fans Gain More with Streamed Content Sharing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-flipping-frames-innovative-techniques-for-backward-viewing-on-yt/"><u>[Updated] Flipping Frames  Innovative Techniques for Backward Viewing on YT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-step-by-step-for-quick-chromakey-application/"><u>[Updated] In 2024, Step-by-Step for Quick Chromakey Application</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-streamlined-approach-save-youtube-videos/"><u>[Updated] In 2024, Streamlined Approach  Save YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ultimate-videographers-accessory-list-the-top-9-essentials/"><u>[Updated] In 2024, The Ultimate Videographer’s Accessory List - The Top 9 Essentials</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-ultimate-guide-choosing-powerful-notebooks-for-filmmakers/"><u>[Updated] In 2024, Ultimate Guide  Choosing Powerful Notebooks for Filmmakers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-uncovering-the-essence-of-obss-screen-capture-features/"><u>[Updated] In 2024, Uncovering the Essence of OBS's Screen Capture Features</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-hub-for-newbies-in-cinematic-craftsmanship/"><u>[Updated] In 2024, YouTube Hub for Newbies in Cinematic Craftsmanship</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-integrating-picture-in-picture-into-everyday-browsing-habits/"><u>[Updated] Integrating Picture in Picture Into Everyday Browsing Habits</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-ranking-8-effective-online-marketing-solutions/"><u>[Updated] Ranking 8 Effective Online Marketing Solutions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-the-art-of-documenting-digital-entertainment-for-2024/"><u>[Updated] The Art of Documenting Digital Entertainment for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-what-is-filmora-certified-creative-program-and-how-to-become-an-fcc-in-2024/"><u>[Updated] What Is Filmora Certified Creative Program and How to Become an FCC, In 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-slow-how-to-slow-down-youtube-videos-3-ways/"><u>[Updated] YouTube Slow  How to Slow Down YouTube Videos [3 Ways]</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-download-playback-streaming-youtube-videos-on-ios-securely-and-smoothly/"><u>2024 Approved  Download Playback  Streaming Youtube Videos on iOS Securely and Smoothly</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-investors-guide-to-best-financial-youtube-sources/"><u>2024 Approved  Investors' Guide to Best Financial YouTube Sources</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-prime-selection-of-top-20-humorous-lockdown-memes-lifting-spirits-on-facebook/"><u>2024 Approved  Prime Selection of Top 20 Humorous Lockdown Memes, Lifting Spirits on Facebook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-rapid-expansion-youtube-channels-boosting-brainpower/"><u>2024 Approved  Rapid Expansion  YouTube Channels Boosting Brainpower</u></a></li>
+<li><a href="https://techtrends.techidaily.com/5-crucial-criteria-to-assess-when-selecting-your-ideal-stereo-speaker-system/"><u>5 Crucial Criteria to Assess When Selecting Your Ideal Stereo Speaker System</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/elevate-your-play-with-these-5-windows-11-recording-approaches-for-2024/"><u>Elevate Your Play with These 5 Windows 11 Recording Approaches for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/freshly-compiled-list-of-standard-passwords-for-d-link-products-july-2024-edition/"><u>Freshly Compiled List of Standard Passwords for D-Link Products - July 2024 Edition</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-tecno-spark-20-screen-to-pc-using-wifi-drfone-by-drfone-android/"><u>How to Cast Tecno Spark 20 Screen to PC Using WiFi | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-historical-highlights-topping-the-list-of-learning-yt-sources/"><u>In 2024, Historical Highlights  Topping the List of Learning YT Sources</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-ideal-watchlist-for-asmr-fans/"><u>In 2024, Ideal Watchlist for ASMR Fans</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-identifying-and-tapping-into-youtubes-hidden-niches/"><u>In 2024, Identifying and Tapping Into Youtube's Hidden Niches</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-make-every-sound-count-comprehensive-guide-to-free-youtube-video-transcriptions/"><u>In 2024, Make Every Sound Count  Comprehensive Guide to Free YouTube Video Transcriptions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/mastering-screen-quiet-disable-win11-folders/"><u>Mastering Screen Quiet: Disable Win11 Folders</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/navigating-the-network-speedy-id-snooping-tips-for-2024/"><u>Navigating the Network  Speedy ID Snooping Tips for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ssional-insight-elevating-your-youtube-video-experience/"><u>Professional Insight  Elevating Your YouTube Video Experience</u></a></li>
+<li><a href="https://review-topics.techidaily.com/realme-c55-video-recovery-recover-deleted-videos-from-realme-c55-by-fonelab-android-recover-video/"><u>Realme C55 Video Recovery - Recover Deleted Videos from Realme C55</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ior-asmr-video-curation/"><u>Superior ASMR Video Curation</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-explosion-of-telegrams-user-base-post-facebook-halt/"><u>The Explosion of Telegram's User Base Post-Facebook Halt</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-the-hottest-youtube-music-playback-vids-2023/"><u>Unboxing the Hottest YouTube Music Playback Vids, 2023</u></a></li>
+</ul></div>

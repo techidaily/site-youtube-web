@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Flair in Your Makeup Routine  Top Tutorial Insights\""
-date: 2024-07-13T05:21:09.448Z
-updated: 2024-07-14T05:21:09.448Z
+date: 2024-08-23T02:32:16.972Z
+updated: 2024-08-24T02:32:16.972Z
 tags:
   - ai video
   - ai youtube
@@ -116,6 +116,9 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -161,6 +164,18 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
+<!-- affiliate ads begin -->
+<span id="1793213">
+					<video width="1080" height="1620" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Lighting for Beauty**
 
 The key to achieving a high-quality picture for your beauty video is having a lot of light.
@@ -197,6 +212,10 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -207,6 +226,9 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 
 ![Neewer Ring Light](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
 #### 2\. **Prismatic Halo Ring Light**
@@ -215,6 +237,9 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -252,6 +277,9 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -277,6 +305,9 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -302,3 +333,49 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-8-best-webspots-free-eco-backdrops-and-footage-collection/"><u>[New] 2024 Approved  8 Best Webspots  FREE Eco-Backdrops and Footage Collection</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-achieve-video-excellence-learn-the-studio-editor-way/"><u>[New] 2024 Approved  Achieve Video Excellence  Learn the Studio Editor Way</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-achieving-top-quality-on-youtube-video-enhancement-fundamentals/"><u>[New] 2024 Approved  Achieving Top Quality on YouTube  Video Enhancement Fundamentals</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-avoid-pitfalls-maintaining-youtube-thumbnail-quality/"><u>[New] 2024 Approved  Avoid Pitfalls  Maintaining YouTube Thumbnail Quality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-charting-a-course-for-wealth-ajeys-youtube-income-blueprint/"><u>[New] 2024 Approved  Charting a Course for Wealth  Ajey's YouTube Income Blueprint</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-conveniently-remove-downloaded-youtube-media-for-lightweight-devices/"><u>[New] 2024 Approved  Conveniently Remove Downloaded YouTube Media for Lightweight Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-counteract-vibration-for-clear-captures/"><u>[New] 2024 Approved  Counteract Vibration for Clear Captures</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-creating-impressive-3d-beginnings-on-youtube/"><u>[New] 2024 Approved  Creating Impressive 3D Beginnings on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-cutting-edge-voice-altering-apps-for-vloggers/"><u>[New] 2024 Approved  Cutting-Edge Voice Altering Apps for Vloggers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-discover-these-10-quickly-rising-youtube-inspirations/"><u>[New] 2024 Approved  Discover These 10 Quickly Rising YouTube Inspirations</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-discovering-the-power-behind-youtube-statistics-interpretation/"><u>[New] 2024 Approved  Discovering the Power Behind YouTube Statistics Interpretation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-effortlessly-download-your-favorite-youtube-playlists/"><u>[New] 2024 Approved  Effortlessly Download Your Favorite YouTube Playlists</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fifas-best-players-trendy-videos-on-youtube/"><u>[New] 2024 Approved  FIFA's Best Players  Trendy Videos on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-free-professional-youtuber-backgrounds/"><u>[New] 2024 Approved  Free Professional YouTuber Backgrounds</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-how-to-add-timestamps-on-youtube-video-link/"><u>[New] 2024 Approved  How to Add Timestamps on YouTube Video Link?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-handheld-shots-no-tripod-necessary/"><u>[New] 2024 Approved  Mastering Handheld Shots  No Tripod Necessary</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-the-art-of-instantaneous-deletion-of-youtube-discussions/"><u>[New] 2024 Approved  Mastering the Art of Instantaneous Deletion of YouTube Discussions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-maximize-offline-viewing-8-best-youtube-downloaders/"><u>[New] 2024 Approved  Maximize Offline Viewing  8 Best YouTube Downloaders</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-minecraft-community-image-bank-access/"><u>[New] 2024 Approved  Minecraft Community Image Bank Access</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-optimizing-youtube-auditory-experience-for-viewers/"><u>[New] 2024 Approved  Optimizing YouTube Auditory Experience for Viewers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-professional-footage-integrating-watermarks-and-logos-into-yt-videos/"><u>[New] 2024 Approved  Professional Footage  Integrating Watermarks and Logos Into YT Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-novices-pathway-to-writing-youtube-video-plans-for-2024/"><u>[New] A Novice's Pathway to Writing YouTube Video Plans for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-direct-tweet-transfers-to-facebook-feed-for-2024/"><u>[New] Direct Tweet Transfers to Facebook Feed for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-the-secrets-of-successfully-posting-imovie-videos-on-vimeo/"><u>[New] In 2024, The Secrets of Successfully Posting iMovie Videos on Vimeo</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/new-taking-control-of-your-tiktok-experience-pc-and-mac-style-for-2024/"><u>[New] Taking Control of Your TikTok Experience, PC & Mac Style for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-clearview-pro-5-screen-mastery/"><u>[Updated] 2024 Approved  ClearView Pro 5 - Screen Mastery</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-unveiling-secrets-to-broadcast-recordings-on-facebook-live/"><u>[Updated] 2024 Approved  Unveiling Secrets to Broadcast Recordings on Facebook Live</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-echovideo-capture-toolkit-for-fb-for-2024/"><u>[Updated] EchoVideo Capture Toolkit for FB for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-snapchat-chronicles-unveiled-an-array-of-more-than-a-hundred-inspiring-title-concepts/"><u>[Updated] In 2024, Snapchat Chronicles Unveiled  An Array of More Than a Hundred Inspiring Title Concepts</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-firefoxs-popup-window-magic/"><u>[Updated] Mastering Firefox's Popup Window Magic</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-xiaomi-mix-fold-3-drfone-by-drfone-virtual-android/"><u>15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-ambition-selecting-top-6-free-downloader-apps-from-youtube-vaults-for-2024/"><u>Audio Ambition  Selecting Top 6 Free Downloader Apps From YouTube Vaults for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-transcribers-for-youtube-clips/"><u>Elite Transcribers for YouTube Clips</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/focused-communication-tips-for-virtual-teams/"><u>Focused Communication Tips for Virtual Teams</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/how-to-permanently-delete-files-and-folders-using-proven-algorithms/"><u>How to Permanently Delete Files and Folders Using Proven Algorithms</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-poco-c55-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Poco C55</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-perfectly-merged-clips-the-power-of-blending-modes/"><u>In 2024, Perfectly Merged Clips  The Power of Blending Modes</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-samsung-galaxy-f04-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Samsung Galaxy F04 Phone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-twitch-vs-youtube-a-complete-comparison/"><u>In 2024, Twitch Vs. Youtube – A Complete Comparison</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-the-easy-ways-to-turn-your-watching-experience-on-youtube-into-a-screencast-without-money/"><u>Learn the Easy Ways to Turn Your Watching Experience on YouTube Into a Screencast Without Money</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/mastering-ui-bugs-how-to-fix-failed-renderer-startups-after-applying-new-patches/"><u>Mastering UI Bugs: How to Fix Failed Renderer Startups After Applying New Patches</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/0-audio-disruptors-androidios-edition-for-2024/"><u>Top 10 Audio Disruptors  Android/iOS Edition for 2024</u></a></li>
+</ul></div>

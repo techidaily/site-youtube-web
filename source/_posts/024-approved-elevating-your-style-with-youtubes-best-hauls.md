@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Elevating Your Style with YouTube's Best Hauls\""
-date: 2024-07-13T05:25:50.487Z
-updated: 2024-07-14T05:25:50.487Z
+date: 2024-08-23T02:27:32.914Z
+updated: 2024-08-24T02:27:32.914Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,9 @@ Another way you could find a niche is by taking on a specific area of interest, 
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ## **Types of Beauty Videos – Your Content Strategy**
 
 It’s a lot easier to come up with weekly video ideas when you have an overarching strategy.
@@ -141,6 +144,9 @@ You might want to experiment with sitting at different distances to see how the 
 
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
 **_Step 4:_** Adjust your camera’s focus so your picture is clear. You may need to set up a lamp, chair, or stuffed animal as a stand-in for yourself while you stand behind the camera adjusting the focus.
@@ -153,6 +159,9 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
@@ -197,6 +206,10 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -215,6 +228,9 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -252,6 +268,10 @@ Before you start recording your makeup tutorial there are a few things you shoul
  4. **_Do a video test._** Before you start your video for real, start recording and shoot some test footage. Watch that back to make sure you like the look of your frame, your face is never blurry, and you’re happy with the overall look of things.
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – Recording**
 
 Here are some things to keep in mind while you record your makeup tutorial:
@@ -261,6 +281,10 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -302,3 +326,40 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-capturing-moments-top-webcams-for-pcs-in-windows-for-2024/"><u>[New] Capturing Moments  Top Webcams for PCs in Windows for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/levate-your-content-with-these-top-5-youtube-marketing-methods/"><u>[New] Elevate Your Content with These Top 5 YouTube Marketing Methods</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlightenment-in-education-top-10-history-youtube-channels-for-2024/"><u>[New] Enlightenment in Education  Top 10 History YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-gearing-up-for-a-leisurely-view-three-methods-to-tame-video-speed-on-youtube-60-chars-minor-exception-due-to-title-length-but-offers-comprehensi/"><u>[New] In 2024, Gearing Up for a Leisurely View  Three Methods to Tame Video Speed on YouTube (60 Chars, Minor Exception Due to Title Length but Offers Comprehensive Insight)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-how-to-gauge-if-an-mcn-is-right-for-your-youtube-journey/"><u>[New] In 2024, How to Gauge if an MCN Is Right for Your YouTube Journey</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aster-crafters-fusing-visual-and-acoustic-art-for-2024/"><u>[New] Master Crafters Fusing Visual & Acoustic Art for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/erfect-recording-tool-for-exceptional-youtube-videos/"><u>[New] Perfect Recording Tool  For Exceptional YouTube Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-unleashing-full-potential-nikon-1j5-in-4k-videography/"><u>[New] Unleashing Full Potential  Nikon 1J5 in 4K Videography</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-8-best-wedding-videos-on-youtube-and-vimeo/"><u>[Updated] 2024 Approved  8 Best Wedding Videos on YouTube and Vimeo</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-how-to-remove-background-noise-from-your-youtube-video/"><u>[Updated] 2024 Approved  How To Remove Background Noise From Your Youtube Video</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unveiling-techniques-for-targeted-youtube-video-download/"><u>[Updated] 2024 Approved  Unveiling Techniques for Targeted YouTube Video Download</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-5-innovative-youtube-thumbnail-designers-for-aspiring-filmmakers-for-2024/"><u>[Updated] 5 Innovative YouTube Thumbnail Designers for Aspiring Filmmakers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-breaking-through-boundaries-optimizing-videos-for-maximum-traction/"><u>[Updated] Breaking Through Boundaries  Optimizing Videos for Maximum Traction</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-essential-information-for-choosing-the-best-video-platform/"><u>[Updated] Essential Information for Choosing the Best Video Platform</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-dreamer-to-doer-sign-up-for-a-youtube-channel/"><u>[Updated] From Dreamer To Doer  Sign Up for a YouTube Channel</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-mini-stories-decoded-whats-inside/"><u>[Updated] Mini Stories Decoded  What's Inside?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-2-ways-to-increase-your-youtube-audience-fast/"><u>2024 Approved  2 Ways to Increase Your YouTube Audience Fast</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-debugging-techniques-identifying-and-resolving-common-javascript-errors/"><u>2024 Approved  Debugging Techniques  Identifying and Resolving Common JavaScript Errors</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-advice-for-xbox-one-zooming-pros/"><u>2024 Approved  Expert Advice for Xbox One Zooming Pros</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-turn-onoff-youtube-feedback-settings-with-this-guide/"><u>2024 Approved  Turn On/Off YouTube Feedback Settings With This Guide</u></a></li>
+<li><a href="https://location-fake.techidaily.com/8-solutions-to-fix-find-my-friends-location-not-available-on-xiaomi-redmi-note-12-4g-drfone-by-drfone-virtual-android/"><u>8 Solutions to Fix Find My Friends Location Not Available On Xiaomi Redmi Note 12 4G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/budget-friendly-action-cam-selections-affordable-options-under-100/"><u>Budget-Friendly Action Cam Selections  Affordable Options Under $100</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/al-makeup-mastering-youtubes-chromatic-alignment/"><u>Digital Makeup  Mastering Youtube's Chromatic Alignment</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/se-titans-the-10-most-subscribed-youtube-creators/"><u>Fanbase Titans  The 10 Most Subscribed YouTube Creators</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-direct-encouraging-content-for-daily-living-vids-for-2024/"><u>How to Direct Encouraging Content for Daily Living Vids for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-average-profit-per-million-youtube-viewers/"><u>In 2024, Average Profit per Million YouTube Viewers</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-vivo-s17t-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Vivo S17t</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-realme-narzo-n55-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Realme Narzo N55 Phones with/without a PC</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/in-2024-the-complete-compilation-top-10-editors-to-shape-high-quality-podcasts-including-both-free-and-premium-choices/"><u>In 2024, The Complete Compilation Top 10 Editors to Shape High-Quality Podcasts, Including Both Free and Premium Choices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-unlocking-youtube-potential-with-best-thumbnail-dimensions/"><u>In 2024, Unlocking YouTube Potential with Best Thumbnail Dimensions</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unzip-the-scripts-crafting-subtitles-from-compressed-files/"><u>In 2024, Unzip the Scripts  Crafting Subtitles From Compressed Files</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tarting-creativity-an-equipment-guide-for-beginners/"><u>Kickstarting Creativity  An Equipment Guide for Beginners</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-honor-100-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Honor 100 | Dr.fone</u></a></li>
+</ul></div>
