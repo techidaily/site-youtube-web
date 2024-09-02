@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How To Add Custom Thumbnails to Your YouTube Videos"
-date: 2024-07-13T05:05:53.419Z
-updated: 2024-07-14T05:05:53.419Z
+date: 2024-09-01T11:53:37.881Z
+updated: 2024-09-02T11:53:37.881Z
 tags:
   - ai video
   - ai youtube
@@ -79,6 +79,9 @@ Check this video tutorial to see how to Make a Youtube Thumbnail using Canva.
 
 Check this video tutorial to see how to make professional Thumbnails for YouTube Videos with Gimp:
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Part 3: How to Change A Thumbnail On YouTube
 
 Note: YouTube allows verified YouTube accounts (accounts that provided YouTube with a working phone number) to upload custom thumbnail images and change them accordingly.
@@ -93,6 +96,9 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 ![Change YouTube Video Info](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-from-video-details.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 * Find the Thumbnail section in the basic video details tab, and then click the **Upload thumbnail** to select the image that you want to upload.
 * Finally, click on the **Save** button on the right upper corner. And just like that, in seven easy steps, we’re done changing the thumbnail of a YouTube video.
 
@@ -100,6 +106,9 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 If you don't have an image to upload but you want to check out some online resources to make your own, check out our [Top YouTube Thumbnail Makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4: Things You Need to Know Before Making a Custom Thumbnail
 
 * About the proper YouTube video thumbnail size: Your thumbnail should be 1280x720 pixels in size and be less than 2MB. The minimum width of the image is 640 pixels.
@@ -117,6 +126,9 @@ To make a creative YouTube video, you may also need a powerful video editing sof
 
 You may also like: [Best video editing software for YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 5: Tips on How to Make Good YouTube Thumbnails - Get More Clicks
 
 The thumbnails of your videos play a huge role in convincing people to watch them; a good YouTube thumbnail will get you more views and more potential subscribers. This part will give you 6 tips on creating thumbnails that help grow your channel. Now let's learn how to make thumbnails using [Wondershare PixStudio.](https://tools.techidaily.com/wondershare/fotophire/download/)
@@ -129,6 +141,9 @@ Very few people intentionally use thumbnails that have nothing to do with the co
 
 ![YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 _This thumbnail had better be for a kitten’s iPhone review video or people will click away. Fast._
 
 A mistake a lot of creators do make is creating a thumbnail that is meant to evoke an emotion which the video itself does not justify. For example, if you see a picture of a YouTuber looking nervous alongside text that reads ‘My Secret’, you will think they are going to share something deeply personal. You will be curious, and you may even be worried about them. You’ll probably click. Then, if their secret is that they don’t like pineapple on pizza, you’ll probably be angry. This technique gets clicks, but not a lot of watch time and it will lose you subs in the long run.
@@ -143,6 +158,10 @@ Sometimes big channels can get away with stuff like this, because large portions
 
 ![YouTube Thumbnail:  Don’t Be Mysterious](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 _If this came up in a search for ‘smoky eye tutorial’, would you click it?_
 
 When people want answers, they want to feel confident that they video they click on will have those answers. If you have great content, then let people know it!
@@ -173,6 +192,9 @@ Beyond simply using colors that are different from other people’s colors, you 
 
 ![YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<!-- affiliate ads end -->
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
 
 #### 6. Make Your Text Huge
@@ -226,3 +248,36 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/oosting-yield-strategies-for-successful-money-making-on-mobile-youtube-for-2024/"><u>[New] Boosting Yield  Strategies for Successful Money-Making on Mobile YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/asy-effective-strategy-immediate-clearance-of-unwanted-youtube-comments-for-2024/"><u>[New] Easy, Effective Strategy  Immediate Clearance of Unwanted YouTube Comments for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-gain-massive-viewership-with-a-small-financial-investment-for-2024/"><u>[New] Gain Massive Viewership with a Small Financial Investment for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-masterchefs-visual-guide-filming-kitchen-escapades/"><u>[New] In 2024, MasterChef's Visual Guide  Filming Kitchen Escapades</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/creencast-pro-efficient-recording-macpc-upload-to-youtube/"><u>[New] ScreenCast Pro  Efficient Recording, Mac/PC Upload to YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tep-by-step-wirecast-livestream-on-youtube-for-2024/"><u>[New] Step-by-Step  WireCast Livestream on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-seamless-video-transfer-from-youtube-to-instagram/"><u>[Updated] 2024 Approved  Seamless Video Transfer From YouTube to Instagram</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-avoidance-manual-how-to-skip-edgenuity-courses-without-penalty/"><u>[Updated] Avoidance Manual  How to Skip Edgenuity Courses Without Penalty</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-space-to-nature-yts-guide-for-dynamic-green-screen-filmmaking-for-2024/"><u>[Updated] From Space to Nature  YT's Guide for Dynamic Green Screen Filmmaking for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-audible-savings-the-essential-guide-to-using-these-24-no-cost-splitters-on-youtube/"><u>[Updated] In 2024, Audible Savings  The Essential Guide to Using These 24 No-Cost Splitters on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-rise-of-the-alternative-top-3-video-sharing-websites/"><u>[Updated] In 2024, Rise of the Alternative  Top 3 Video Sharing Websites</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-insightful-ways-to-monitor-youtube-viewership-trends/"><u>[Updated] Insightful Ways to Monitor YouTube Viewership Trends</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-savory-sensations-top-youtube-food-influencers-for-2024/"><u>[Updated] Savory Sensations  Top YouTube Food Influencers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-silencing-the-spotlight-avoiding-vloggers-fears/"><u>[Updated] Silencing the Spotlight  Avoiding Vlogger's Fears</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/pert-suggestions-to-make-your-yt-shorts-stand-out-for-2024/"><u>10 Expert Suggestions to Make Your YT Shorts Stand Out for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-edit-with-ease-10-video-to-mp3-tools-of-the-trade/"><u>2024 Approved  Edit with Ease  #10 Video-to-Mp3 Tools of the Trade</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-excellent-video-and-picture-capture-for-iphones-and-androids-here/"><u>2024 Approved  Excellent Video & Picture Capture for iPhones & Androids Here!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-instantaneous-fortnite-tile-design-guide/"><u>2024 Approved  Instantaneous Fortnite Tile Design Guide</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/3-methods-to-mirror-vivo-t2-pro-5g-to-roku-drfone-by-drfone-android/"><u>3 Methods to Mirror Vivo T2 Pro 5G to Roku | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/zing-tseries-earnings-via-youtube-engagement/"><u>Analyzing TSeries Earnings via YouTube Engagement</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/college-lounge-makeover-constructing-an-affordable-home-theater-with-no-wires-needed/"><u>College Lounge Makeover: Constructing an Affordable Home Theater with No Wires Needed</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/counteracting-bot-influence-for-higher-traffic-for-2024/"><u>Counteracting Bot Influence for Higher Traffic for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nt-lighting-infrastructure-for-2024/"><u>Current Lighting Infrastructure for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/extra-your-guide-to-joining-the-youtube-premium-club/"><u>Earn Extra  Your Guide to Joining the YouTube Premium Club</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-install-the-latest-iosipados-beta-version-on-iphone-8-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS/iPadOS Beta Version on iPhone 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-use-ping-command-to-check-internet-connection/"><u>How to Use Ping Command to Check Internet Connection</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-infinix-note-30-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Infinix Note 30 5G Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/navigating-and-understanding-how-to-use-imessage-on-your-computer/"><u>Navigating and Understanding How to Use iMessage on Your Computer</u></a></li>
+<li><a href="https://driver-error.techidaily.com/navigating-connectivity-issues-lenovo-and-windows-10/"><u>Navigating Connectivity Issues: Lenovo & Windows 10</u></a></li>
+</ul></div>

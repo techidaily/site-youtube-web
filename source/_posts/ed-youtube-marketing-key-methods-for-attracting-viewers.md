@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube Marketing  Key Methods for Attracting Viewers\""
-date: 2024-07-13T05:10:50.816Z
-updated: 2024-07-14T05:10:50.816Z
+date: 2024-09-01T11:47:35.121Z
+updated: 2024-09-02T11:47:35.121Z
 tags:
   - ai video
   - ai youtube
@@ -64,6 +64,9 @@ In order to consistently draw viewers back your page and get the most out of you
 
 Before you turn your camera on and start making a new video, ask yourself what value you want your viewers to take away from it. Will they come away from your video with knowledge, a new skill, or a feeling of amusement? Be sure to have a clear objective in mind with every video.
 
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 3\. Ask Viewers to Subscribe with a 'CTA'
 
 Asking viewers to do anything (like, subscribe, etc.) is called a CTA, or ‘[call to action](https://tools.techidaily.com/wondershare/filmora/download/)’. Asking for subscribers is a call to action that needs to be included in every video.
@@ -84,6 +87,9 @@ Sharing your goals helps your community feel more engaged and like they are a bi
 
  _Contest now closed._
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ## 6\. Find a Niche for Your Videos
 
 Many creators on YouTube have found success by carving out very specific video types and [niches](https://www.filmora.io/community-blog/how-to-find-your-niche-on-youtube-%E2%80%93-what%E2%80%99s-the-280.html) for themselves. When you are hoping to grow your subscribers on YouTube you really need to find your niche. When you can start to create videos that have predictable subject matter (predictable in the sense of ‘reliable’, not boring), this will attract more regular viewers because people will know what they can expect from your content. Having a niche can also help you find brand deals because you’ll grow a very specific audience that might be interested in very specific products. A smaller, targeted, the audience can be more valuable to an advertiser than a larger, more general, audience.
@@ -100,6 +106,9 @@ Having a strong, unique, the brand will make viewers feel more attached to you a
 
 To differentiate yourself from your competition you're going to need to have [custom Channel Art](https://www.filmora.io/community-blog/how-to-design-your-youtube-channel-art-2-ways-230.html) that reflects the vibe of your content. Work at creating or sourcing some graphics for your cover photo, your profile photo, and all of your thumbnails. Having a set color scheme or even a branded style of artwork for your page will help you to look more professional. Differentiating your page from others will create a feeling of familiarity and support your brand.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 9\. Practice Makes Perfect
 
 In order to start producing more professional content, you need to practice your filmmaking technique. Regardless of the type of video that you are producing, a little bit of practice goes a long way.
@@ -108,12 +117,18 @@ Rehearsing what you are going to say can make you feel much more confident. Play
 
 Simply making more videos is a great way to get in more practice.
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 10\. Add a YouTube Intro Video
 
 A professional-looking intro clip ([learn how to make one here](https://tools.techidaily.com/wondershare/filmora/download/)) supports your brand and makes your videos seem more polished. Intros capture attention and let viewers know the type of video that they are watching almost immediately. Building a 5-10 second introduction (no longer) with your name or the name of your channel will go a long way to improving the professionalism of your video.
 
  _Contest now closed._
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 11\. Use Video Effects and Transitions
 
 Adding transitions between clips or topics is a great way to keep viewers engaged with your videos.
@@ -126,12 +141,18 @@ It can take some time to [add these kinds of effects to your videos](https://www
 
 A thumbnail that grabs a viewer’s attention will get more clicks. Take a photo of yourself making an expression relevant to your video and edit the image in Photoshop or using a free service like Canva ([or one of these other YouTube thumbnail makers](https://www.filmora.io/community-blog/top-10-youtube-thumbnail-makers---easy-to-use%21-312.html)). Add graphics, like emojis, to give your thumbnail a pop of color and include large, simple, text if you feel like your thumbnail needs to be given context (i.e. ‘fall makeup look’, as opposed to just another makeup video).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## 13\. Use Lots of YouTube Tags
 
 Tags are essential to helping people actually find your videos on YouTube. [Tags should include keywords/search terms](https://www.filmora.io/community-blog/4-steps-to-rank-higher-in-youtube%E2%80%99s-search-results-277.html) people might be looking up in order to find videos like yours. Looking at the tags of some of your past videos and seeing how well they performed will give you an idea of what kinds of tags you should target in the future. Looking at the tags of some of your competitors will give you an idea of what tags you should be using for your own videos.
 
 Services like the Google Keyword Planner can also help you with finding new keywords/tags. Making your tags with search engine optimization in mind will help ensure that people can find your video when searching for those specific keywords. YouTube has an algorithm very similar to the Google search engine for helping people locate videos they may be interested in.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 14\. Use YouTube Playlists to Increase Watch Time
 
 [Playlists are great for increasing your channel’s watch time](https://www.filmora.io/community-blog/creating-and-managing-youtube-playlists-88.html), an essential metric for ranking in YouTube’s search results. If someone enjoys your video enough to watch to the end, and then a related video starts to play right after, it's much more likely that the user is going to stick around and view the second video. When you start to link videos together you will start to see your views grow.
@@ -144,6 +165,9 @@ Improving engagement as well as the notoriety of your brand often means branchin
 
  _Contest now closed._
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 16\. Interact with your Viewers
 
 Spending time [interacting with your viewers](https://www.filmora.io/community-blog/how-to-build-a-youtube-audience-283.html) via comments and social media is important. Taking suggestions and paying attention to what your viewers like most about your videos will make your viewers feel more included in the process of creating your videos. This will make them much more loyal to your channel. A great way to interact with your viewers is by doing shout outs or Q&A videos.
@@ -158,10 +182,16 @@ When you [collaborate with other YouTube creators](https://www.filmora.io/commun
 
 Make sure your potential partner makes the kinds of videos your own audience would like. Then you’ll know that your videos are something your partner’s audience will like.
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 19\. Write a Detailed Description for Every Video
 
 The description box is one of the most commonly underutilized tools on YouTube. Make sure that you use the space to write a full description of each video. In the first three lines of every video description, use the keywords most relevant to your content, provide links to your other social media accounts, and ask viewers to subscribe. Lower down in your description, under the ‘read more’ tab, write a detailed summary of your video. This will improve your SEO/search engine optimization.
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 20\. Use Keywords That Are Searchable
 
 In your titles, descriptions, and tags you need to use the words or phrases that viewers are most likely to type into YouTube’s search bar when looking for content like yours. Doing a bit of keyword research will help you gain more subscribers on YouTube and more viewers on almost every video.
@@ -174,6 +204,9 @@ For example, if you do a product review of a new smartphone, you will get a lot 
 
 The thumbnails that you choose for your videos can be an extension of your brand. By using similar layouts, colors, and fonts for every thumbnail you will [create a familiar look](https://www.filmora.io/community-blog/how-to-make-video-thumbnails-for-youtube-288.html) and viewers will recognize your videos when they see them. If someone can instantly recognize your video thumbnails it will strengthen your brand and encourage repeat viewership.
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
 ## 22\. Always Have a Plan for Your Videos
 
 If you can plan out a script or outline (whichever you’re comfortable with) for your video, or even plan out a series of videos that you could shoot over time, it can lead to far better content. Taking the time to create a plan for every single video will lead to much more polished results that will generate far better responses from your viewers. Planning takes time, but not as much time as trying to edit the content that had no clear plan.
@@ -221,3 +254,44 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-integrating-twitter-and-facebook-with-ease/"><u>[New] 2024 Approved  Integrating Twitter and Facebook with Ease</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/elving-into-youtubes-complex-calculation-of-viewer-stats/"><u>[New] Delving Into YouTube's Complex Calculation of Viewer Stats</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-ideas-on-improving-gopros-energy-management-for-2024/"><u>[New] Ideas on Improving GoPro's Energy Management for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-a-20-second-symphony-understanding-musics-compact-formats/"><u>[New] In 2024, A 20-Second Symphony  Understanding Music's Compact Formats</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-chilly-competition-unveiling-highlights-of-2022s-snowboard-cross-showdown/"><u>[New] In 2024, Chilly Competition  Unveiling Highlights of 2022'S Snowboard Cross Showdown</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-decoding-youtubes-top-mp3-conversion-apps/"><u>[New] In 2024, Decoding YouTube's Top MP3 Conversion Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-artisans-approach-to-crafting-channel-identities/"><u>[New] In 2024, The Artisan's Approach to Crafting Channel Identities</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/asterclass-in-glamour-beauty-tutorials-for-all/"><u>[New] Masterclass in Glamour  Beauty Tutorials for All</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ersonal-creation-goals-selecting-between-tiktok-and-youtube-shorts/"><u>[New] Personal Creation Goals  Selecting Between TikTok and YouTube Shorts</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-step-by-step-guide-find-your-own-tiktok-stream-key/"><u>[Updated] [Step-by-Step Guide] Find Your Own TikTok Stream Key</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-channel-elevation-strategy-quickly-reach-your-10k-view-quota/"><u>[Updated] 2024 Approved  Channel Elevation Strategy – Quickly Reach Your 10K View Quota</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-essential-steps-to-utilizing-azures-speech-to-text-service-effectively/"><u>[Updated] 2024 Approved  Essential Steps to Utilizing Azure's Speech-to-Text Service Effectively</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024s-streaming-surge-gamers-and-money-flow/"><u>[Updated] 2024'S Streaming Surge  Gamers and Money Flow</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-clearing-up-confusion-understanding-digital-rights-management-drm-for-2024/"><u>[Updated] Clearing Up Confusion  Understanding Digital Rights Management (DRM) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-examining-youtubers-monthly-revenue-strategies/"><u>[Updated] Examining YouTubers' Monthly Revenue Strategies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-engage-more-dissuade-less-top-6-ways-to-increase-watch-time-and-stayers/"><u>[Updated] In 2024, Engage More, Dissuade Less  Top 6 Ways to Increase Watch Time and Stayers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-from-conference-call-to-online-showcase-google-meet-on-youtube/"><u>[Updated] In 2024, From Conference Call to Online Showcase  Google Meet on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-how-to-find-youtube-collaboration-partners/"><u>[Updated] In 2024, How to Find YouTube Collaboration Partners?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-vrs-best-immersion-top-ten-titles/"><u>[Updated] In 2024, VR's Best Immersion  Top Ten Titles</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-the-best-bargains-in-drone-tech-for-under-100/"><u>[Updated] The Best Bargains in Drone Tech for Under $100</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/el-your-creativity-convert-youtube-clips-into-dynamic-gifs/"><u>Channel Your Creativity  Convert YouTube Clips Into Dynamic Gifs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/audio-extraction-methods-from-online-videos-for-2024/"><u>Easy Audio Extraction Methods From Online Videos for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/elite-performance-meets-luxury-design-comprehensive-review-of-the-gigabyte-aorus-fo32u2p-oled-monitor-for-gamers/"><u>Elite Performance Meets Luxury Design: Comprehensive Review of the Gigabyte AORUS FO32U2P OLED Monitor for Gamers</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/exploring-cutting-edge-technology-with-toms-hardware-hub/"><u>Exploring Cutting-Edge Technology with Tom's Hardware Hub</u></a></li>
+<li><a href="https://win11.techidaily.com/guide-accessing-and-opening-verifier-manager-w11/"><u>Guide: Accessing and Opening Verifier Manager W11</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-hit-the-bottom-finding-your-best-free-youtube-downloader-app-on-android/"><u>In 2024, Hit the Bottom - Finding Your Best Free YouTube Downloader App on Android</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-unveiling-the-reasons-behind-missing-shorts-thumbnails/"><u>In 2024, Unveiling the Reasons Behind Missing Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-what-drives-youtubes-content-creator-hub/"><u>In 2024, What Drives YouTube's Content Creator Hub?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-itel-a05s-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Itel A05s? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/maximizing-screen-recording-on-xbox-for-gamers-success/"><u>Maximizing Screen Recording on Xbox for Gamers' Success</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/asts-monetary-milestones-for-2024/"><u>Mr. Beast’s Monetary Milestones for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-2024-approved-what-is-the-best-program-to-use-to-make-a-highlight-video-in-this-article-i-will-share-some-of-the-best-highlight-video-makers-for-both-de/"><u>New 2024 Approved What Is the Best Program to Use to Make a Highlight Video? In This Article, I Will Share some of the Best Highlight Video Makers for Both Desktop Computers and Mobile Phones</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/towards-a-millennium-of-channel-supporters-for-2024/"><u>Rush Towards a Millennium of Channel Supporters for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/shadowless-shots-overcoming-challenges-with-light-techniques-for-2024/"><u>Shadowless Shots  Overcoming Challenges with Light Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/m-titling-service-for-2024/"><u>Stream Titling Service for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-complete-snapchat-gif-connoisseurs-guidebook/"><u>The Complete Snapchat GIF Connoisseur's Guidebook</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-tecno-spark-20-pro-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Tecno Spark 20 Pro Android SIM Unlock APK</u></a></li>
+</ul></div>

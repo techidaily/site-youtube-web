@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Finding YT Comments  Tips for Desktop, iPhone, Android Users\""
-date: 2024-07-13T05:07:06.059Z
-updated: 2024-07-14T05:07:06.059Z
+date: 2024-09-01T11:51:07.966Z
+updated: 2024-09-02T11:51:07.966Z
 tags:
   - ai video
   - ai youtube
@@ -111,12 +111,22 @@ Open your favorite Internet browser, go to <https://www.youtube.com>, and sign i
 
 ![Access  YouTube Your videos Page](https://images.wondershare.com/filmora/article-images/youtube-your-videos-menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 **Step 2: View the Comments**
 
 Make sure that the **Uploads** tab is selected on the **Channel content** window, and check the number under the **Comments** column of each video to see how many comments that particular film has received. You can click the number for any video to view its comments.
 
 ![Find  YouTube Comments List](https://images.wondershare.com/filmora/article-images/find-youtube-video-comments-list.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 **Step 3: Hide or Hold a Comment for Approval**
 
 Click the **More** icon from the right of the comment you want to moderate, and click **Hide user from channel** or **Always approve comments from this user** to hide the comments from the selected user or keep their comments on hold until you review and approve them respectively.
@@ -125,6 +135,9 @@ Click the **More** icon from the right of the comment you want to moderate, and 
 
 Note: To view all comments received on your YouTube channel, go to the Comments tab under YouTube Studio, and you will find all Channel comments & mentions.
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
+<!-- affiliate ads end -->
 ### 2\. Find Your Channel’s YouTube Comments on a Mobile App
 
 This process is comparatively simpler than the previous one as all that you need to do is download the YT Studio app, and access a central location where all the comments for all the videos can be viewed. The process is given below:
@@ -145,6 +158,9 @@ Tap the **More** button from the right of an inappropriate comment, and tap **Hi
 
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/find-youtube-channel-comments-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Find Someone’s YouTube Comments by User Name
 
 If any of your YouTube videos has thousands of comments and you need to find a particular one from a specific user, checking each remark manually would be an extremely time-consuming and tedious task. Therefore, it is a good idea to let an efficient application do the job for you.
@@ -161,12 +177,32 @@ Go to your or any other’s YouTube video, and click **Load All** from the top-r
 
 ![Find  YouTube Comments mobile](https://images.wondershare.com/filmora/article-images/load-all-comments-with-youtube-comment-search-extension.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
 **Step 3: Search Comments from a Particular User**
 
 Choose **Comments** from the search type drop-down list, enter the name of the user in question in the **Search** box, and click **Search** to fetch all their comments on the video.
 
 ![Serach  YouTube Comments of specific users](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
+VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
+
+Key features:
+
+•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
+•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
+•	Visual effects, advanced color correction and trendy Instagram-like filters   
+•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
+•	Non-linear editing: edit several files with simultaneously 
+•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
+•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
+•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
+•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
+</a>
+<!-- affiliate ads end -->
 ## Part 4: How to Edit and Reply to YouTube Comments?
 
 Editing an existing YouTube comment that you have posted earlier, or replying to the one published by someone else is simple. The process is given below:
@@ -181,6 +217,10 @@ Locate the comment that you want to reply to, click **REPLY** from under the com
 
 ![Reply  YouTube Comments](https://images.wondershare.com/filmora/article-images/reply-youtube-comments.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## Part 5: How to Moderate YouTube Comments?
 
 If you publish videos on YouTube that may put some impact on people’s lifestyle, you are likely to face criticism quite often. Therefore, you might want to moderate all your comments before they become visible to the audience so as not to spread negativity among the mass. Fortunately, YouTube helps you get this done easily, and the instructions that teach you the process are given below:
@@ -197,6 +237,13 @@ Go to the **Community** category from the left pane, and go to the **Defaults** 
 
 ![set  YouTube Community Comments moderation](https://images.wondershare.com/filmora/article-images/set-up-youtube-community-comments-moderaiton.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<a href="https://shop.manycam.com/order/checkout.php?PRODS=17727588&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/Affiliates_300x250px_valentinesday.png" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 6: Tips for Writing Good YouTube Comments
 
 While posting a comment on a YouTube video, it is imperative to keep a few things in mind. Some important tips that might come in handy in this regard are suggested below:
@@ -221,6 +268,9 @@ In such a case, you are advised to wait for the authorized person to approve you
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -246,3 +296,60 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-premiere-mkv-player-suite-pcmobile/"><u>[New] 2024 Approved  Premiere MKV Player Suite (PC/Mobile)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/levate-your-content-with-these-10-reaction-wonders-for-2024/"><u>[New] Elevate Your Content with These 10 Reaction Wonders for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/xplore-sites-where-you-can-procure-youtube-affiliate-partnerships/"><u>[New] Explore Sites Where You Can Procure Youtube Affiliate Partnerships</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-free-enterprise-templates-with-dynamic-ideas-for-slideshows/"><u>[New] Free Enterprise Templates with Dynamic Ideas for Slideshows</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-achieving-financial-freedom-joshis-youtube-tactics/"><u>[New] In 2024, Achieving Financial Freedom  Joshi’s YouTube Tactics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-core-kit-video-equipment-every-creator-needs/"><u>[New] In 2024, The Core Kit  Video Equipment Every Creator Needs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/apidly-enhance-your-content-reach-with-simple-steps/"><u>[New] Rapidly Enhance Your Content Reach with Simple Steps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eamless-youtube-editing-the-ultimate-finalcut-pro-guidebook/"><u>[New] Seamless YouTube Editing  The Ultimate FinalCut Pro Guidebook</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-stable-shooting-ideal-gimbals-and-handhelds-reviewed-for-2024/"><u>[New] Stable Shooting  Ideal Gimbals & Handhelds Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nleash-your-potential-skyrocketing-youtube-audience/"><u>[New] Unleash Your Potential  Skyrocketing YouTube Audience</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/our-music-masterpiece-awaits-step-by-step-to-youtube-playlist-perfection-webmobile-for-2024/"><u>[New] Your Music Masterpiece Awaits  Step-by-Step to YouTube Playlist Perfection (Web/Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-gauging-glory-an-essential-handbook-for-evaluating-youtube-engagement-and-earnings/"><u>[Updated] 2024 Approved  Gauging Glory  An Essential Handbook for Evaluating YouTube Engagement & Earnings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-mastering-youtube-creation-standard-studio-or-innovative-beta/"><u>[Updated] 2024 Approved  Mastering YouTube Creation  Standard Studio or Innovative Beta</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-ultimate-guide-to-making-engaging-youtube-video-thumbnails-with-phones/"><u>[Updated] 2024 Approved  The Ultimate Guide to Making Engaging YouTube Video Thumbnails with Phones</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-youtube-marketing-key-methods-for-attracting-viewers/"><u>[Updated] 2024 Approved  YouTube Marketing  Key Methods for Attracting Viewers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-7-comedy-youtube-video-ideas-that-only-funny-people-are-allowed-to-try/"><u>[Updated] 7 Comedy YouTube Video Ideas That Only Funny People Are Allowed to Try</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-elevate-your-freefire-presence-with-top-tips-and-tricks/"><u>[Updated] Elevate Your FreeFire Presence with Top Tips and Tricks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-enhance-your-channels-image-adding-watermarks-and-logos-to-video-posts/"><u>[Updated] In 2024, Enhance Your Channel's Image  Adding Watermarks & Logos to Video Posts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-hacking-youtube-success-peak-audience-engagement-timing/"><u>[Updated] In 2024, Hacking YouTube Success  Peak Audience Engagement Timing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ultimate-guide-to-channel-growth-5-must-try-video-marketing-tactics/"><u>[Updated] In 2024, The Ultimate Guide to Channel Growth  5 Must-Try Video Marketing Tactics</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-top-humor-image-tinkerer/"><u>[Updated] In 2024, Top Humor Image Tinkerer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-transforming-youtube-sounds-into-high-quality-wav-files/"><u>[Updated] In 2024, Transforming YouTube Sounds Into High-Quality WAV Files</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-webs-winners-circle-worlds-most-subscribed-youtubers/"><u>[Updated] In 2024, Web's Winners Circle  World's Most Subscribed YouTubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-versus-dailymention-identifying-key-gaps/"><u>[Updated] In 2024, YouTube Versus DailyMention  Identifying Key Gaps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-prime-recommendations-downloading-video-intros-and-templates/"><u>[Updated] Prime Recommendations  Downloading Video Intros & Templates</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-sportscasting-your-pathway-to-highlight-videos/"><u>[Updated] Sportscasting  Your Pathway to Highlight Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-capturing-ios-device-screen-on-video/"><u>[Updated] Step-by-Step  Capturing iOS Device Screen on Video</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-strategies-for-maximizing-video-impact-while-staying-in-cc-zone-for-2024/"><u>[Updated] Strategies for Maximizing Video Impact While Staying in CC Zone for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/10-proven-methods-for-restoring-iphone-cellular-internet-service/"><u>10 Proven Methods for Restoring iPhone Cellular Internet Service</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-essential-10-boosters-for-multi-device-use/"><u>2024 Approved  Essential 10 Boosters for Multi-Device Use</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-learning-to-utilize-burst-mode-for-high-speed-photography/"><u>2024 Approved  Learning to Utilize Burst Mode for High-Speed Photography</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-profitable-video-content-starting-and-scaling-up/"><u>2024 Approved  Profitable Video Content  Starting and Scaling Up</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/zing-youtube-shorts-economic-impact-for-2024/"><u>Analyzing YouTube Shorts Economic Impact for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/calls-on-motorola-g24-power-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Motorola G24 Power Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ss-forward-6-video-concepts-to-energize-your-online-community/"><u>Fitness Forward  6 Video Concepts to Energize Your Online Community</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/fps-titans-ranking-gamings-elite-shooters-for-2024/"><u>FPS Titans  Ranking Gaming's Elite Shooters for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oven-to-screen-cooking-videos-unveiled/"><u>From Oven to Screen  Cooking Videos Unveiled</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-from-apple-iphone-xs-max-by-drfone-ios/"><u>How to Bypass iCloud Lock from Apple iPhone XS Max</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/how-to-record-steam-gameplay/"><u>How to Record Steam Gameplay</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/hytechs-thicc-q60-240mm-air-cooler-evaluation-top-silent-and-powerful-aio-selection/"><u>Hytech's Thicc Q60-240mm Air Cooler Evaluation: Top Silent & Powerful AIO Selection</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-from-live-demos-to-online-sharing-mastering-idevice-screenshots-for-video-content/"><u>In 2024, From Live Demos to Online Sharing  Mastering iDevice Screenshots for Video Content</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlink-apple-id-from-iphone-14-plus-by-drfone-ios/"><u>In 2024, How To Unlink Apple ID From iPhone 14 Plus</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-perfect-your-asmr-recordings-with-these-mic-choices/"><u>In 2024, Perfect Your ASMR Recordings with These Mic Choices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-remove-inconvenient-black-edges-from-youtube-videos/"><u>In 2024, Remove Inconvenient Black Edges From YouTube Videos</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-speedy-pc-file-examination-guide/"><u>In 2024, Speedy PC File Examination Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-thrill-town-10-similar-video-games-to-gta-v/"><u>In 2024, Thrill Town  10 Similar Video Games To GTA V</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unveil-8-reliable-video-promotion-services/"><u>In 2024, Unveil 8 Reliable Video Promotion Services</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-nvidia-geforce-210-driver-upgrade-for-windows-11-systems/"><u>Latest NVIDIA GeForce 210 Driver Upgrade for Windows 11 Systems</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-youtube-music-blends-for-2024/"><u>Mastering YouTube Music Blends for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ct-cuts-on-demand-top-10-apps-for-youtube-short-edits/"><u>Perfect Cuts on Demand  Top 10 Apps for Youtube Short Edits</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/step-by-step-guide-correcting-hp-beats-audio-drivers-in-windows-1087/"><u>Step-by-Step Guide: Correcting HP Beats Audio Drivers in Windows 10/8/7</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/the-ultimate-guide-to-boosting-views-on-tiktok-unboxings-for-2024/"><u>The Ultimate Guide to Boosting Views on TikTok Unboxings for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/unlock-potential-download-gtx-1050-ti-drivers-now/"><u>Unlock Potential: Download GTX 1050 Ti Drivers Now</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Harnessing Google Trends for Video Concept Generation\""
-date: 2024-07-13T05:04:25.337Z
-updated: 2024-07-14T05:04:25.337Z
+date: 2024-09-01T11:53:47.615Z
+updated: 2024-09-02T11:53:47.615Z
 tags:
   - ai video
   - ai youtube
@@ -86,14 +86,32 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
@@ -108,6 +126,9 @@ Although, when you do a comparison like this you should also go to YouTube and s
 
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
 
 The second-highest ranked result is only 2 months old and isn’t from a huge channel. Although there is competition for this keyword, ranking for it is not impossible. It also helps that software reviews are a topic where people will always be looking for the latest information/newest videos.
@@ -124,8 +145,14 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -151,3 +178,47 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/reeing-up-youtube-views-no-more-grey-lines-for-2024/"><u>[New] Freeing Up YouTube Views  No More Grey Lines for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-fullview-media-collaboration-guidebook/"><u>[New] In 2024, FullView Media Collaboration Guidebook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-mastering-the-art-of-design-selecting-ideal-dimensions-for-yt-branding/"><u>[New] In 2024, Mastering the Art of Design  Selecting Ideal Dimensions for YT Branding</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-navigating-the-crossroads-of-full-time-work-and-youtube/"><u>[New] In 2024, Navigating the Crossroads of Full-Time Work & YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-uncover-the-top-7-android-alternatives-for-ad-free-browsing/"><u>[New] In 2024, Uncover the Top 7 Android Alternatives for Ad-Free Browsing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ro-tip-8-key-sites-to-harvest-free-eco-friendly-filming-backdrops/"><u>[New] Pro Tip! 8 Key Sites to Harvest FREE Eco-Friendly Filming Backdrops</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-guide-to-travel-blogs-on-youtube-for-2024/"><u>[New] The Ultimate Guide to Travel Blogs on Youtube for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-unlocking-the-power-of-music-in-engaging-video-content-for-2024/"><u>[New] Unlocking the Power of Music in Engaging Video Content for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unveiling-the-top-10-live-streaming-hubs/"><u>[New] Unveiling the Top 10 Live Streaming Hubs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outubes-easy-guide-to-exceptional-thumbnails-for-2024/"><u>[New] YouTube's Easy Guide to Exceptional Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-10-top-rated-digital-video-cutting-tools/"><u>[Updated] 10 Top-Rated Digital Video Cutting Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-chuckle-trail-your-guide-to-hilarious-online-stars/"><u>[Updated] 2024 Approved  Chuckle Trail  Your Guide to Hilarious Online Stars</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-earning-through-online-beauty-networks/"><u>[Updated] 2024 Approved  Earning Through Online Beauty Networks</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-pro-chromebook-record-unmatched-screen-capture/"><u>[Updated] 2024 Approved  Pro Chromebook Record  Unmatched Screen Capture</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-4-effective-methods-for-slide-embedding-from-youtube-for-2024/"><u>[Updated] 4 Effective Methods for Slide Embedding From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-examining-youtubes-workflow-after-content-submission/"><u>[Updated] Examining YouTube's Workflow After Content Submission</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-gamers-sound-selection-top-5-noise-canceling-earbuds/"><u>[Updated] In 2024, Gamers’ Sound Selection  Top 5 Noise-Canceling Earbuds</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-visionary-voices-top-10-most-engaged-internet-creators/"><u>[Updated] In 2024, Visionary Voices  Top 10 Most Engaged Internet Creators</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-optimal-gameplay-tools-on-the-big-screen/"><u>[Updated] Optimal Gameplay Tools on the Big Screen</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/2024-approved-from-kitchen-to-feeds-the-10-hottest-tiktok-treats/"><u>2024 Approved  From Kitchen to Feeds  The 10 Hottest TikTok Treats</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-open-source-banner-resources-a-gift-to-youtubers/"><u>2024 Approved  Open Source Banner Resources  A Gift to YouTubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-quick-routines-for-disorganized-youtube-playlists/"><u>2024 Approved  Quick Routines for Disorganized YouTube Playlists</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-ultimate-video-streaming-channel-lists-films-and-series/"><u>2024 Approved  Ultimate Video Streaming Channel Lists  Films & Series</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-your-journey-through-the-maze-of-uploading-videos-on-youtube/"><u>2024 Approved  Your Journey Through the Maze of Uploading Videos on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-youtube-images-without-spending-a-dime-quick-tips-here/"><u>2024 Approved  YouTube Images Without Spending a Dime – Quick Tips Here</u></a></li>
+<li><a href="https://fox-that.techidaily.com/8-proven-ways-to-reconnect-your-apple-tablet-or-phone-to-a-stable-wi-fi-network/"><u>8 Proven Ways to Reconnect Your Apple Tablet or Phone to a Stable Wi-Fi Network</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/here-restrictions-in-saving-youtube-videos/"><u>Are There Restrictions in Saving YouTube Videos?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-captivating-youtube-thumbnails-for-mac-users/"><u>Creating Captivating YouTube Thumbnails for Mac Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tial-free-mcb-theme-templates/"><u>Essential Free MCB Theme Templates</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-conquering-the-complexities-of-360-video-post-production-in-premiere/"><u>In 2024, Conquering the Complexities of 360° Video Post-Production in Premiere</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-designing-distinctive-denouements/"><u>In 2024, Designing Distinctive Denouements</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-revamp-your-channels-image-amplify-your-subscription-count/"><u>In 2024, Revamp Your Channel's Image, Amplify Your Subscription Count</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/raphic-forecast-the-2023-social-landscape-for-2024/"><u>Infographic Forecast  The 2023 Social Landscape for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/mastering-pc-control-how-to-hard-stop-programs-stuck-on-windows-11-computers/"><u>Mastering PC Control: How to Hard Stop Programs Stuck on Windows 11 Computers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ating-the-creator-space-a-comprehensible-guide-for-2024/"><u>Navigating the Creator Space  A Comprehensible Guide for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/perfecting-soundtracks-with-imovie-tools-for-2024/"><u>Perfecting Soundtracks with iMovie Tools for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ess-video-transfer-from-youtube-to-instagram/"><u>Seamless Video Transfer From YouTube to Instagram</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ower-of-persuasion-hire-success-stories-1-10-for-2024/"><u>The Power of Persuasion  Hire Success Stories #1-10 for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-xiaomi-redmi-k70e-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Xiaomi Redmi K70E Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nedit-ace/"><u>VisionEdit Ace</u></a></li>
+</ul></div>
