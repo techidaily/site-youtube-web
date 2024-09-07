@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Beginner's Guide to Camera Lenses in Filmmaking & Vlogging"
-date: 2024-07-13T05:01:47.427Z
-updated: 2024-07-14T05:01:47.427Z
+date: 2024-09-06T02:30:47.575Z
+updated: 2024-09-07T02:30:47.575Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,18 @@ In this article, I’m going to help you figure that out.
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
 
+<!-- affiliate ads begin -->
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -56,6 +68,12 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -78,6 +96,12 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -109,12 +133,24 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -129,6 +165,12 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -168,3 +210,60 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-streamlining-your-site-facebook-live-integration-guide/"><u>[New] 2024 Approved Streamlining Your Site Facebook LIVE Integration Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ssential-tips-and-tricks-for-creating-killer-short-videos-on-yt-for-2024/"><u>[New] Essential Tips and Tricks for Creating Killer Short Videos on YT for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-ace-search-engine-rankings-on-youtube-11-proven-seo-methods/"><u>[New] In 2024, Ace Search Engine Rankings on YouTube 11 Proven SEO Methods</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-harnessing-the-power-of-short-videos-for-maximum-income/"><u>[New] In 2024, Harnessing the Power of Short Videos for Maximum Income</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-ultimate-money-making-guide-to-streaming-services/"><u>[New] In 2024, The Ultimate Money-Making Guide to Streaming Services</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-navigating-complex-projects-on-magix-video-pro-x/"><u>[New] Navigating Complex Projects on Magix Video Pro X</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-optimizing-your-brands-presence-in-spotify-advertising/"><u>[New] Optimizing Your Brand's Presence in Spotify Advertising</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rime-posting-hours-the-key-to-youtube-dominance/"><u>[New] Prime Posting Hours The Key to YouTube Dominance</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tep-by-step-guide-to-securing-your-youtube-videos-for-2024/"><u>[New] Step-by-Step Guide to Securing Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ips-for-handling-numerous-youtube-clips-concurrently-for-2024/"><u>[New] Tips for Handling Numerous YouTube Clips Concurrently for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-3-best-ios-video-editors-free-tips-and-guides/"><u>[New] Top 3 Best iOS Video Editors FREE Tips & Guides</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nderstanding-and-implementing-cc-licenses-wisely/"><u>[New] Understanding & Implementing CC Licenses Wisely</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-skills-essential-insights-unveiled-for-2024/"><u>[New] YouTube Skills Essential Insights Unveiled for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-cutting-costs-without-compromising-on-youtube-intros-quality/"><u>[Updated] 2024 Approved Cutting Costs without Compromising on YouTube Intros Quality</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-perfecting-the-picture-perfect-cover-photo-on-instagrams-highlights/"><u>[Updated] 2024 Approved Perfecting the Picture-Perfect Cover Photo on Instagram's Highlights</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-top-15-youtube-movies-channels-for-you-to-kill-time/"><u>[Updated] 2024 Approved Top 15 YouTube Movies Channels for You to Kill Time</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-a-treasury-of-thought-provoking-youtube-content-for-2024/"><u>[Updated] A Treasury of Thought-Provoking YouTube Content for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-affordable-action-camera-choices-top-6-under-100/"><u>[Updated] Affordable ACTION Camera Choices – Top 6 Under $100</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-11-best-free-youtube-name-generators-you-should-try/"><u>[Updated] In 2024, 11 Best Free YouTube Name Generators You Should Try</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-content-creators-earnings-timeline-on-youtube/"><u>[Updated] In 2024, Content Creators’ Earnings Timeline on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-securing-financial-stability-through-beauty-content/"><u>[Updated] In 2024, Securing Financial Stability Through Beauty Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-smart-strategies-to-enhance-your-video-with-customized-end-screen-cards/"><u>[Updated] In 2024, Smart Strategies to Enhance Your Video with Customized End Screen Cards</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-maximize-screen-tv-playback-for-youtube-clips-for-2024/"><u>[Updated] Maximize Screen TV Playback for YouTube Clips for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-navigating-playlist-creation-on-youtube-easily-for-2024/"><u>[Updated] Navigating Playlist Creation on YouTube Easily for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-prime-line-up-the-best-9-free-youtube-logo-makers-reviewed/"><u>[Updated] Prime Line-Up The Best 9 Free YouTube Logo Makers Reviewed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-combining-youtube-videos-for-seamless-playback/"><u>2024 Approved Combining YouTube Videos for Seamless Playback</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-cultivating-growth-selecting-the-right-co-stars-for-youtube/"><u>2024 Approved Cultivating Growth Selecting the Right Co-Stars for YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-from-lengthy-video-to-captivating-animation-create-gifs-with-ease/"><u>2024 Approved From Lengthy Video to Captivating Animation - Create Gifs with Ease</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-high-income-content-makers/"><u>2024 Approved High-Income Content Makers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-layout-layers-elevating-your-youtube-videos/"><u>2024 Approved Layout Layers Elevating Your YouTube Videos</u></a></li>
+<li><a href="https://windows11.techidaily.com/accelerating-your-gaming-experience-update-radeon-drivers-now/"><u>Accelerating Your Gaming Experience: Update Radeon Drivers Now</u></a></li>
+<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-honor-magic-5-pro-drfone-by-drfone-virtual-android/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Honor Magic 5 Pro | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/change-location-on-yik-yak-for-your-realme-11-5g-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Realme 11 5G to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpt-revolutionizes-your-study-notes-strategy/"><u>ChatGPT Revolutionizes Your Study Notes Strategy</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/comprehensive-strategies-eliminating-haldll-error-messages-on-windows-os-ranges/"><u>Comprehensive Strategies: Eliminating hal.dll Error Messages on Windows OS Ranges</u></a></li>
+<li><a href="https://techtrends.techidaily.com/discover-our-favorites-free-apps-for-learning-new-languages-in-202e4/"><u>Discover Our Favorites: Free Apps for Learning New Languages in 202E4</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/creen-essentials-for-social-media-success-on-youtube-for-2024/"><u>End-Screen Essentials for Social Media Success on YouTube for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/ghostly-new-visuals-revealed-nasas-latest-capture-of-the-cosmic-pillars/"><u>Ghostly New Visuals Revealed: NASA's Latest Capture of the Cosmic Pillars</u></a></li>
+<li><a href="https://games-able.techidaily.com/guide-to-overturning-a-wrongful-fortnite-order/"><u>Guide to Overturning a Wrongful Fortnite Order</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-infinix-hot-40i-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Infinix Hot 40i.</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-overcome-persistent-crashing-in-battlefield-2042-on-your-computer/"><u>How to Overcome Persistent Crashing in Battlefield 2042 on Your Computer</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-on-note-30-5g-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos on Note 30 5G</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-lava-yuva-3-pro-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Lava Yuva 3 Pro Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/e-for-beginners-building-intriguing-openers-for-youtube/"><u>IMovie for Beginners Building Intriguing Openers for YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-audio-visual-transcription-tool/"><u>In 2024, Audio Visual Transcription Tool</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-beyond-the-basics-advanced-techniques-for-improved-recordings/"><u>In 2024, Beyond the Basics Advanced Techniques for Improved Recordings</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-netflix-location-to-get-more-country-version-on-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Netflix Location to Get More Country Version On Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-perfecting-stability-a-no-tripod-guide/"><u>In 2024, Perfecting Stability A No-Tripod Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-top-10-most-viewed-videos-on-youtube-of-all-time/"><u>In 2024, Top 10 Most Viewed Videos on YouTube of All Time</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-xiaomi-redmi-note-12-4g-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Xiaomi Redmi Note 12 4G Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/egies-for-optimal-youtube-shorts-growth/"><u>Strategies for Optimal YouTube Shorts Growth</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ssential-steps-for-transitioning-videos-from-youtube-to-dailymotion/"><u>The Essential Steps for Transitioning Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iches-a-look-into-mr-beasts-wallet-for-2024/"><u>The Riches A Look Into Mr. Beast's Wallet for 2024</u></a></li>
+</ul></div>

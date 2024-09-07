@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Who's Gaining Thunder in the Video Cosmos?\""
-date: 2024-07-13T05:01:09.091Z
-updated: 2024-07-14T05:01:09.091Z
+date: 2024-09-06T02:30:01.594Z
+updated: 2024-09-07T02:30:01.594Z
 tags:
   - ai video
   - ai youtube
@@ -58,10 +58,28 @@ YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in G
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ###  2\.  HolaSoyGerman
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
 The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by October 2012 his channel has reached 1 million subscribers. Recently, German has lent his voice to a character in the Spanish version of Ice Age: Collision Course. He finds inspiration for his comic YouTube videos in everyday life and topics like ex-girlfriends, school, and phobias are frequently covered in videos published on the HolaSoyGerman channel. In 2014 and 2015 German won the 'Icon of the Year' prize from MTV Millennial Awards.
@@ -70,6 +88,12 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123508/26400" target="_top" id="2123508">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123508" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123508/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
@@ -78,6 +102,18 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
 Most channels that have one viral video do not go on to have sustained success on YouTube, but Smosh is an exception to this rule. Their ‘Pokemon Theme Music Video’, released in 2005, became the most viewed video of all time (as of that year). This video kick-started the growth of their channel.
@@ -96,12 +132,36 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -127,3 +187,37 @@ Follow @Richard Bennett
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/levating-youtube-creativity-ideal-concepts-and-themes-for-channels/"><u>[New] Elevating YouTube Creativity Ideal Concepts and Themes for Channels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-youtube-visual-impact-mastering-thumbnail-dimensions/"><u>[New] In 2024, YouTube Visual Impact Mastering Thumbnail Dimensions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ocial-media-synergy-cross-promoting-your-youtube-content/"><u>[New] Social Media Synergy Cross-Promoting Your YouTube Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-hitching-your-video-trailers-to-youtube-success/"><u>[Updated] 2024 Approved Hitching Your Video Trailers to YouTube Success</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-prime-16-video-openers-to-surge-your-traffic/"><u>[Updated] 2024 Approved Prime 16 Video Openers to Surge Your Traffic</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-audio-clarity-10-pro-tips-for-high-quality-recordings-for-2024/"><u>[Updated] Audio Clarity 10 Pro Tips for High-Quality Recordings for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-exclusive-list-best-online-video-to-mp3-tools/"><u>[Updated] Exclusive List Best Online Video to Mp3 Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-flip-the-script-on-classic-films-7-list/"><u>[Updated] In 2024, Flip the Script on Classic Films, #7 List</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-professional-filmmakers-choices-17-best-lights/"><u>[Updated] In 2024, Professional Filmmakers' Choices #17 Best Lights</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-lighting-essentials-17-tops-reviewed/"><u>[Updated] In 2024, YouTube Lighting Essentials - #17 Tops Reviewed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-mastering-youtube-seo-boost-your-video-popularity/"><u>[Updated] Mastering YouTube SEO Boost Your Video Popularity</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-tutorial-for-aspiring-mukbang-creators-for-2024/"><u>[Updated] Step-by-Step Tutorial for Aspiring Mukbang Creators for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-art-of-revisiting-your-private-snap-history-for-2024/"><u>[Updated] The Art of Revisiting Your Private Snap History for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-safeguarding-your-listening-pleasure-with-3-steps/"><u>2024 Approved Safeguarding Your Listening Pleasure with 3 Steps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-snapshots-of-sound-characters-short-musical-roles/"><u>2024 Approved Snapshots of Sound Characters Short Musical Roles</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-tapping-into-the-power-of-visual-communication-on-facebook/"><u>2024 Approved Tapping Into the Power of Visual Communication on Facebook</u></a></li>
+<li><a href="https://fox-http.techidaily.com/achieve-balance-in-visuals-through-aspect-choices-for-2024/"><u>Achieve Balance in Visuals Through Aspect Choices for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-discover-the-leading-free-ios-video-editor-a-comprehensive-guide/"><u>In 2024, Discover the Leading Free iOS Video Editor A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-graph-gems-2017s-statistical-youtube-surprises/"><u>In 2024, Graph Gems 2017'S Statistical YouTube Surprises</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-recommended-best-applications-for-mirroring-your-vivo-s17-screen-drfone-by-drfone-android/"><u>In 2024, Recommended Best Applications for Mirroring Your Vivo S17 Screen | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oneplus-open-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For OnePlus Open | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ey-beyond-reality-the-best-of-youtubes-virtual-worlds-for-2024/"><u>Journey Beyond Reality The Best of YouTube’s Virtual Worlds for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-the-basics-of-home-audio-a-detailed-guide-for-newbies-looking-to-upgrade-their-sound-experience/"><u>Mastering the Basics of Home Audio: A Detailed Guide for Newbies Looking to Upgrade Their Sound Experience</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ize-monetization-the-step-by-step-for-youtube-profiles/"><u>Maximize Monetization The Step-by-Step for YouTube Profiles</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/izing-popularity-pay-per-million-views/"><u>Monetizing Popularity Pay Per Million Views</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-tecno-spark-10-pro-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Tecno Spark 10 Pro to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/ready-for-next-level-audio-download-now-the-latest-sound-blaster-audigy-fx-drivers/"><u>Ready for Next-Level Audio? [Download Now] The Latest Sound Blaster Audigy FX Drivers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/egies-for-boosting-your-youtube-shorts-audience/"><u>Strategies for Boosting Your YouTube Shorts Audience</u></a></li>
+<li><a href="https://techtrends.techidaily.com/top-tech-bargains-during-amazons-hottest-sale-event/"><u>Top Tech Bargains During Amazon's Hottest Sale Event</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-free-video-trimming-software-top-10-online-options-reviewed-for-2024/"><u>Updated Free Video Trimming Software Top 10 Online Options Reviewed for 2024</u></a></li>
+</ul></div>

@@ -1,0 +1,211 @@
+---
+title: "[Updated] In 2024, Harnessing Ambiance with Thoughtful Lighting"
+date: 2024-09-06T02:33:37.173Z
+updated: 2024-09-07T02:33:37.173Z
+tags:
+  - ai video
+  - ai youtube
+categories:
+  - ai
+  - youtube
+description: "This Article Describes [Updated] In 2024, Harnessing Ambiance with Thoughtful Lighting"
+excerpt: "This Article Describes [Updated] In 2024, Harnessing Ambiance with Thoughtful Lighting"
+keywords: "Lighting for Mood,Thoughtful Illumination,Interior Atmosphere,Ambiance Enhancement,Designed Light Scenes,Aesthetic Lightscape,Sensory Environmental Control"
+thumbnail: https://thmb.techidaily.com/3e42d7d3d66b1bb7fc10d0f6ca519d43c3162c70fd1186bee34b5c05700af6e2.jpg
+---
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Harnessing Ambiance with Thoughtful Lighting
+
+# Lighting Tips for Vlogging: How to Light
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+##### Richard Bennett
+
+ Mar 27, 2024• Proven solutions
+
+One of the best things you can do for your video quality is to ensure you have great lighting. Viewers find poor lighting distracting and it's hard for them to see how great your content is if they are busy thinking about why your video is so dark. By creating a great lighting set up you can ensure that the people watching your videos are only thinking about how much they're enjoying them.
+
+Going outside and using natural light is the cheapest way to get a lot of light for your videos. If your vlog is not suited to the great outdoors then you need to get more strategic. You can turn on all the lights in your living room and still end up with a dark, grainy, video.
+
+## Video Lighting Basics: Three Point Lighting
+
+![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
+
+The brightest source of light is also known as the **key light** which need to be high quality. A window will work, but if you do not have access to one where you are filming then consider an LED panel light or a softbox light like the ones used in portrait photography.
+
+This first light will create a dramatic shadow across half of your face. You want to reduce this shadow, but not get rid of it completely.
+
+Rather than setting up another light source on the opposite side of the camera, put up a reflector to bounce some light back onto your face. This reflector is called your **'Fill Light'**.
+
+The **fill light** is less bright than the primary source of light and it is placed on the side opposite to the key light. Its purpose is to reduce shadows produced by the key light and the reflector will need to be mounted on a stand.
+
+The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<span id="1983446">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Lightning Tips for Aspiring YouTube Videographers
+
+Becoming the master of light will take some time and practice, so it is crucial to remain curious and anxious to learn new tricks throughout that process if you want to continually become better. These tips will help you make the first steps on that journey.
+
+#### 1\.  Focus Your Key Light
+
+Try to focus your Key Light so that it lights only you and not your background. Do this by mounting anything that can cast a shadow onto your Key Light to control the area where the light hits. If you are using a window for your Key Light then you can use a curtain. If you use a softbox light then your light will already be somewhat focused.
+
+#### 2\. Use Natural Lighting
+
+The light provided by the Sun is still the best light source, you can have in your video. The trouble is that natural light changes quickly, which makes it highly unpredictable. The best way to deal with this challenge is to come prepared to the set and to get the shot you want as quickly as you can.
+
+#### 3\.  Try DIY Lightning
+
+Literally, anything from candles to LED light bulbs can serve as a source of light in a shot. You just need to pay attention to the light temperature, because warmer light sources may highlight reds and yellows that can make your footage look less realistic.
+
+#### 4\. Use Lightning Kits
+
+This is by far the best option if you want to be in complete control of the light on your set. You can adjust the intensity of the lights, use filters, diffusers and all sorts of other accessories to create the light that flatters the subjects of your videos. The only downside is that you'll have to spend a considerable amount of money if you want to have a professional lighting kit.
+
+#### 5\.  Set up reflectors
+
+Sets of reflectors are often under $50, so they are fairly affordable. However, some vloggers choose to forgo purchasing reflectors and make their own out of tinfoil.
+
+![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
+
+If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
+
+If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
+
+![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
+
+If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+Richard Bennett
+
+Richard Bennett is a writer and a lover of all things video.
+
+Follow @Richard Bennett
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-transform-your-snaps-the-complete-guide-to-snapchat-editing/"><u>[New] 2024 Approved Transform Your Snaps The Complete Guide to Snapchat Editing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ngage-more-viewers-unveiling-top-youtube-font-secrets-for-2024/"><u>[New] Engage More Viewers Unveiling Top YouTube Font Secrets for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-tips-and-tricks-to-elevate-your-youtube-production-through-subtitle-integration/"><u>[New] In 2024, Tips and Tricks to Elevate Your YouTube Production Through Subtitle Integration</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ac-innovators-handbook-crafting-cool-youtube-videos/"><u>[New] Mac Innovators' Handbook Crafting Cool Youtube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/on-youtube-havens-for-unparalleled-video-streaming/"><u>[New] Non-Youtube Havens for Unparalleled Video Streaming</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rime-top-10-free-transcript-harvesters-for-videos-for-2024/"><u>[New] Prime Top 10 Free Transcript Harvesters for Videos for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-the-art-of-finding-classic-facebook-content-for-2024/"><u>[New] The Art of Finding Classic Facebook Content for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-science-of-captivating-youtube-thumbnails/"><u>[New] The Science of Captivating YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlock-the-potential-of-your-youtube-videos-in-movie-maker-for-2024/"><u>[New] Unlock the Potential of Your YouTube Videos in Movie Maker for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-beyond-audience-counting-the-intricacies-of-youtubes-metrics/"><u>[Updated] 2024 Approved Beyond Audience Counting The Intricacies of YouTube’s Metrics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-breaking-down-the-secrets-of-impactful-asmr-video-creation/"><u>[Updated] 2024 Approved Breaking Down the Secrets of Impactful ASMR Video Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-digital-divas-top-ten-gamers-on-youtube/"><u>[Updated] 2024 Approved Digital Divas Top Ten Gamers on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-economical-embellishments-free-youtube-template-packs/"><u>[Updated] 2024 Approved Economical Embellishments FREE YouTube Template Packs</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-4-best-full-screen-recorder-for-pc-and-mac/"><u>[Updated] 4 Best Full Screen Recorder for PC and Mac</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-beautys-buzz-youtube-gurus-predicted/"><u>[Updated] Beauty's Buzz YouTube Gurus Predicted</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-crafting-a-youtube-future-scaling-up-or-staying-independent/"><u>[Updated] Crafting a YouTube Future Scaling Up or Staying Independent?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-scripts-to-screen-making-youtube-splits/"><u>[Updated] From Scripts to Screen Making YouTube Splits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-avoiding-strikes-youtube-edition/"><u>[Updated] In 2024, Avoiding Strikes YouTube Edition</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-boosting-video-visibility-by-sending-imovie-content-to-vimeo/"><u>[Updated] In 2024, Boosting Video Visibility by Sending iMovie Content to Vimeo</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-echoes-of-excellence-10-strategies-for-superior-sound-quality/"><u>[Updated] In 2024, Echoes of Excellence 10 Strategies for Superior Sound Quality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-guide-incorporating-youtube-videos-in-google-slides/"><u>[Updated] In 2024, Guide Incorporating YouTube Videos in Google Slides</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-guide-to-creating-content-top-10-inclusive-video-ideas-for-anyone/"><u>[Updated] In 2024, Guide to Creating Content Top 10 Inclusive Video Ideas for Anyone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-transitioning-playlists-from-spotify-to-a-tailored-youtube-music-list/"><u>[Updated] In 2024, Transitioning Playlists From Spotify to a Tailored YouTube Music List</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-learn-youtube-editing-tricks-for-flawless-shortening/"><u>[Updated] Learn YouTube Editing Tricks for Flawless Shortening</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-online-tutorial-adding-youtube-playlists-to-your-site/"><u>[Updated] Online Tutorial Adding YouTube Playlists to Your Site</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-simplify-your-sales-scrutiny-googles-straightforward-steps-to-track-income-from-youtube-for-2024/"><u>[Updated] Simplify Your Sales Scrutiny Google's Straightforward Steps to Track Income From YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-virtual-artisans-haven-retreat-for-2024/"><u>[Updated] Virtual Artisans' Haven Retreat for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-role-of-lighting-in-professional-youtube-content-creation/"><u>2024 Approved The Role of Lighting in Professional YouTube Content Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/dable-methods-for-video-and-text-synergy/"><u>Affordable Methods for Video and Text Synergy</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/become-a-zoom-screenshare-pro-in-minutes/"><u>Become a Zoom Screenshare Pro in Minutes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/led-insights-into-youtubes-perfected-aspect-ratios-for-2024/"><u>Detailed Insights Into YouTube's Perfected Aspect Ratios for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/how-to-reverse-image-search-facebook-for-2024/"><u>How to Reverse Image Search Facebook for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/immediate-picture-and-film-correction-via-3dlut-apps-for-2024/"><u>Immediate Picture & Film Correction via 3DLUT Apps for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/improve-your-workflow-dealing-with-external-monitor-lag-in-windows/"><u>Improve Your Workflow: Dealing with External Monitor Lag in Windows</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-forgot-locked-iphone-15-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>In 2024, Forgot Locked iPhone 15 Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-oppo-a18-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Oppo A18 Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-transform-videos-with-easy-to-use-sound-effects/"><u>In 2024, Transform Videos with Easy-to-Use Sound Effects</u></a></li>
+<li><a href="https://facebook.techidaily.com/influential-network-driving-covid-19-fallacies/"><u>Influential Network Driving Covid-19 Fallacies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/raphic-top-insights-into-fifa-football-videos-on-youtube-for-2024/"><u>Infographic - Top Insights Into FIFA Football Videos On YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rs-in-learning-top-15-online-science-hubs-for-2024/"><u>Leaders in Learning Top 15 Online Science Hubs for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-free-video-editing-solutions-for-32-bit-windows-our-top-picks-for-2024/"><u>New Free Video Editing Solutions for 32-Bit Windows Our Top Picks for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/tackling-device-configuration-woes-a-step-by-step-solution-for-error-code-1/"><u>Tackling Device Configuration Woes - A Step-by-Step Solution for Error Code 1</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-definitive-guide-to-choosing-the-best-solid-state-drive-exclusive-review-on-corsairs-mp60mini-1tb-e27t/"><u>The Definitive Guide to Choosing the Best Solid-State Drive: Exclusive Review on Corsair's MP60^Mini 1TB (E27T)</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-end-of-chatgpt-freedom-understanding-why-jailbreaking-is-no-longer-effective/"><u>The End of ChatGPT Freedom: Understanding Why Jailbreaking Is No Longer Effective</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/troubleshooting-steps-to-reopen-your-amd-radeon-graphics-software/"><u>Troubleshooting Steps to Reopen Your AMD Radeon Graphics Software</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-from-zero-to-hero-15-free-video-editing-tools-for-beginners/"><u>Updated 2024 Approved From Zero to Hero 15 Free Video Editing Tools for Beginners</u></a></li>
+</ul></div>
