@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Camera Roll to YouTube  Posting Short Clips Seamlessly\""
-date: 2024-07-13T04:56:22.435Z
-updated: 2024-07-14T04:56:22.435Z
+date: 2024-09-11T04:16:54.994Z
+updated: 2024-09-12T04:16:54.994Z
 tags:
   - ai video
   - ai youtube
@@ -44,15 +44,63 @@ Once you have a video recorded using the first two guidelines from the above lis
 
 ![Upload YouTube Shorts Video to desktop](https://images.wondershare.com/filmora/article-images/upload-short-videos-on-youtube-pc.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115948/19272" target="_top" id="2115948">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115948" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115948/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Launch your favorite web browser on your PC, go to YouTube, make sure to sign in to your YouTube account, click the **Create** (**Camera**) icon from the top-right corner of the web page, click **SELECT FILES** on the **Upload videos** window, and locate, select, and upload a short video from your PC to the portal.
 
 ![Upload YouTube Shorts Video](https://images.wondershare.com/filmora/article-images/upload-short-videos-interface-on-youtube-pc.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #### Step 2: Mark the Video as Short
 
 On the **Details** window that appears, add **#Shorts** in the **Title** or **Description** field, optionally pick a thumbnail from the suggested images present under the **Thumbnail** section (or upload a custom picture from your PC), select your preferred radio button from under the **Audience** section, make the other necessary changes if need be, and click **NEXT**. When the **Video elements** window comes up, choose your preferred options and elements, click **NEXT**.
 
 ![Mark YouTube Shorts Video in title and description](https://images.wondershare.com/filmora/article-images/mark-shorts-videos-on-youtube-pc.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983588">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #### Step 3: Publish the Short Video
 
@@ -68,11 +116,51 @@ For Win 7 or later (64-bit)
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
 
 For macOS 10.12 or later
 
 ![Filmora secure download](https://images.wondershare.com/filmora/images/store/secure.png) Secure Download
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ---
 
@@ -128,13 +216,61 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Richard Bennett
 
@@ -157,6 +293,57 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-deciphering-the-twitter-archive-a-beginners-tutorial-for-2024/"><u>[New] Deciphering the Twitter Archive A Beginner's Tutorial for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rom-zero-to-hero-steps-to-construct-your-channels-backlinks-for-2024/"><u>[New] From Zero to Hero Steps to Construct Your Channel's Backlinks for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-titans-of-tutorials-top-youtuber-earnings/"><u>[New] In 2024, Titans of Tutorials Top Youtuber Earnings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-transform-video-discoverability-essential-seo-tips-for-yt/"><u>[New] In 2024, Transform Video Discoverability Essential SEO Tips for YT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nstant-guide-photos-to-powerful-youtube-channel-thumbnails-in-a-flash-for-2024/"><u>[New] Instant Guide Photos to Powerful YouTube Channel Thumbnails in a Flash for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/arody-playground-top-10-laugh-out-loud-songs-for-2024/"><u>[New] Parody Playground Top 10 Laugh-Out-Loud Songs for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/revent-these-8-key-mishaps-on-your-youtube-journey-for-2024/"><u>[New] Prevent These 8 Key Mishaps on Your YouTube Journey for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-safety-features-evaluated-in-syma-x8c-for-2024/"><u>[New] Safety Features Evaluated in Syma X8C for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-guide-to-starting-a-successful-youtube-gaming-channel/"><u>[New] The Guide to Starting a Successful YouTube Gaming Channel</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-download-facebook-videos-swiftly-discover-the-top-10-android-downloader-tools/"><u>[Updated] 2024 Approved Download Facebook Videos Swiftly Discover the Top 10 Android Downloader Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-elevate-your-video-visibility-11-secrets-of-successful-seo/"><u>[Updated] 2024 Approved Elevate Your Video Visibility 11 Secrets of Successful SEO</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-modify-youtube-video-visibility-with-ease/"><u>[Updated] 2024 Approved Modify YouTube Video Visibility with Ease</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-perfect-your-yt-profile-expert-tips-for-channel-descriptors/"><u>[Updated] 2024 Approved Perfect Your YT Profile Expert Tips for Channel Descriptors</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-a-practical-approach-to-incorporate-youtube-playlists-online-for-2024/"><u>[Updated] A Practical Approach to Incorporate YouTube Playlists Online for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-dividing-devices-top-cam-rating-review-for-2024/"><u>[Updated] Dividing Devices Top Cam Rating Review for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-navigating-youtubes-creative-commons-framework-effectively/"><u>[Updated] In 2024, Navigating YouTube's Creative Commons Framework Effectively</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-integrating-youtube-media-into-instagram-experience-for-2024/"><u>[Updated] Integrating YouTube Media Into Instagram Experience for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-online-streaming-hierarchy-who-rises-above-vimeo-or-giants-like-youtubes-and-dailymotions/"><u>[Updated] Online Streaming Hierarchy Who Rises Above – Vimeo or Giants Like YouTubes and DailyMotions?</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-social-sightings-exploring-the-most-viewed-tweets-on-twitter-for-2024/"><u>[Updated] Social Sightings Exploring the Most Viewed Tweets on Twitter for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-step-into-the-future-with-these-7-premier-live-streaming-apps-iphoneandroid-for-2024/"><u>[Updated] Step Into the Future with These 7 Premier LIVE Streaming Apps (iPhone/Android) for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-top-5-gaming-chairs-on-a-shoestring-budget-for-2024/"><u>[Updated] Top 5 Gaming Chairs on a Shoestring Budget for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/st-royalty-free-music-download-sites-for-youtube-creators/"><u>15 Best Royalty Free Music Download Sites For YouTube Creators</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mobile-filmmaking-mastery-creating-impactful-youtube-thumbnails/"><u>2024 Approved Mobile Filmmaking Mastery Creating Impactful YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-premier-cutting-suites-on-linux-systems/"><u>2024 Approved Premier Cutting Suites on Linux Systems</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-animators-odyssey-crafting-your-own-fx-realm/"><u>2024 Approved The Animator's Odyssey Crafting Your Own FX Realm</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-role-of-analytics-in-youtube-shorts-management/"><u>2024 Approved The Role of Analytics in YouTube Shorts Management</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-youtube-marketing-mastery-crafting-robust-backlinks-for-growth/"><u>2024 Approved YouTube Marketing Mastery Crafting Robust Backlinks for Growth</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nce-wave-top-hash-tags-to-swell-youtube-views-for-2024/"><u>Audience Wave Top Hash Tags to Swell Youtube Views for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tive-steps-to-dismiss-videos-in-youtube-watchlater-for-2024/"><u>Effective Steps to Dismiss Videos in YouTube Watchlater for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/gaming-at-its-best-with-the-aorus-z69ueh-an-in-depth-look-at-the-gigabyte-gaming-monitors-high-performance-and-elegant-design-features/"><u>Gaming at Its Best with the Aorus Z69UEH: An In-Depth Look at the Gigabyte Gaming Monitor's High Performance and Elegant Design Features</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-mastering-youtube-studio-the-ultimate-guide-to-video-edits/"><u>In 2024, Mastering YouTube Studio The Ultimate Guide to Video Edits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-streamlining-your-edit-with-jump-cut-tips/"><u>In 2024, Streamlining Your Edit with Jump Cut Tips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-transformative-strategies-for-youtube-live-enthusiasts/"><u>In 2024, Transformative Strategies for YouTube Live Enthusiasts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-cinematography-youtube-guides-by-aspiring-directors-for-2024/"><u>Mastering Cinematography YouTube Guides by Aspiring Directors for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ize-impact-crafting-a-standout-video-ending/"><u>Maximize Impact Crafting a Standout Video Ending</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/save-money-with-these-top-12-free-disk-defragmenters-your-july-2024-guide/"><u>Save Money with These Top 12 Free Disk Defragmenters - Your July 2024 Guide</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/solving-intel-and-nvidia-graphic-swap-issue/"><u>Solving Intel & NVIDIA Graphic Swap Issue</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/egies-for-video-discovery-boosting-viewership-cost-free/"><u>Strategies for Video Discovery Boosting Viewership Cost-Free</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/conomics-of-t-series-a-deep-dive-into-youtube-earnings/"><u>The Economics of T-Series A Deep Dive Into YouTube Earnings</u></a></li>
+</ul></div>
 
 
 

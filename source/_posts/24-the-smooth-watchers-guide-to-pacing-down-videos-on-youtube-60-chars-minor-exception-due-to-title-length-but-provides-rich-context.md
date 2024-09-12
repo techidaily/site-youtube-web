@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Smooth Watcher's Guide to Pacing Down Videos on YouTube (60 Chars, Minor Exception Due to Title Length but Provides Rich Context)"
-date: 2024-09-06T02:38:56.323Z
-updated: 2024-09-07T02:38:56.323Z
+date: 2024-09-11T04:21:28.062Z
+updated: 2024-09-12T04:21:28.062Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,26 @@ Have you ever wanted to learn something from a YouTube video, but found that the
 * [Part 2: Add Slow Motion with Wondershare Filmora (originally Wondershare Video Editor)](#part2)
 * [Part 3: Add Slow Motion with YouTube Video Editor](#part1)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Part 1: YouTube Slow Down: How to Play YouTube Videos in Slow Motion
 
 While, you can now change the speed of any YouTube videos easily and watch YouTube videos in slow motion in a few steps. Below is how to slow down YouTube Videos:
@@ -39,12 +59,20 @@ While, you can now change the speed of any YouTube videos easily and watch YouTu
 
 ![ change youtube speed ](https://images.wondershare.com/filmora/article-images/youtube-speed-change.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 * Choose the target video speed from 0.25x, 0.5x, 0.75x to slow down the play back speed of the YouTube video. You can also select 1.25x, 1.5x, 1.75x or 2x to fast forward this YouTube video depending on how fast or slow you want the playback of the YouTube video to be.
 * That’s it how to make a YouTube video slow down by changing the playback speed. If you selected 0.5X, you will see the playback speed is half of the original speed. You can now see the YouTube video is played back in a slower speed.
 
@@ -52,18 +80,32 @@ While, you can now change the speed of any YouTube videos easily and watch YouTu
 
 Besides, watching YouTube videos in slow motion, you can also make a slow motion video and upload to YouTube. The Flash from Zootopia is so impressive and you can see a lot of memes and gifs online about this funny cute sloth. In the following part, we will show you how to make a slow motion YouTube video like the sloth Flash in two ways by adding slow motion effects.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Part 2: Add Slow Motion to YT Videos with Wondershare Filmora video editor \[3 Steps\]
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is an easy-to-use yet powerful video editing tool to which let beginners edit their YouTube videos in minutes. It includes every classic video editing functions including adjust playback speed, trim, crop, rotate, split as well as many special editing features like Jump Cut, Mosaic Blur and Tilt Shift. Now let's see how to add slow motion with this video editing software.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Step 1\. Import Video Footage to Filmora Video Editor
 
 First of all, you need to import all your video footage for YouTube videos to Filmora. If you want to slow down a video downloaded from online, like youtube, please make sure there is copyright issue for you to use the video before processing. In case that you want to download YouTube with free youtube downloader, you can try Wondershare [Free Youtube Downloader](https://www.wondershare.com/pro/free-youtube-downloader.html) and [Video DownloadHelper](https://www.wondershare.com/download/downloadhelper-for-chrome.html) (Firefox Add-on).
@@ -72,36 +114,26 @@ After downloading YouTube videos on hard disk, you can now import it to this You
 
 ![YouTube Slow Motion](https://images.wondershare.com/filmora/article-images/video-editor-main-interface-1.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1938136">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938136.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938136">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938136.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938136%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938136/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 #### Step 2. One click to add slow motion to YouTube video
 
 On the Timeline, click on the added YouTube video and select   **Speed and Duration** to open up the video custom speed window. You will see the Speed option, Duration, Reverse Speed and Ripple Edit options. and the speed number indicates fast or slow motion. To slow down the YouTube video, drag the speed slider to left and you get a slow down version of the YouTube video. You can slow down the YouTube video in 0.01x. Click the OK button to save the slow motion settings and then click the Play button in the preview windows to have a look at the new YouTube slow down video. You can also change the duration of the YouTube video to change the YouTube video speed. For example, if you want to slow down a 30-second YouTube video to half speed, you can just enter the duration to 60 seconds to get a slow down motion effect.
 
 ![ YouTube Video slow down ](https://images.wondershare.com/filmora/article-images/reverse-speed-custom-speed.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 With Filmora youtube video editor, you can also add the slow motion effects to some certain clips of the video footage. What you need to do is use the split feature to split the video first. Learn more details about [How to Cut / Split / Trim Videos without Quality Loss](https://tools.techidaily.com/wondershare/filmora/download/)
 
 #### Step 3. Export slow down YouTube video
@@ -110,20 +142,8 @@ You could continue editing YouTube videos. When all done, click "Export" to save
 
 ![Export](https://images.wondershare.com/filmora/article-images/output-format.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 See, with Filmora video editor you can slow down YouTube videos with ease, what’s more, you can also apply reverse effects to play Youtube videos backwards. Download and try this YouTube Slow motion effect and you will master how to slow down YouTube videos.
 
 **Related:**[How to Make Slow/Fast Motion Videos](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -150,19 +170,35 @@ Above are the 3 ways that you can watch a YouTube video in slow motion, and slow
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Richard Bennett
 

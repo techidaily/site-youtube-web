@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Shots to Screens  The Importance of Camera Lenses in Vlogs for 2024\""
-date: 2024-07-13T04:56:23.665Z
-updated: 2024-07-14T04:56:23.665Z
+date: 2024-09-11T04:16:56.349Z
+updated: 2024-09-12T04:16:56.349Z
 tags:
   - ai video
   - ai youtube
@@ -78,13 +78,61 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Focal Length Equivalency Table
 
@@ -104,6 +152,26 @@ This table shows you the focal lengths needed to achieve the same shot between c
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -129,6 +197,20 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -142,6 +224,20 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Richard Bennett
 
@@ -164,6 +260,58 @@ Follow @Richard Bennett
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+
+
+
+
+
+
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-capturing-and-saving-your-favorite-facebook-stories-pcmobile-for-2024/"><u>[New] Capturing & Saving Your Favorite Facebook Stories (PC/Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rafting-professional-content-on-youtube-via-enhancements/"><u>[New] Crafting Professional Content on YouTube via Enhancements</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/arning-potential-for-creators-in-youtube-ads-in-2024/"><u>[New] Earning Potential for Creators in YouTube Ads, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-a-comprehensive-guide-to-the-12-superior-vlogging-cameras/"><u>[New] In 2024, A Comprehensive Guide to the 12 Superior Vlogging Cameras</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-insights-on-maintaining-engagement-after-algorithm-shifts/"><u>[New] In 2024, Insights on Maintaining Engagement After Algorithm Shifts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/astering-youtube-streaming-a-guide-for-gamers/"><u>[New] Mastering YouTube Streaming A Guide for Gamers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-100plus-gaming-channel-names-for-every-gamer-filmora-for-2024/"><u>[Updated] 100+ Gaming Channel Names for Every Gamer - Filmora for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-a-glimpse-at-the-best-curating-a-list-of-5-exceptional-book-tts/"><u>[Updated] 2024 Approved A Glimpse at the Best Curating a List of 5 Exceptional Book TTs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unlocking-success-optimizing-gaming-videos-via-smart-use-of-hashtags/"><u>[Updated] 2024 Approved Unlocking Success Optimizing Gaming Videos via Smart Use of Hashtags</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-bridging-identities-with-100-creative-and-empowering-insta-captions-for-2024/"><u>[Updated] Bridging Identities with 100 Creative and Empowering Insta Captions for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-charting-2023s-social-trend-peaks-in-graphs-for-2024/"><u>[Updated] Charting 2023'S Social Trend Peaks in Graphs for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-effortless-entertainment-looping-youtube-videos-for-tv-viewers-for-2024/"><u>[Updated] Effortless Entertainment Looping YouTube Videos for TV Viewers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-elite-selection-top-9-free-youtube-channel-branding-apps/"><u>[Updated] Elite Selection Top 9 Free YouTube Channel Branding Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-elite-women-gaming-leaders-top-10-on-yt/"><u>[Updated] Elite Women Gaming Leaders Top 10 On YT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-harness-youtube-movie-maker-for-impactful-videos/"><u>[Updated] Harness YouTube Movie Maker for Impactful Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-breakthrough-tools-an-analysis-of-the-top-10-cost-effective-video-design-schools-on-youtube/"><u>[Updated] In 2024, Breakthrough Tools An Analysis of the Top 10 Cost-Effective Video Design Schools on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-harnessing-the-power-of-targeted-video-appeal/"><u>[Updated] In 2024, Harnessing the Power of Targeted Video Appeal</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-mastering-medias-closing-chapters/"><u>[Updated] In 2024, Mastering Media's Closing Chapters</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-time-lapse-video-techniques-for-ipad-users/"><u>[Updated] Time-Lapse Video Techniques for iPad Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-invigorating-channel-content-best-video-concepts-to-inspire-viewers/"><u>2024 Approved Invigorating Channel Content Best Video Concepts to Inspire Viewers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-prodigious-8-cameras-enhancing-video-quality-in-broadcast/"><u>2024 Approved Prodigious 8 Cameras Enhancing Video Quality in Broadcast</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-top-5-gaming-headsets-for-youtube/"><u>2024 Approved Top 5 Gaming Headsets for YouTube</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/call-recorder-iphone-captures-all-calls/"><u>Call Recorder IPhone Captures All Calls</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/dynamic-dialogue-list-to-engage-podcast-audience/"><u>Dynamic Dialogue List to Engage Podcast Audience</u></a></li>
+<li><a href="https://program-issues.techidaily.com/effective-ways-to-reduce-cpu-consumption-in-phasmophobia/"><u>Effective Ways to Reduce CPU Consumption in Phasmophobia</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ting-engagement-the-pillars-of-youtube-rankings-for-2024/"><u>Elevating Engagement The Pillars of YouTube Rankings for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/immediate-printer-severance-guide-for-windows-computers/"><u>Immediate Printer Severance Guide for Windows Computers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-honor-magic-6-lite-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Honor Magic 6 Lite Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-a-guide-to-free-you-from-youtubes-extra-bar-width/"><u>In 2024, A Guide to Free You From YouTube's Extra Bar Width</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-choosing-youtube-premium-what-makes-it-worth-the-price/"><u>In 2024, Choosing YouTube Premium What Makes It Worth the Price?</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-editmaster-suite/"><u>In 2024, EditMaster Suite</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-elevating-your-look-expert-tutorials-for-everyone/"><u>In 2024, Elevating Your Look Expert Tutorials for Everyone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/in-2024-step-by-step-guide-to-crafting-twitreacts/"><u>In 2024, Step-by-Step Guide to Crafting TwitReacts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ate-investment-cost-effective-youtube-monetization-options-for-2024/"><u>Initiate Investment Cost-Effective YouTube Monetization Options for 2024</u></a></li>
+<li><a href="https://techidaily.com/is-your-tecno-spark-20-pro-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Tecno Spark 20 Pro working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-anthropic-guide-to-claude-3-mastery/"><u>The Anthropic Guide to Claude 3 Mastery</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/uick-clip-quandary-youtube-shorts-advantage-over-tiktok-for-2024/"><u>The Quick-Clip Quandary YouTube Shorts' Advantage Over TikTok for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/transforming-campfire-games-chatgpt-for-unforgettable-rpg-experiences/"><u>Transforming Campfire Games: ChatGPT for Unforgettable RPG Experiences</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-steps-to-correct-a-504-gateway-error-on-your-website/"><u>Troubleshooting Steps to Correct a 504 Gateway Error on Your Website</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/troubleshooting-tips-repairing-missing-or-not-found-d3dx924dll-errors-in-your-system/"><u>Troubleshooting Tips: Repairing Missing or Not Found d3dx9_24.dll Errors in Your System</u></a></li>
+</ul></div>
 
 
 

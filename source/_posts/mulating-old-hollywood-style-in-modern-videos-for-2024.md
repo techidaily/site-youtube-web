@@ -1,7 +1,7 @@
 ---
 title: "[New] Emulating Old Hollywood Style in Modern Videos for 2024"
-date: 2024-09-06T02:42:36.993Z
-updated: 2024-09-07T02:42:36.993Z
+date: 2024-09-11T04:21:24.266Z
+updated: 2024-09-12T04:21:24.266Z
 tags:
   - ai video
   - ai youtube
@@ -14,30 +14,12 @@ keywords: "Hollywood Vintage Cinematography,Classic Movie Elegance Tips,Modern V
 thumbnail: https://thmb.techidaily.com/eb6701eb360daf00501aea3027f5f407ca588034548873224d944d5de49dcde3.jpg
 ---
 
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Emulating Old Hollywood Style in Modern Videos
 
 # How to Create Vintage Videos: A Comprehensive Tutorial
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
@@ -78,12 +60,6 @@ Lots of black points in the video are not ideal for a vintage effect. The suitab
 
 Bringing down the saturation levels is another tip to create a vintage effect. The old videos are also absent in bright colors. Don't go too crazy about reduction as 20%-30% saturation level is more than enough.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Create a Stunning Vintage Video?
 
 What you need to get started as both beginner and professional is Wondershare Filmora Video Editor. It is a highly recommended software to create vintage videos. The intuitive user interface and lots of editing functions are helpful for a video editor. It has both primary as well as advanced editing programs to check. It has various advanced color tuning tools to promote the making of original videos. It features tint, temperature, Vignette, 3D Luts, Lights, and so on.
@@ -96,12 +72,20 @@ What you need to get started as both beginner and professional is Wondershare Fi
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-1.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 The very step is to add the video by clicking the + icon. We have added the three **sample videos** from the library of Wondershare Filmora itself. Adjust them in the timeline as per your requirements.
 
 After doing all the essential editing functions, click on the **Effects tab** given at the upper-left corner. Simply type the word Old in the Search tab.
@@ -112,27 +96,63 @@ The Old Video filter will immediately appear in the list of filters. Tap the **"
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-2.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 The second step is to apply the Black & White filters. Go to the **Effects** tab and explore five Black & White filters available. Each of these filters is quite different and must be applied accordingly. Check the aesthetic of your video clip before any filter application to retro videos.
 
 **Step 3:** Add the Sun Kissed or Sepia Tone Rise Filters to the video clip
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-3.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 There are various other categories of filters you can apply, such as Retro, Sun Kissed, and Sepia Tone, etc. The features of Filmora also present several subcategories such as Faux Film or Shake.
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/vintage-videos-4.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 On the other hand, the subcategory of Sepia Tone features Sun-Kissed & Rise Filters to stimulate sepia-tinted texture and recreate the old visual style. The Sun Kissed filter presents brown and red colors to give that warm image atmosphere.
 
@@ -152,12 +172,6 @@ You can also access the Advanced color correction Tab of Filmora from the Color 
 
 ![Vintage Videos](https://images.wondershare.com/filmora/article-images/filmora9-advance-color-correction.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115947/19272" target="_top" id="2115947">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115947" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115947/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tips to Make Your Vintage Videos Stand Out
 
 Following the helpful tips would assist you in creating awesome retro videos.
@@ -169,6 +183,20 @@ Following the helpful tips would assist you in creating awesome retro videos.
 * Lower the frame rate or FPS to create an excellent vintage look. You can make it to 18 or 14 FPS depending upon the aesthetic requirements.
 * Keep an eye on black and white filters you have used. It's because more of a black and white can ruin the actual vintage experience.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Conclusion
 
 So, this is an ultimate tutorial on the creation of vintage videos. We Hope you have admired the steps and our recommended video editing software. Vintage means grand, and thus you should make it amazing as well. It is the reason we have stated all facts regarding the vintage effect in our post above. Wondering how to add such effect in FCPX? check this article:[How to Create a Vignette in Final Cut Pro X?](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -177,18 +205,20 @@ Surely give a read and thank us later!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="701707">
-					<video width="1536" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
