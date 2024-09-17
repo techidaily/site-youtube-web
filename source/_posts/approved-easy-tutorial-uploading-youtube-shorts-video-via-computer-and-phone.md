@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Easy Tutorial  Uploading YouTube Shorts Video via Computer & Phone\""
-date: 2024-07-13T04:49:07.683Z
-updated: 2024-07-14T04:49:07.683Z
+date: 2024-09-12T03:35:09.542Z
+updated: 2024-09-17T02:42:48.078Z
 tags:
   - ai video
   - ai youtube
@@ -102,6 +102,19 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -128,6 +141,19 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -142,14 +168,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,6 +181,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/avigating-and-maximizing-youtubes-livestream-features-for-2024/"><u>[New] Navigating and Maximizing YouTube's Livestream Features for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-step-by-step-guide-to-seamlessly-replace-backgrounds-on-instagram/"><u>[New] Step-by-Step Guide to Seamlessly Replace Backgrounds on Instagram</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-tips-and-tricks-to-streamline-your-zoom-meetings/"><u>[New] Tips & Tricks to Streamline Your Zoom Meetings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unique-video-monikers-brainstorming-insights/"><u>[Updated] 2024 Approved Unique Video Monikers Brainstorming Insights</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-top-tier-eyeball-enticer-author/"><u>[Updated] Top-Tier Eyeball Enticer Author</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-humour-haven-strategies-for-parody-video-creation/"><u>2024 Approved Humour Haven Strategies for Parody Video Creation</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-stream-and-save-a-guide-to-xbox-broadcasting/"><u>2024 Approved Stream and Save A Guide to Xbox Broadcasting</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/3-smart-and-simple-ways-to-change-home-address-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>3 Smart and Simple Ways to Change Home Address on Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/boost-your-workout-routine-with-expert-tips-on-writing-efficient-chatgpt-queries/"><u>Boost Your Workout Routine with Expert Tips on Writing Efficient ChatGPT Queries</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tial-tips-for-crafting-youtube-shorts-templates/"><u>Essential Tips for Crafting YouTube Shorts Templates</u></a></li>
+<li><a href="https://driver-install.techidaily.com/fasten-intel-lan-controller-tuning-effortlessly/"><u>Fasten Intel LAN Controller Tuning Effortlessly</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/mac-stellar-file-eraser-5-the-ultimate-tool-for-regular-data-purge/"><u>Mac Stellar File Eraser 5: The Ultimate Tool for Regular Data Purge</u></a></li>
+</ul></div>
 

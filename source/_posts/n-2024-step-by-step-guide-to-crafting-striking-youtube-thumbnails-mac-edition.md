@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step by Step Guide to Crafting Striking YouTube Thumbnails - Mac Edition\""
-date: 2024-07-13T04:52:13.749Z
-updated: 2024-07-14T04:52:13.749Z
+date: 2024-09-14T16:35:49.363Z
+updated: 2024-09-17T01:34:51.194Z
 tags:
   - ai video
   - ai youtube
@@ -64,11 +64,32 @@ Once you’ve chosen the frame for the thumbnail, the next step would be to add 
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -90,14 +111,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -106,6 +124,19 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/new-expert-netflix-tips-maximizing-screenshots-with-your-mac/"><u>[New] Expert Netflix Tips Maximizing Screenshots with Your Mac</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-11-expert-tactics-for-dominating-fb-video-marketing/"><u>[Updated] 2024 Approved 11 Expert Tactics for Dominating FB Video Marketing</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-inside-look-key-aspects-of-srt-mastery/"><u>[Updated] In 2024, Inside Look Key Aspects of SRT Mastery</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-professional-tactics-for-youtube-video-logging-for-2024/"><u>[Updated] Professional Tactics for YouTube Video Logging for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-understanding-slug-lines-an-essential-guide/"><u>[Updated] Understanding Slug Lines An Essential Guide</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-comprehensive-visuals-what-sets-360-apart/"><u>2024 Approved Comprehensive Visuals What Sets 360° Apart?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mastering-playback-pivot-a-step-by-step-yt-guide/"><u>2024 Approved Mastering Playback Pivot A Step-by-Step YT Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/harness-your-windows-10-key-top-value-strategies/"><u>Harness Your Windows 10 Key: Top Value Strategies</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-vivo-v30-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Vivo V30 to iPod | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ackward-button-chronicles-youtubes-video-reversal/"><u>The Backward Button Chronicles YouTube's Video Reversal</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/omplete-handbook-to-excellent-youtube-audio-production/"><u>The Complete Handbook to Excellent YouTube Audio Production</u></a></li>
+<li><a href="https://techtrends.techidaily.com/the-ultimate-troubleshooting-checklist-for-powerless-computers-and-tablets/"><u>The Ultimate Troubleshooting Checklist for Powerless Computers and Tablets</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Productivity in Duality  Employment & Video Creation\""
-date: 2024-07-13T04:50:44.624Z
-updated: 2024-07-14T04:50:44.624Z
+date: 2024-09-14T00:54:57.791Z
+updated: 2024-09-17T03:17:52.039Z
 tags:
   - ai video
   - ai youtube
@@ -52,9 +52,23 @@ A notebook planner is essential for keeping my life organized and on track. When
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134233/18498" target="_top" id="2134233">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134233" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134233/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
 
@@ -76,14 +90,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -92,6 +103,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-add-visual-appeal-with-these-methods-for-yt-video-inclusion-in-ppt/"><u>[New] 2024 Approved Add Visual Appeal with These Methods for YT Video Inclusion in PPT</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-convenient-tutorial-snapchat-installation-macos-style/"><u>[New] In 2024, Convenient Tutorial Snapchat Installation macOS-Style</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-art-of-dual-careers-youtuber-and-full-time-employee/"><u>[New] In 2024, The Art of Dual Careers YouTuber & Full-Time Employee</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-best-cameras-to-amplify-your-yt-presence/"><u>[Updated] 2024 Approved Best Cameras to Amplify Your YT Presence</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-latest-insights-on-facebook-whats-new/"><u>[Updated] 2024 Approved Latest Insights on Facebook - What's New?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-finalizing-your-video-with-a-bold-statement/"><u>[Updated] In 2024, Finalizing Your Video with a Bold Statement</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-xiaomi-13t-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Xiaomi 13T | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-adding-clear-timestamps-to-your-youtube-channels-live-streams/"><u>2024 Approved Adding Clear Timestamps to Your YouTube Channel's Live Streams</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/ac1200-wireless-mastery-with-the-tp-link-archer-a6-router-an-economical-review-of-speed-and-functionality/"><u>AC1200 Wireless Mastery with the TP-Link Archer A6 Router: An Economical Review of Speed and Functionality</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/augmented-realms-blending-tech-and-entertainment-for-2024/"><u>Augmented Realms Blending Tech & Entertainment for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/1721457155064-escape-iphone-headset-mode-stuck-try-these-8-effective-fixes-now/"><u>Escape iPhone Headset Mode Stuck? Try These 8 Effective Fixes Now!</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/mastering-the-fix-stable-playthrough-of-yakuza-the-song-of-life-on-your-personal-computer/"><u>Mastering the Fix: Stable Playthrough of Yakuza The Song of Life on Your Personal Computer</u></a></li>
+</ul></div>
 

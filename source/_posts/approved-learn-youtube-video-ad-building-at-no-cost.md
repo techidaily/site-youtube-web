@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Learn YouTube Video Ad Building at No Cost\""
-date: 2024-07-13T04:45:46.603Z
-updated: 2024-07-14T04:45:46.603Z
+date: 2024-09-12T00:12:31.883Z
+updated: 2024-09-16T17:18:24.820Z
 tags:
   - ai video
   - ai youtube
@@ -86,6 +86,13 @@ After signing in to your **YouTube Video Builder** account, on the main interfac
 
 ![YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-layout.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Next, from the **Color & Logo** section, choose the base (background) and text colors using their corresponding tools from under the **Brand colors** section.
 
 ![Create video with YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-color-logo.jpg)
@@ -100,6 +107,13 @@ When you are on the **Images & Text** section of the navigation bar, pick the hi
 
 ![Create video with YouTube Video Builder](https://images.wondershare.com/filmora/article-images/youtube-video-builder-insert-images-texts.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now, scroll down to the **Text** section, and add the relevant content in the available text input fields. Make sure to add a compelling **Call to action** text to give the viewers a free passage to connect with you.
 
 ![Create video with YouTube Video Builder with CTA](https://images.wondershare.com/filmora/article-images/youtube-video-builder-call-to-action-texts.jpg)
@@ -110,9 +124,23 @@ From the **Pick a Font** section of the navigation bar, click the **Google Fonts
 
 ![Create video with YouTube Video Builder - change font](https://images.wondershare.com/filmora/article-images/youtube-video-builder-pickup-video-text-fonts.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Alternatively, you can leave the default one selected. When on the **Select Music** section, choose your preferred background music from the drop-down list that is present under the section.
 
 ![Create video with YouTube Video Builder with music](https://images.wondershare.com/filmora/article-images/youtube-video-builder-select-music-for-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Finally, click **Create video**, and wait while **YouTube Video Builder** takes you to the **Preview, Save, Share** section, and generates your video.
 
@@ -127,6 +155,13 @@ After the video is generated, play to preview the film. If everything looks good
 On the next page, click **Copy** to copy the video link, and share it with your friends, colleagues, and family members for their feedback.
 
 ![YouTube Video Builder Video Copy Link](https://images.wondershare.com/filmora/article-images/youtube-video-builder-copy-link.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Next, scroll down to get to the **Create Campaign** section of the navigation bar, and from the left screen, click **Create campaign** to begin a campaign to promote your brand and/or product(s).
 
@@ -156,14 +191,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -172,6 +204,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-social-network-power-play-understanding-igtv-vs-youtubes-dynamics/"><u>[New] In 2024, Social Network Power Play Understanding IGTV Vs. YouTube's Dynamics</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-showmores-edge-a-closer-look-at-exceptional-screen-recording/"><u>[New] ShowMore's Edge A Closer Look at Exceptional Screen Recording</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/peedy-fortnite-cover-art-creation/"><u>[New] Speedy Fortnite Cover Art Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-ways-to-turn-your-shorts-into-a-money-machine-on-youtube-for-2024/"><u>[New] Top Ways to Turn Your Shorts Into a Money Machine on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-video-quality-from-youtube-to-crisp-avis-format/"><u>[Updated] Elevate Video Quality From YouTube to Crisp Avis Format</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-insider-guide-decoding-youtube-live-image-codes/"><u>[Updated] In 2024, Insider Guide Decoding YouTube Live Image Codes</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/enabling-night-shift-feature-on-your-iphone-the-ultimate-tutorial/"><u>Enabling Night Shift Feature on Your iPhone - The Ultimate Tutorial</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-iphone-14-pro-max-without-passcode-easily-by-drfone-ios/"><u>In 2024, Unlock iPhone 14 Pro Max Without Passcode Easily</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/optimal-online-presence-streamlined-background-settings-in-zoom-and-google-meets-for-2024/"><u>Optimal Online Presence Streamlined Background Settings in Zoom & Google Meets for 2024</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solution-implemented-eliminating-audio-issues-within-firefox-web-browser/"><u>Solution Implemented: Eliminating Audio Issues Within Firefox Web Browser</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-guide-to-converting-youtubes-into-vivid-gifs-no-save-for-2024/"><u>The Ultimate Guide to Converting YouTubes Into Vivid GIFs (No Save) for 2024</u></a></li>
+</ul></div>
 

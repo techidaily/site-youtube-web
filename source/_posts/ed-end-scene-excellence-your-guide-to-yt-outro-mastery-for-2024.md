@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] End Scene Excellence  Your Guide to YT Outro Mastery for 2024\""
-date: 2024-07-13T04:45:04.703Z
-updated: 2024-07-14T04:45:04.703Z
+date: 2024-09-11T21:46:17.851Z
+updated: 2024-09-16T19:21:48.023Z
 tags:
   - ai video
   - ai youtube
@@ -76,6 +76,13 @@ If you are using CTAs in your outro, remember to add links and elements that are
 
 Being consistent in your designs is a key ingredient to improving your brand recognition. Stick to a specific color palette or themes, so the audience can easily identify your channel.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Make an Outstanding YouTube Video Outro
 
 Now it is time to learn how to make an outro for YouTube. You can create the perfect outro for YouTube using the tools from Adobe After Effects. The following steps indicate how to make an outro using After Effects:
@@ -95,6 +102,13 @@ Step 3: Create a Background Layer
 Go to the "Layer" tab, tap "New," create a black "Solid" background layer.
 
 ![background layer creation](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 4: Add Video Suggestion Box
 
@@ -162,11 +176,31 @@ The YouTube Subscribe Reminders pack by Filmstock contains 10 title templates th
 
 ![youtube subscribe reminders](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-10.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. 4K YouTube Motion Graphics Packaging
 
 The 4K YouTube Motion Graphics Packaging contains multiple title templates from Filmstock's library to help you create a remarkable outro for YouTube. From subscribe reminders to recommended video templates and text animations, the pack can be used at the end screen of any video. The pack is compatible with Filmora 9.6 or above versions.
 
 ![4k youtube motion graphics packaging](https://images.wondershare.com/filmora/article-images/2021/make-outstanding-youtube-outro-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Clean YouTube Subscribe Pack
 
@@ -179,6 +213,13 @@ Looking for a clean and elegant design for your YouTube outro? Filmstock's Clean
 Compatible with Filmora 9.2 or above, the Social Media Icons Pack by Filmstock contains some of the best elements for different social platforms, such as YouTube or Facebook.
 
 The Social Media Icons Pack contains all the necessary elements for when you want to communicate with your viewers. It includes bell icons, subscribes buttons, hashtags, location tags, like, share, and follows icons, and much more. With 23 elements revolving around multiple social media themes, this pack is perfectly suited for YouTube videos.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5\. Social Media Lowerthird Pack
 
@@ -200,14 +241,11 @@ Max Wales is a writer and a lover of all things video.
 
 Follow @Max Wales
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -216,6 +254,21 @@ Follow @Max Wales
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-investigating-the-underreported-drawbacks-of-vr/"><u>[New] 2024 Approved Investigating the Underreported Drawbacks of VR</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-agriculture-affinity-games-top-10-farmers-craft-for-comradeship-for-2024/"><u>[New] Agriculture Affinity Games Top 10 Farmer's Craft for Comradeship for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/lternative-video-editor-tips-beyond-youtube/"><u>[New] Alternative Video Editor Tips Beyond YouTube</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1717722966348-new-in-2024-how-to-see-your-subscribers-on-youtube/"><u>[New] In 2024, How to See Your Subscribers on YouTube?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-inviting-support-without-coercion-listeners-guide/"><u>[New] In 2024, Inviting Support Without Coercion Listener's Guide</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-in-2024-thors-quest-battle-for-valhalla/"><u>[New] In 2024, Thor’s Quest Battle for Valhalla</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-checklist-for-growing-youtube-subscribers-for-2024/"><u>[New] The Ultimate Checklist for Growing YouTube Subscribers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-guide-to-youtube-fame-with-spectacular-music-videos-for-2024/"><u>[New] The Ultimate Guide to YouTube Fame with Spectacular Music Videos for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-androids-prime-portable-gba-simulators-ranked/"><u>[Updated] In 2024, Android's Prime Portable GBA Simulators Ranked</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-audiences-choice-for-best-action-capture-tools/"><u>2024 Approved Audience's Choice for Best Action Capture Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/aerial-cutting-edge-the-ultimate-drone-editing-comparison-for-2024/"><u>Aerial Cutting Edge The Ultimate Drone Editing Comparison for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rt-youtube-videos-smoothly-into-professional-webm-files/"><u>Convert YouTube Videos Smoothly Into Professional WebM Files</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/shake-up-your-streams-xplit-alternatives-explored/"><u>Shake Up Your Streams Xplit-Alternatives Explored</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-ultimate-tutorial-to-implement-google-duet-in-your-gmail-experience/"><u>The Ultimate Tutorial to Implement Google Duet in Your Gmail Experience</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Mastering the Art of YouTube Thumbnails on macOS"
-date: 2024-07-13T04:45:40.877Z
-updated: 2024-07-14T04:45:40.877Z
+date: 2024-09-13T02:06:11.641Z
+updated: 2024-09-16T18:22:43.153Z
 tags:
   - ai video
   - ai youtube
@@ -58,17 +58,44 @@ You can easily choose the frame from the video or use the preview frame button t
 
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115949/19272" target="_top" id="2115949">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115949" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115949/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
 
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4. Save the thumbnail
 
@@ -90,14 +117,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -106,6 +130,21 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-cutting-out-background-sounds-in-skype-chats/"><u>[New] 2024 Approved Cutting Out Background Sounds in Skype Chats</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hannel-expansion-through-smart-youtube-link-building-methods/"><u>[New] Channel Expansion Through Smart YouTube Link-Building Methods</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-finding-value-in-cheap-gopro-sales-online-for-2024/"><u>[New] Finding Value in Cheap GoPro Sales Online for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-high-revenue-streaming-star-across-the-globe/"><u>[New] In 2024, High Revenue Streaming Star Across the Globe</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/implify-tv-broadcasts-introducing-youtube-content-loops/"><u>[New] Simplify TV Broadcasts Introducing YouTube Content Loops</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-top-choices-premier-mac-video-capture-apps-for-2024/"><u>[New] Top Choices Premier Mac Video Capture Apps for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-your-ultimate-youtube-video-gear-top-rated-cameras-and-lenses/"><u>[Updated] In 2024, Your Ultimate YouTube Video Gear Top-Rated Cameras and Lenses</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-insiders-look-at-top-9-free-platforms-for-designing-youtube-logos/"><u>2024 Approved Insider's Look at Top 9 FREE Platforms for Designing YouTube Logos</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/from-idea-to-execution-an-essential-guide-to-youtube-shorts-template-design/"><u>From Idea to Execution An Essential Guide to YouTube Shorts Template Design</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-how-to-assemble-a-personalized-youtube-music-list/"><u>In 2024, How to Assemble a Personalized YouTube Music List</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-unseen-approaches-to-bypass-online-educational-content/"><u>In 2024, Unseen Approaches to Bypass Online Educational Content</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/marvels-spider-man-miles-morales-critique-a-compact-story-with-a-profound-effect/"><u>Marvel's Spider-Man: Miles Morales Critique - A Compact Story with a Profound Effect</u></a></li>
+<li><a href="https://windows11.techidaily.com/tackle-interruptexception-in-win11-blue-screen/"><u>Tackle INTERRUPT_EXCEPTION in Win11 Blue Screen</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-shorts-earning-blueprint/"><u>Youtube Shorts Earning Blueprint</u></a></li>
+</ul></div>
 

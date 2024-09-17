@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Exploring the Depths of Video Talks on YouTube\""
-date: 2024-07-13T04:50:14.243Z
-updated: 2024-07-14T04:50:14.243Z
+date: 2024-09-10T02:57:45.828Z
+updated: 2024-09-16T22:06:04.337Z
 tags:
   - ai video
   - ai youtube
@@ -105,6 +105,13 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -114,6 +121,19 @@ You can see all the comments you have posted in the Comment History in a few qui
 3. Click on the History option and then you will find the option called Comments on the right side of your YouTube History page. Click on it to see all your YouTube comments.
 
 ![YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 You can also access the Comments History page directly from [here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
@@ -146,14 +166,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,6 +179,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/levating-your-video-content-for-a-fanbase-boom/"><u>[New] Elevating Your Video Content for a Fanbase Boom</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-essential-first-steps-for-mastering-insta-chat-rooms-for-2024/"><u>[New] Essential First Steps for Mastering Insta Chat Rooms for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-how-to-use-vlc-for-professional-screen-recording-for-2024/"><u>[New] How to Use VLC for Professional Screen Recording for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-youtube-copyright-recordings-and-their-permissibility/"><u>[New] In 2024, YouTube Copyright Recordings and Their Permissibility</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-essential-strategies-for-finding-fabulous-and-free-images-on-pexels/"><u>[Updated] 2024 Approved Essential Strategies for Finding Fabulous and Free Images on Pexels</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-affordable-skybanking-for-heavy-data-hoarding/"><u>[Updated] In 2024, Affordable SkyBanking for Heavy Data Hoarding</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-elevate-your-engagement-top-10-video-response-insights/"><u>[Updated] In 2024, Elevate Your Engagement Top 10 Video Response Insights</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-unleash-creativity-on-instagrams-reels-frontier/"><u>[Updated] In 2024, Unleash Creativity on Instagram's Reels Frontier</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unveiling-the-reasons-behind-missing-shorts-thumbnails/"><u>[Updated] Unveiling the Reasons Behind Missing Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-streamline-your-site-including-youtube-playlists-directly/"><u>2024 Approved Streamline Your Site Including YouTube Playlists Directly</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/centre-dassistance-technique-numerique-pour-les-outils-video-winx-dvd-ripper-et-logiciels-conversion-video-expliques/"><u>Centre D'assistance Technique Numérique Pour Les Outils Vidéo : WinX DVD Ripper Et Logiciels Conversion Vidéo Expliqués</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/cutting-edge-encoding-showdown-the-av1-and-vp9-race-for-2024/"><u>Cutting-Edge Encoding Showdown The AV1 & VP9 Race for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-messages-from-oppo-by-fonelab-android-recover-messages/"><u>Easy steps to recover deleted messages from Oppo</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-your-playstation-4-when-it-stops-responding-a-complete-walkthrough/"><u>Fixing Your PlayStation 4 When It Stops Responding: A Complete Walkthrough</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/e-sound-shakers-the-ultimate-playlist/"><u>Mobile Sound Shakers The Ultimate Playlist</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/kle-life-into-text-two-methods-for-bouncing-effects/"><u>Sprinkle Life Into Text Two Methods for Bouncing Effects</u></a></li>
+</ul></div>
 

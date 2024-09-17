@@ -1,7 +1,7 @@
 ---
 title: "YouTube Producers' Favorite Cameras & Lenses for 2024"
-date: 2024-07-13T04:48:28.369Z
-updated: 2024-07-14T04:48:28.369Z
+date: 2024-09-14T02:20:06.820Z
+updated: 2024-09-16T18:42:42.101Z
 tags:
   - ai video
   - ai youtube
@@ -113,6 +113,13 @@ Recording **moving objects** from a distance requires you to have a lens that al
 
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
 
 A lot of zoom lenses do not have wide enough apertures to create blurred backgrounds, but this Tamron lens is an exception at f/2.8\. This low f-stop also means that it performs better in poor lighting conditions than a lot of other zoom lenses. If your shooting conditions change a lot – if you often change locations, for example – then it will be good to have a sturdy, well-built, zoom lens like the AF 17-mm that can be quickly adapted to new angles and distances.
@@ -125,20 +132,24 @@ If you are using a 4k camera to shoot your YouTube video, check out [best camera
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,6 +158,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-androids-power-for-pause-how-to-create-amazing-time-lagged-footage/"><u>[New] Android's Power for Pause How to Create Amazing Time-Lagged Footage</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-uncovering-8-honestly-backed-promotion-services/"><u>[New] In 2024, Uncovering 8 Honestly Backed Promotion Services</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-expert-guidelines-to-improve-zoom-on-chromeos/"><u>[Updated] 2024 Approved Expert Guidelines to Improve Zoom on ChromeOS</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-a-visual-journey-in-filmmaking-insights-from-filmora-expertise-for-2024/"><u>[Updated] A Visual Journey in Filmmaking Insights From Filmora Expertise for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-perfecting-zoom-on-snapchat-for-better-snaps/"><u>[Updated] Perfecting Zoom on Snapchat for Better Snaps</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-streamline-your-workflow-with-the-top-5-pc-screen-grabbers-for-2024/"><u>[Updated] Streamline Your Workflow with the Top 5 Pc Screen Grabbers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elevating-brand-awareness-with-tailored-engaging-youtube-banners/"><u>2024 Approved Elevating Brand Awareness with Tailored, Engaging YouTube Banners</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/grab-the-best-offers-of-2021-trubit-speakers-and-earbuds-during-prime-day/"><u>Grab the Best Offers of 2021: Trubit Speakers and Earbuds During Prime Day</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/icgenius-suite-for-2024/"><u>GraphicGenius Suite for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/silencing-ringtones-mastering-the-art-of-call-muting-on-android-devices/"><u>Silencing Ringtones: Mastering the Art of Call Muting on Android Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/en-youtube-regulations-to-abide-by-for-2024/"><u>Top Ten YouTube Regulations to Abide By for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-premium-subscription-should-you-get-one-for-2024/"><u>YouTube Premium Subscription - Should You Get One for 2024</u></a></li>
+</ul></div>
 

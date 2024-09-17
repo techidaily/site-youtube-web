@@ -1,7 +1,7 @@
 ---
 title: "\"Transforming Doubt Into Action  Channeling Vlogger Excellence\""
-date: 2024-07-13T04:46:08.133Z
-updated: 2024-07-14T04:46:08.133Z
+date: 2024-09-14T16:01:32.290Z
+updated: 2024-09-17T02:15:56.134Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -78,6 +85,13 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -87,6 +101,13 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -130,14 +151,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -146,6 +164,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/rafting-engaging-youtube-channel-names-for-vlogger-success-no-more-than-156/"><u>[New] Crafting Engaging YouTube Channel Names for Vlogger Success (No More Than 156)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-upload-made-easy-your-device-based-guide-for-youtube-shorts/"><u>[New] In 2024, Upload Made Easy Your Device-Based Guide for YouTube Shorts</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-unlock-the-power-of-podcasts-15-activities-that-blend-multitasking-and-growth/"><u>[New] Unlock the Power of Podcasts 15 Activities that Blend Multitasking and Growth</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-critical-game-analysis-from-top-creators-for-2024/"><u>[Updated] Critical Game Analysis From Top Creators for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-facing-copyright-challenges-on-youtube-know-your-rights/"><u>[Updated] In 2024, Facing Copyright Challenges on YouTube Know Your Rights</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-navigating-vertical-vs-horizontal-on-facebook-videos-for-2024/"><u>[Updated] Navigating Vertical vs Horizontal on Facebook Videos for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/amd-ryzen9700x-pushing-boundaries-overclock-to-an-incredible-58ghz-with-heavy-duty-liquid-cooling-plus-reach-a-stunning-idle-of-6-ghz/"><u>AMD Ryzen^9700X Pushing Boundaries: Overclock to an Incredible 5.8GHz with Heavy Duty Liquid Cooling, Plus Reach a Stunning Idle of 6 GHz!</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/guide-downloading-twitters-videos-on-android-devices/"><u>Guide Downloading Twitters Videos on Android Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-gain-traction-on-youtube-deciphering-ranking-principles/"><u>In 2024, Gain Traction on YouTube Deciphering Ranking Principles</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-innovative-ways-to-record-without-background-sounds/"><u>In 2024, Innovative Ways to Record Without Background Sounds</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-youtube-hub-for-newbies-in-cinematic-craftsmanship/"><u>In 2024, YouTube Hub for Newbies in Cinematic Craftsmanship</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/online-onyx-the-monetary-meaningfulness-of-pewdiepies-earnings/"><u>Online Onyx The Monetary Meaningfulness of Pewdiepie's Earnings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ling-the-leading-10-no-cost-youtube-channels-for-stunning-visuals-for-2024/"><u>Unveiling the Leading 10 No-Cost YouTube Channels for Stunning Visuals for 2024</u></a></li>
+</ul></div>
 

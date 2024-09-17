@@ -1,7 +1,7 @@
 ---
 title: "\"Sprinkle Life Into Text  Two Methods for Bouncing Effects\""
-date: 2024-09-11T04:36:29.909Z
-updated: 2024-09-12T04:36:29.909Z
+date: 2024-09-10T17:01:30.335Z
+updated: 2024-09-17T01:55:39.662Z
 tags:
   - ai video
   - ai youtube
@@ -26,13 +26,10 @@ thumbnail: https://thmb.techidaily.com/9dde14122d86332e2939d12b71c8c112849e5b475
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
@@ -60,20 +57,6 @@ Go to **Effects** from the standard toolbar, expand the **Filters** category fro
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
@@ -84,20 +67,6 @@ Click **EXPORT** from the top of the interface, go to the **Local** tab in the *
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
 Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
@@ -105,34 +74,6 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -145,20 +86,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -200,34 +127,17 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -236,52 +146,35 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-maximizing-revenue-a-youtube-channelers-guide/"><u>[New] 2024 Approved Maximizing Revenue A YouTube Channeler’s Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-speed-masterclass-turning-images-into-attention-grabbing-youtube-thumbnails/"><u>[New] 2024 Approved Speed Masterclass Turning Images Into Attention-Grabbing YouTube Thumbnails</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-strategic-trailer-planning-for-increased-channels-profitability/"><u>[New] 2024 Approved Strategic Trailer Planning for Increased Channels' Profitability</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-key-to-viral-instagram-posts/"><u>[New] The Key to Viral Instagram Posts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-ultimate-guide-to-engaging-viewers-and-boosting-traffic-on-youtube/"><u>[New] The Ultimate Guide to Engaging Viewers and Boosting Traffic on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-elevate-your-brand-explore-these-10-essential-youtube-creators/"><u>[Updated] 2024 Approved Elevate Your Brand Explore These 10 Essential YouTube Creators</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-font-selection-wonders-enhancing-youtube-video-thumbnails/"><u>[Updated] 2024 Approved Font Selection Wonders Enhancing YouTube Video Thumbnails</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unrivaled-popularity-ranking-the-top-subscribers-on-youtube/"><u>[Updated] 2024 Approved Unrivaled Popularity Ranking the Top Subscribers on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-content-creators-dilemma-which-site-reigns-vimeo-youtube-in-2024/"><u>[Updated] Content Creators' Dilemma Which Site Reigns - Vimeo, YouTube, In 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-earning-stream-start-small-see-big-on-youtube/"><u>[Updated] Earning Stream Start Small, See Big on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-from-chaos-to-clarity-professional-tools-for-youtube-cuts-for-2024/"><u>[Updated] From Chaos to Clarity Professional Tools for Youtube Cuts for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-gear-up-essential-asmr-microphones-to-consider/"><u>[Updated] Gear Up Essential ASMR Microphones to Consider</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-guide-to-getting-1000-subscribers-for-your-youtube-channel/"><u>[Updated] Guide to Getting 1000 Subscribers for Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-comprehensive-techniques-for-gauging-yt-popularity-and-monetization/"><u>[Updated] In 2024, Comprehensive Techniques for Gauging YT Popularity & Monetization</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-innovative-techniques-for-compelling-youtube-beginnings/"><u>[Updated] In 2024, Innovative Techniques for Compelling YouTube Beginnings</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-top-10-portable-tools-dominating-video-editing-landscape/"><u>[Updated] In 2024, Top 10 Portable Tools Dominating Video Editing Landscape</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtubes-secrets-to-successful-video-marketing-uncovered/"><u>[Updated] In 2024, YouTube's Secrets to Successful Video Marketing Uncovered</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-strategic-use-of-youtube-cards-and-markup/"><u>[Updated] Strategic Use of YouTube Cards & Markup</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-thrifty-tips-for-hosting-webinars-on-youtube/"><u>[Updated] Thrifty Tips for Hosting Webinars on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-a-stepwise-approach-to-youtube-caption-addition/"><u>2024 Approved A Stepwise Approach to YouTube Caption Addition</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-blueprint-producing-purposeful-life-exploration-broadcasts/"><u>2024 Approved Blueprint Producing Purposeful Life Exploration Broadcasts</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-scripting-signal-sequences/"><u>2024 Approved Scripting Signal Sequences</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ratory-moments-captured-a-list-of-the-most-beautiful-wedding-videos-8-for-2024/"><u>Celebratory Moments Captured A List of the Most Beautiful Wedding Videos (8) for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-captivating-edu-vids-on-youtube-a-step-by-step-guide-for-2024/"><u>Crafting Captivating Edu-Vids on YouTube A Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-from-oppo-find-n3-flip-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock from Oppo Find N3 Flip Devices</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-realme-c51-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Realme C51 | Dr.fone</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-oneplus-ace-2-pro-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead OnePlus Ace 2 Pro Safely | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/52541502-how-to-make-a-youtube-subscribe-link-easy/"><u>How to Make a YouTube Subscribe Link - Easy!</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-restore-a-bricked-honor-80-pro-straight-screen-edition-back-to-operation-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Restore a Bricked Honor 80 Pro Straight Screen Edition Back to Operation | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-turn-off-find-my-iphone-14-plus-when-phone-is-broken-by-drfone-ios/"><u>How to Turn Off Find My iPhone 14 Plus when Phone is Broken?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-craft-cinematic-magic-learn-green-screen-wonders-with-youtube/"><u>In 2024, Craft Cinematic Magic Learn Green Screen Wonders with YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-step-by-step-methodology-effortless-youtube-playlist-embedding-on-websites/"><u>In 2024, Step-by-Step Methodology Effortless YouTube Playlist Embedding on Websites</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/leveraging-ai-enhancing-image-interpolation-for-smoother-frame-rates-and-seamless-video-transitions/"><u>Leveraging AI: Enhancing Image Interpolation for Smoother Frame Rates & Seamless Video Transitions</u></a></li>
-<li><a href="https://win-blog.techidaily.com/solving-the-problems-of-life-is-strange-true-colors-crashing-issues-resolved/"><u>Solving the Problems of Life Is Strange: True Colors - Crashing Issues Resolved</u></a></li>
-<li><a href="https://discover-best.techidaily.com/top-rated-mobile-device-of-the-year-2017-choosing-the-perfect-smartphone/"><u>Top Rated Mobile Device of the Year 2017: Choosing the Perfect Smartphone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/sh-potential-with-these-essential-editing-tips-for-beginners-for-2024/"><u>Unleash Potential with These Essential Editing Tips for Beginners for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/unlocking-your-pcs-games-on-steam-deck-with-ease/"><u>Unlocking Your PC's Games on Steam Deck with Ease</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/journey-to-glamorous-guruship-launching-an-aesthetic-channel-for-2024/"><u>Your Journey to Glamorous Guruship Launching an Aesthetic Channel for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-dissecting-vivas-multimedia-interface/"><u>[New] 2024 Approved Dissecting Viva's Multimedia Interface</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-master-stitching-gopro-content-in-extended-panorama-videos/"><u>[New] In 2024, Master Stitching GoPro Content in Extended Panorama Videos</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-which-recording-tool-excels-more-bandicam-vs-camtasia/"><u>[New] In 2024, Which Recording Tool Excels More? - Bandicam Vs. Camtasia</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-affluent-streaming-stars/"><u>[Updated] Affluent Streaming Stars</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-elevate-your-engagement-top-10-video-response-insights/"><u>[Updated] In 2024, Elevate Your Engagement Top 10 Video Response Insights</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-monetization-milestone-the-500-subscriber-trick/"><u>[Updated] In 2024, Monetization Milestone The 500-Subscriber Trick</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-multiply-your-channels-subscribers-quickly/"><u>[Updated] Multiply Your Channel's Subscribers Quickly</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-pixel-perfect-resizer-for-windows-and-mac-for-2024/"><u>[Updated] Pixel Perfect Resizer for Windows & Mac for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-web-warriors-championing-screen-recording-tools-for-2024/"><u>[Updated] Web Warriors Championing Screen Recording Tools for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-blitz-30-second-guide-to-fast-thumbnails/"><u>2024 Approved Blitz 30-Second Guide to Fast Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ting-your-valorant-videos-with-impressive-thumbnails-for-2024/"><u>Elevating Your Valorant Videos with Impressive Thumbnails for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-tecno-pova-5-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Tecno Pova 5 to Roku | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-easy-path-to-professional-looking-youtube-shorts/"><u>In 2024, The Easy Path to Professional-Looking YouTube Shorts</u></a></li>
+<li><a href="https://windows11.techidaily.com/steps-for-reconnecting-disconnected-printer-on-windows/"><u>Steps for Reconnecting Disconnected Printer on Windows</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/the-ultimate-guide-to-instagram-influence-5-strategies-with-examples/"><u>The Ultimate Guide to Instagram Influence 5 Strategies with Examples</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

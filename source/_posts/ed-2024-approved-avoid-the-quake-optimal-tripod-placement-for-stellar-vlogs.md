@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Avoid the Quake  Optimal Tripod Placement for Stellar Vlogs\""
-date: 2024-07-13T04:50:12.062Z
-updated: 2024-07-14T04:50:12.062Z
+date: 2024-09-13T23:44:13.795Z
+updated: 2024-09-17T02:57:48.587Z
 tags:
   - ai video
   - ai youtube
@@ -109,6 +109,13 @@ thumbnail: https://thmb.techidaily.com/2dc71f07a766ca604beda3fe20bd5fd81321c87e0
 
 ![YouTube Vlogger Tripod](https://images.wondershare.com/filmora/article-images/manfrotto-mini-tripod.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Yet another great option for shooting vlogs with a Smartphone. The Manfrotto Mini Travel Tripod kit is also an excellent choice for all vloggers who shoot their videos with compact cameras. The tripod weighs just 0.51lbs and it is 5.31 inches tall, which makes it a perfect travel companion. However, it can't support cameras heavier than 2.2lbs, so you have to carefully choose the camera you want to put on this tripod.
 
  The tripod's rotatable head features a lock button that enables you to fix the camera at a certain position and to shoot a video from an angle you selected. You can't extend the legs on this tripod so shooting high angle shots is not an option.
@@ -185,20 +192,24 @@ thumbnail: https://thmb.techidaily.com/2dc71f07a766ca604beda3fe20bd5fd81321c87e0
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2121334/18498" target="_top" id="2121334">
+  <img src="//a.impactradius-go.com/display-ad/18498-2121334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121334/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -207,6 +218,14 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ed-from-tape-to-trending-seamless-mp3-to-youtube-transition/"><u>[Updated] From Tape to Trending Seamless MP3 to YouTube Transition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-swift-switcheroo-rearranging-yt-lists-in-a-minute/"><u>[Updated] Swift Switcheroo Rearranging YT Lists in a Minute</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/5-most-effective-methods-to-unlock-apple-iphone-12-mini-in-lost-mode-drfone-by-drfone-ios/"><u>5 Most Effective Methods to Unlock Apple iPhone 12 mini in Lost Mode | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/into-the-world-of-cosmetics-launching-a-beauty-channel/"><u>Dive Into the World of Cosmetics Launching a Beauty Channel</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-honor-90-lite-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Honor 90 Lite to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/1723211242910-resolve-your-windows-10-bluetooth-disappearance-problem-with-simple-steps/"><u>Resolve Your Windows 10 Bluetooth Disappearance Problem with Simple Steps!</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/step-by-step-how-to-get-the-best-kodi-plugins-at-zero-cost-watch-anything/"><u>Step by Step: How to Get the Best Kodi Plugins at Zero Cost - Watch Anything!</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Step-by-Step Guide  Posting Shorts on YouTube From PC/Mobile Devices\""
-date: 2024-07-13T04:48:26.132Z
-updated: 2024-07-14T04:48:26.132Z
+date: 2024-09-09T20:39:18.390Z
+updated: 2024-09-17T01:45:44.294Z
 tags:
   - ai video
   - ai youtube
@@ -102,6 +102,13 @@ On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the b
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 2: Record a Short Video and Upload
 
 **Step 1:** Record Shorts Video
@@ -111,6 +118,13 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -142,14 +156,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,6 +169,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-capturing-victories-effective-strategies-with-w11/"><u>[New] 2024 Approved Capturing Victories Effective Strategies with W11</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-best-ways-to-screen-record-on-android/"><u>[New] In 2024, Best Ways to Screen Record on Android</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-discovering-this-years-finest-pc-vr-devices/"><u>[Updated] In 2024, Discovering This Year's Finest PC VR Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-streamline-your-video-strategy-tubebuddys-guide/"><u>[Updated] In 2024, Streamline Your Video Strategy TubeBuddy's Guide</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-overcoming-uneven-sound-in-fb-video-playback/"><u>[Updated] Overcoming Uneven Sound in FB Video Playback</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-from-novice-to-vlogger-professional-video-making-on-mobile-devices/"><u>2024 Approved From Novice to Vlogger Professional Video Making on Mobile Devices</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/accelerate-video-transcoding-with-handbrake-gpu-based-solutions-and-frequently-asked-questions/"><u>Accelerate Video Transcoding with Handbrake: GPU-Based Solutions and Frequently Asked Questions</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-and-update-guide-for-hp-officejet-pro-asterisk-8610-driver-on-windows-os-7-vista-xp-8-and-10/"><u>Download & Update Guide for HP Officejet Pro Asterisk 8610 Driver on Windows OS (7, Vista, XP, 8, and 10)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-oppo-reno-9a-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Oppo Reno 9A?</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/smoother-rides-with-htc-vive-anti-nausea-tips-for-2024/"><u>Smoother Rides with HTC Vive Anti-Nausea Tips for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/journey-to-youtubes-command-center-of-creativity-for-2024/"><u>Your Journey to YouTube's Command Center of Creativity for 2024</u></a></li>
+</ul></div>
 

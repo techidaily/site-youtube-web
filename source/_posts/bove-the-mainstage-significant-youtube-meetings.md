@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Above the Mainstage  Significant YouTube Meetings\""
-date: 2024-09-11T04:37:48.308Z
-updated: 2024-09-12T04:37:48.308Z
+date: 2024-09-14T01:29:04.705Z
+updated: 2024-09-17T00:13:16.629Z
 tags:
   - ai video
   - ai youtube
@@ -42,20 +42,6 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 #### 1. **[VidCon](http://vidcon.com/)**
 
 **VidCon US:** June (Anaheim, California)
@@ -65,20 +51,6 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -142,20 +114,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -191,20 +149,6 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -244,20 +188,6 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -282,34 +212,17 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -318,49 +231,25 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-beginners-pathway-prime-video-game-editing-applications/"><u>[New] 2024 Approved Beginner's Pathway Prime Video Game Editing Applications</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-revolutionize-advertising-try-all-50-available-free-youtube-banners/"><u>[New] 2024 Approved Revolutionize Advertising – Try All 50 Available FREE YouTube Banners</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-fast-track-to-clearing-youtube-post-comments/"><u>[New] 2024 Approved The Fast Track to Clearing YouTube Post-Comments</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-crafting-a-balanced-narrative-with-b-roll-content-for-2024/"><u>[New] Crafting a Balanced Narrative with B-Roll Content for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-expert-tutorial-quick-hassle-free-ios-snapshots-for-2024/"><u>[New] Expert Tutorial Quick, Hassle-Free iOS Snapshots for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/rom-vision-to-execution-the-full-spectrum-of-personal-branding-on-youtube-for-2024/"><u>[New] From Vision to Execution The Full Spectrum of Personal Branding on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-a-comprehensive-guide-to-making-gifs-from-youtube-tracks/"><u>[New] In 2024, A Comprehensive Guide to Making GIFs From YouTube Tracks</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-crafting-stellar-video-beginnings-with-free-tools/"><u>[New] In 2024, Crafting Stellar Video Beginnings with Free Tools</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-youtubers-edge-the-ultimate-guide-to-apps-for-short-form-edits/"><u>[New] In 2024, Youtubers' Edge The Ultimate Guide to Apps for Short Form Edits</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/iral-verve-top-10-music-to-match-your-freshest-yt-shorts-for-2024/"><u>[New] Viral Verve Top 10 Music to Match Your Freshest YT Shorts for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/outube-foundations-building-a-brand-and-generating-income-for-novices-for-2024/"><u>[New] Youtube Foundations Building a Brand & Generating Income for Novices for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-comedy-chorus-satirical-song-selections/"><u>[Updated] 2024 Approved Comedy Chorus Satirical Song Selections</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-flix-fortune-hashtags-for-high-impact-low-length-video-content/"><u>[Updated] 2024 Approved Flix Fortune Hashtags for High Impact, Low-Length Video Content</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-thematic-concepts-for-daily-vlog-content/"><u>[Updated] 2024 Approved Thematic Concepts for Daily Vlog Content</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-ensuring-long-term-youtube-success-with-creative-commons-mainteninas/"><u>[Updated] Ensuring Long-Term YouTube Success with Creative Commons Mainteninas</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-all-inclusive-rundown-whats-behind-the-google-podcast-app/"><u>[Updated] In 2024, All-Inclusive Rundown What's Behind the Google Podcast App?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-navigating-the-world-of-hashtags-youtubes-best-practices/"><u>[Updated] In 2024, Navigating the World of Hashtags YouTube's Best Practices</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-innovative-video-concepts-through-google-trends-exploration-for-2024/"><u>[Updated] Innovative Video Concepts Through Google Trends Exploration for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/beatfinder-tools-tune-in-to-online-freshness-for-2024/"><u>Beatfinder Tools Tune in to Online Freshness for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/calculating-earnings-ad-revenues-in-the-world-of-youtube-in-2024/"><u>Calculating Earnings Ad Revenues in the World of YouTube, In 2024</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/effektivste-methode-zum-hochladen-von-streaming-videodateien-auf-ihren-mac/"><u>Effektivste Methode Zum Hochladen Von Streaming-Videodateien Auf Ihren Mac</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/how-to-download-and-install-the-canon-mf743cdw-driver-for-optimal-windows-compatibility/"><u>How to Download and Install the Canon MF743CDW Driver for Optimal Windows Compatibility</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/o-find-your-niche-and-style-a-starters-guide/"><u>How to Find Your Niche and Style - a Starter's Guide</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-vivo-y27-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Vivo Y27 5G to iPhone | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-discover-the-top-9-free-online-tools-to-craft-your-logo/"><u>In 2024, Discover the Top 9 Free Online Tools to Craft Your Logo</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-unlock-youtube-power-with-insights-from-creator-studio/"><u>In 2024, Unlock YouTube Power with Insights From Creator Studio</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-yogic-vistas-top-10-inspirational-yoga-videos/"><u>In 2024, Yogic Vistas Top 10 Inspirational Yoga Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/incredible-virtual-films-to-explore/"><u>Incredible Virtual Films to Explore</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-apple-iphone-se-2022-drfone-by-drfone-virtual-ios/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Apple iPhone SE (2022) | Dr.fone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-make-video-editing-easy-download-videoleap-on-your-macbook-now/"><u>New In 2024, Make Video Editing Easy Download Videoleap on Your MacBook Now</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/rtisanal-analysis-unveiling-video-value-versus-vendors-for-2024/"><u>The Artisanal Analysis Unveiling Video Value Versus Vendors for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ontent-delivery-spectrum-vimeo-and-youtube-reviewed-for-2024/"><u>The Content Delivery Spectrum Vimeo & YouTube Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/1-strategies-for-boosting-your-youtube-videos-seo-for-2024/"><u>Top 11 Strategies for Boosting Your YouTube Videos' SEO for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/top-4-sim-location-trackers-to-easily-find-your-lost-vivo-y78plus-device-by-drfone-android/"><u>Top 4 SIM Location Trackers To Easily Find Your Lost Vivo Y78+ Device</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-access-free-eco-friendly-vfx-backdrops-online/"><u>Top 8 Access Free Eco-Friendly VFX Backdrops Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/onstructing-inquiry-curtain-closers/"><u>[New] Constructing Inquiry Curtain Closers</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-standard-to-spectacular-the-journey-with-vce-22/"><u>[New] From Standard to Spectacular The Journey with VCE 2.2</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-4-effective-ways-to-captivate-ig-audiences-with-loop-videos/"><u>[Updated] 2024 Approved 4 Effective Ways to Captivate IG Audiences with Loop Videos</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-advanced-mobile-mounting-accurate-camera-positioning/"><u>[Updated] 2024 Approved Advanced Mobile Mounting Accurate Camera Positioning</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ultimate-guide-to-youtube-to-webm-converter-apps/"><u>[Updated] In 2024, The Ultimate Guide to YouTube to WebM Converter Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-uncovering-asmr-truths-for-viewers/"><u>[Updated] In 2024, Uncovering ASMR Truths for Viewers</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-snippet-analysis-for-beginners/"><u>Brief Snippet Analysis for Beginners</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-version-of-brother-mfc-l2690dw-printer-driver-for-seamless-printing/"><u>Get the Newest Version of Brother MFC-L2690DW Printer Driver for Seamless Printing</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-google-pixel-fold-to-outlook-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Google Pixel Fold to Outlook | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-unleashing-potential-in-ar-applying-lut-techniques/"><u>In 2024, Unleashing Potential in AR Applying LUT Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-music-reactions-years-top-ten-showcase-for-2024/"><u>YouTube Music Reactions Year's Top Ten Showcase for 2024</u></a></li>
 </ul></div>
 
-
-
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123476/16836" target="_top" id="2123476">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123476" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123476/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
