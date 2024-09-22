@@ -1,7 +1,7 @@
 ---
 title: "[New] Creating Captivating Visuals with DIY Filming Methods"
-date: 2024-09-15T00:44:10.447Z
-updated: 2024-09-16T20:39:02.253Z
+date: 2024-09-14T20:42:36.168Z
+updated: 2024-09-22T00:29:12.389Z
 tags:
   - ai video
   - ai youtube
@@ -73,16 +73,16 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<span id="1424529">
+<span id="1424527">
 					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -92,13 +92,6 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -124,6 +117,13 @@ To make a talking-head video more interesting, you can add some background music
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -145,20 +145,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-skyrocket-your-view-count-youtube-success-via-sony-vegas-editing/"><u>[New] In 2024, Skyrocket Your View Count YouTube Success via Sony Vegas Editing</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-streamlining-video-features-youtube-annotations-guide/"><u>[New] In 2024, Streamlining Video Features YouTube Annotations Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-ultimate-list-of-must-watch-historical-youtubes-for-students-for-2024/"><u>[New] The Ultimate List of Must-Watch Historical YouTubes for Students for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-amplify-your-online-presence-top-5-effective-youtube-strategies/"><u>[Updated] 2024 Approved Amplify Your Online Presence Top 5 Effective YouTube Strategies</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-timing-your-instagram-posts-for-optimal-results/"><u>[Updated] 2024 Approved Timing Your Instagram Posts for Optimal Results</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-best-of-the-best-cutting-edge-hiring-videos-1-10/"><u>[Updated] Best of the Best Cutting-Edge Hiring Videos #1-10</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-mastering-fb-sharing-youtube-videos-directly/"><u>[Updated] Mastering FB Sharing YouTube Videos Directly</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-pushing-boundaries-with-innovative-instagram-content/"><u>[Updated] Pushing Boundaries with Innovative Instagram Content</u></a></li>
-<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Vivo X100 Pro | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ng-you-through-youtubes-view-limitations-for-2024/"><u>Guiding You Through YouTube's View Limitations for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-charting-new-territories-innovations-in-office-spaces-for-enhanced-output/"><u>In 2024, Charting New Territories Innovations in Office Spaces for Enhanced Output</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-advanced-11-smartphone-apps-for-masterful-audio-production/"><u>New Advanced 11 Smartphone Apps for Masterful Audio Production</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/overcoming-os-drivers-blues-stop-winblue-screen/"><u>Overcoming OS Drivers Blues: Stop WinBlue Screen</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/recommended-best-applications-for-mirroring-your-honor-play-7t-screen-drfone-by-drfone-android/"><u>Recommended Best Applications for Mirroring Your Honor Play 7T Screen | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-infinix-note-30-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Infinix Note 30 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hannel-upgrade-plans-standard-studio-or-beta-revolution-for-2024/"><u>[New] Channel Upgrade Plans Standard Studio or Beta Revolution for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-boost-video-performance-with-key-seo-tools/"><u>[New] In 2024, Boost Video Performance with Key SEO Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/avigating-common-youtube-short-hurdles-for-2024/"><u>[New] Navigating Common YouTube Short Hurdles for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-newbies-instalment-checklist-vrecorder/"><u>[New] Newbie's Instalment Checklist VRecorder</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-15-youtube-playlists-catering-to-musicians/"><u>[Updated] 2024 Approved Top 15 YouTube Playlists Catering to Musicians</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-essential-knowledge-how-io-screen-recorder-works-for-2024/"><u>[Updated] Essential Knowledge How Io Screen Recorder Works for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-cross-platform-guide-extracting-facebook-video-content/"><u>[Updated] In 2024, Cross-Platform Guide Extracting Facebook Video Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-engage-enthusiastically-earn-enticingly-the-entrepreneurial-editors-handbook/"><u>[Updated] In 2024, Engage Enthusiastically, Earn Enticingly The Entrepreneurial Editor’s Handbook</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-picture-perfect-zero-cost-photo-enhancement-app/"><u>[Updated] Picture Perfect Zero Cost Photo Enhancement App</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/end-of-blackout-in-windows-post-update/"><u>End of Blackout in Windows Post Update</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/forgot-locked-iphone-6-plus-password-learn-the-best-methods-to-unlock-by-drfone-ios/"><u>Forgot Locked iPhone 6 Plus Password? Learn the Best Methods To Unlock</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-photos-from-android-gallery-without-backup-on-nokia-105-classic-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>How to recover deleted photos from Android Gallery without backup on Nokia 105 Classic</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-power-of-consistency-rising-up-the-charts-on-youtube/"><u>In 2024, The Power of Consistency Rising Up the Charts on YouTube</u></a></li>
+<li><a href="https://games-able.techidaily.com/restoring-flawless-sound-experience-to-xbox-one/"><u>Restoring Flawless Sound Experience to Xbox One</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/step-by-step-guide-restoring-your-pcs-mic-functionality-on-windows-11/"><u>Step-by-Step Guide: Restoring Your PC's Mic Functionality on Windows 11</u></a></li>
 </ul></div>
 

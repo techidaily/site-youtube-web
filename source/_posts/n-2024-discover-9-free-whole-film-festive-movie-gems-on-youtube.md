@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Discover 9 Free, Whole-Film Festive Movie Gems on Youtube\""
-date: 2024-07-13T04:44:32.069Z
-updated: 2024-07-14T04:44:32.069Z
+date: 2024-09-19T01:37:47.221Z
+updated: 2024-09-22T02:59:52.021Z
 tags:
   - ai video
   - ai youtube
@@ -38,9 +38,23 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
@@ -49,6 +63,13 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 ### 6. On the second day of Christmas
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7. Santa Who?
 
@@ -70,14 +91,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -86,6 +104,17 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-branding-excellence-youtube-naming-masterclass/"><u>[Updated] 2024 Approved Branding Excellence YouTube Naming Masterclass</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-dancefloor-directives-expert-dj-video-downloads/"><u>[Updated] In 2024, Dancefloor Directives Expert DJ Video Downloads</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-visual-vibes-top-story-filter-rankings/"><u>[Updated] In 2024, Visual Vibes Top Story Filter Rankings</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-get-the-newest-drivers-for-your-canon-mg3000/"><u>How to Get the Newest Drivers for Your Canon MG3000</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-design-strategies-for-top-tier-valorant-thumbnails-on-social-media/"><u>In 2024, Design Strategies for Top-Tier Valorant Thumbnails on Social Media</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-enhancing-narrative-flow-integrating-chapters-into-your-youtube-content/"><u>In 2024, Enhancing Narrative Flow Integrating Chapters Into Your YouTube Content</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Asus ROG Phone 8 Pro? | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-unleash-your-creativity-top-free-green-screen-apps-for-mobile-for-2024/"><u>New Unleash Your Creativity Top Free Green Screen Apps for Mobile for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-guide-to-producing-hysterical-youtube-video-reactions-3-key-techniques-for-2024/"><u>The Ultimate Guide to Producing Hysterical YouTube Video Reactions (3 Key Techniques) for 2024</u></a></li>
+</ul></div>
 

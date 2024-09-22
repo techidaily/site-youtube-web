@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step Guide to Brighter YouTube Video Editing for 2024\""
-date: 2024-07-13T04:39:49.564Z
-updated: 2024-07-14T04:39:49.564Z
+date: 2024-09-18T03:49:14.379Z
+updated: 2024-09-21T18:19:14.407Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ Ceiling lights are also typically situated in the center of a room in order to l
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
@@ -74,6 +81,13 @@ The first thing you’ll want to do to set up studio lighting in your home is to
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -89,6 +103,13 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
@@ -103,14 +124,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,6 +137,17 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/new-the-ultimate-resource-50plus-no-fee-visual-effects-websites-reviewed/"><u>[New] The Ultimate Resource 50+ No-Fee Visual Effects Websites Reviewed</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-viewing-experience-activating-av1-codec-on-youtube/"><u>[Updated] Elevate Viewing Experience Activating AV1 Codec on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-leveraging-view-counts-for-financial-freedom-online-for-2024/"><u>[Updated] Leveraging View Counts for Financial Freedom Online for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-partnered-filmmaking-expand-your-channels-reach/"><u>2024 Approved Partnered Filmmaking Expand Your Channel's Reach</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/explore-top-affordable-online-resources-your-dream-toolkit-for-visual-filmmaking-for-2024/"><u>Explore Top Affordable Online Resources - Your Dream Toolkit for Visual Filmmaking for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-turn-off-default-public-tags-everyone/"><u>How To Turn Off Default Public Tags (@Everyone)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-cut-the-boring-watch-these-15-hilarious-youtube-bites/"><u>In 2024, Cut the Boring, Watch These 15 Hilarious YouTube Bites</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-essential-game-editor-tools-for-novices/"><u>In 2024, Essential Game Editor Tools for Novices</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/instantaneously-deploying-smart-agents-online-via-agentgpt/"><u>Instantaneously Deploying Smart Agents Online via AgentGPT</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/paramountplus-unsubscribing-process-explained-in-detail/"><u>Paramount+ Unsubscribing Process Explained in Detail</u></a></li>
+</ul></div>
 

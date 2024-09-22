@@ -1,7 +1,7 @@
 ---
 title: "Strategies for Success in Work and Online Creation"
-date: 2024-09-15T03:32:55.537Z
-updated: 2024-09-16T17:31:09.753Z
+date: 2024-09-17T03:05:41.041Z
+updated: 2024-09-22T04:41:06.329Z
 tags:
   - ai video
   - ai youtube
@@ -59,22 +59,35 @@ A notebook planner is essential for keeping my life organized and on track. When
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115942/19272" target="_top" id="2115942">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115942" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115942/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
 
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
 
@@ -83,13 +96,6 @@ Wondershare Filmora is one application that people prefer over any other video e
 Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -114,19 +120,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-foster-viewer-connection-easy-anime-subscribe-buttons-for-youtube-creators/"><u>[New] In 2024, Foster Viewer Connection Easy Anime Subscribe Buttons for YouTube Creators</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-streamlining-your-workflow-with-macs-finest-snipers/"><u>[New] In 2024, Streamlining Your Workflow with Mac's Finest Snipers</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-direct-link-method-for-iphone-picture-sharing/"><u>[Updated] 2024 Approved Direct Link Method for iPhone Picture Sharing</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-premier-digital-classrooms-alternatives-to-udemys-model/"><u>[Updated] 2024 Approved Premier Digital Classrooms Alternatives to Udemy's Model</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-exclusive-insta-stories-for-private-eyes-for-2024/"><u>[Updated] Exclusive Insta Stories for Private Eyes for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-free-youtube-image-saver-compilation/"><u>[Updated] In 2024, Free YouTube Image Saver Compilation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-how-to-add-custom-thumbnails-to-your-youtube-videos/"><u>[Updated] In 2024, How To Add Custom Thumbnails to Your YouTube Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ultimate-blueprint-for-striking-youtube-channel-designs/"><u>[Updated] In 2024, The Ultimate Blueprint for Striking YouTube Channel Designs</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-mastering-the-art-of-youtube-video-submissions-for-maximum-reach/"><u>2024 Approved Mastering the Art of YouTube Video Submissions for Maximum Reach</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/affordable-alexa-and-ultra-hd-insignia-ns-43df710na19-fire-tv-edition-a-comprehensive-review/"><u>Affordable Alexa & Ultra HD Insignia NS-43DF710NA19 Fire TV Edition - A Comprehensive Review</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ge-income-for-popular-youtube-creators-for-2024/"><u>Average Income for Popular YouTube Creators for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-get-the-apple-id-verification-code-on-iphone-xs-max-in-the-best-ways-by-drfone-ios/"><u>In 2024, How To Get the Apple ID Verification Code On iPhone XS Max in the Best Ways</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/1723042224141-in-depth-review-of-suminds-best-selling-bluetooth-bt70b-transmitter-a-must-have-for-every-driver/"><u>In-Depth Review of Sumind's Best Selling Bluetooth BT70B Transmitter: A Must-Have for Every Driver</u></a></li>
-<li><a href="https://extra-information.techidaily.com/navigating-lunapic-like-an-ace-photographer/"><u>Navigating LunaPic Like an Ace Photographer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/void-oversaturated-greenscreen-effective-strategies-for-mac-editors-for-2024/"><u>[New] Avoid Oversaturated Greenscreen Effective Strategies for Mac Editors for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/opyright-laws-and-screencasting-of-online-video-platforms-youtube/"><u>[New] Copyright Laws and Screencasting of Online Video Platforms (YouTube)</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-clear-screen-clear-content-how-to-disable-youtube-channels-efficiently/"><u>[Updated] 2024 Approved Clear Screen, Clear Content How to Disable YouTube Channels Efficiently</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-fashion-your-snaps-top-trendy-augmentations-revealed/"><u>[Updated] In 2024, Fashion Your Snaps Top Trendy Augmentations Revealed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-seamless-offline-experience-best-playlist-downloader-tools-reviewed-for-2024/"><u>[Updated] Seamless Offline Experience Best Playlist Downloader Tools Reviewed for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-social-media-savvy-top-trending-hashtags-for-youtubers/"><u>2024 Approved Social Media Savvy Top Trending Hashtags for Youtubers</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/enhanced-audio-sensations-sony-style/"><u>Enhanced Audio Sensations, Sony Style</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-cutting-edge-filmmaking-techniques-youtubes-insights-and-competitors/"><u>In 2024, Cutting-Edge Filmmaking Techniques YouTube's Insights & Competitors</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-infinix-smart-8-hd-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Infinix Smart 8 HD to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-master-the-art-of-youtube-video-sizing-shape-and-clarity/"><u>In 2024, Master the Art of YouTube Video Sizing, Shape & Clarity</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/optimizing-your-sites-structure-key-techniques-for-enhanced-page-ranking/"><u>Optimizing Your Site's Structure: Key Techniques for Enhanced Page Ranking</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/g-to-the-top-essential-youtube-video-seo-techniques-for-success-for-2024/"><u>Rising to the Top Essential YouTube Video SEO Techniques for Success for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-complete-strategy-for-email-whitelisting-best-practices-revealed/"><u>The Complete Strategy for Email Whitelisting - Best Practices Revealed</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-9-oppo-f25-pro-5g-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>Top 9 Oppo F25 Pro 5G Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
 </ul></div>
 

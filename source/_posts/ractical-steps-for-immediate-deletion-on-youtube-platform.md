@@ -1,7 +1,7 @@
 ---
 title: "[New] Practical Steps for Immediate Deletion on Youtube Platform"
-date: 2024-09-13T18:27:30.866Z
-updated: 2024-09-16T21:05:11.042Z
+date: 2024-09-17T03:15:06.206Z
+updated: 2024-09-22T02:00:56.536Z
 tags:
   - ai video
   - ai youtube
@@ -88,19 +88,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -121,6 +108,20 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -131,22 +132,15 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094476/7443" target="_top" id="2094476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
@@ -181,18 +175,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-chasing-likes-and-loads-jake-pauls-youtube-ambition/"><u>[New] In 2024, Chasing Likes and Loads Jake Paul's YouTube Ambition</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-mitigating-the-risk-of-youtube-sanctions/"><u>[New] In 2024, Mitigating the Risk of YouTube Sanctions</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/aint-a-picture-of-perfection-chromatic-mastery-for-beauty/"><u>[New] Paint a Picture of Perfection Chromatic Mastery for Beauty</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-unrivaled-unity-30plus-creative-biography-approaches-for-increasing-views-and-followers-with-filmora-for-2024/"><u>[Updated] Unrivaled Unity 30+ Creative Biography Approaches for Increasing Views and Followers with Filmora for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/constructing-infinite-realms-a-look-at-video-game-worlds/"><u>Constructing Infinite Realms: A Look at Video Game Worlds</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/enhancing-visual-quests-hunt-for-pristine-pexels-images-for-2024/"><u>Enhancing Visual Quests Hunt for Pristine Pexels Images for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/how-is-generative-ai-emerging-as-a-potential-instrument-of-misinformation/"><u>How Is Generative AI Emerging as a Potential Instrument of Misinformation?</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/how-to-erase-files-for-good-on-your-windows-11-and-11-desktop-bin/"><u>How to Erase Files for Good on Your Windows 11 & 11 Desktop Bin</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-edit-like-a-pro-with-any-of-these-top-7-free-options/"><u>In 2024, Edit Like a Pro with Any of These Top 7 Free Options</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-use-google-assistant-on-your-lock-screen-of-google-pixel-7a-phone-by-drfone-android/"><u>In 2024, How to Use Google Assistant on Your Lock Screen Of Google Pixel 7a Phone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-kickstarting-creativity-an-equipment-guide-for-beginners/"><u>In 2024, Kickstarting Creativity An Equipment Guide for Beginners</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-superior-approaches-turning-visual-content-into-music-files/"><u>In 2024, Superior Approaches Turning Visual Content Into Music Files</u></a></li>
-<li><a href="https://win11.techidaily.com/overcome-xbox-app-issues-on-your-windows-system/"><u>Overcome Xbox App Issues on Your Windows System</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-the-complete-handbook-to-excellent-youtube-audio-production/"><u>[New] The Complete Handbook to Excellent YouTube Audio Production</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-android-and-iphone-the-ultimate-guide-to-saving-tiktok/"><u>[Updated] Android & iPhone The Ultimate Guide to Saving TikTok</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-how-to-see-your-subscribers-on-youtube/"><u>[Updated] In 2024, How to See Your Subscribers on YouTube?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-from-songs-to-symphony-building-a-cohesive-youtube-playlist-on-webapp/"><u>2024 Approved From Songs to Symphony Building a Cohesive YouTube Playlist on Web/App</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/3-smart-and-simple-ways-to-change-home-address-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>3 Smart and Simple Ways to Change Home Address on Apple iPhone 11 | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/essential-framework-for-techno-story-making-for-2024/"><u>Essential Framework for Techno Story Making for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/fast-track-window-11-apps-essential-tips/"><u>Fast-Track Window 11 Apps: Essential Tips</u></a></li>
+<li><a href="https://win-able.techidaily.com/how-to-prevent-snowrunner-from-regularly-crashing-on-your-computer-troubleshooting-steps-inside/"><u>How to Prevent SnowRunner From Regularly Crashing on Your Computer - Troubleshooting Steps Inside</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-6-ways-to-change-spotify-location-on-your-poco-x5-drfone-by-drfone-virtual-android/"><u>In 2024, 6 Ways to Change Spotify Location On Your Poco X5 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-everything-you-need-to-know-about-the-youtube-shorts-fund/"><u>In 2024, Everything You Need to Know About the YouTube Shorts Fund</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-honor-90-pro-for-mobile-legends-drfone-by-drfone-virtual-android/"><u>In 2024, How To Fake GPS On Honor 90 Pro For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-video-vanguard-showdown-which-is-worthier-obs-or-twitch-studio/"><u>In 2024, Video Vanguard Showdown Which Is Worthier, OBS or Twitch Studio?</u></a></li>
 </ul></div>
 

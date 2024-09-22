@@ -1,7 +1,7 @@
 ---
 title: "\"Snappy Sharing  Uploading and Publishing Short Videos Online for 2024\""
-date: 2024-07-13T04:45:34.220Z
-updated: 2024-07-14T04:45:34.220Z
+date: 2024-09-18T20:15:24.079Z
+updated: 2024-09-22T02:34:53.735Z
 tags:
   - ai video
   - ai youtube
@@ -128,6 +128,19 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<span id="1993647">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -136,20 +149,30 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -158,6 +181,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-elevate-your-youtube-content-editing-in-adobe-premiere/"><u>[New] 2024 Approved Elevate Your YouTube Content Editing in Adobe Premiere</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-ultimate-guide-to-closing-videos-effectively/"><u>[New] In 2024, The Ultimate Guide to Closing Videos Effectively</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/opics-with-a-twist-for-your-vlog-talks-for-2024/"><u>[New] Topics with a Twist for Your Vlog Talks for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-expanding-creative-horizons-with-ae-fonts/"><u>[Updated] 2024 Approved Expanding Creative Horizons with AE Fonts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-youtube-as-a-learning-tool-insider-advice-for-teachers/"><u>[Updated] 2024 Approved YouTube as a Learning Tool Insider Advice for Teachers</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-key-elements-of-attractive-fb-video-commercials/"><u>[Updated] In 2024, Key Elements of Attractive FB Video Commercials</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-top-6-best-8k-cameras/"><u>[Updated] Top 6 Best 8K Cameras</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-unlock-video-potential-premium-lens-selection-tips/"><u>2024 Approved Unlock Video Potential Premium Lens Selection Tips</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-fixes-for-when-your-playstation-4-mic-stops-working-a-step-by-step-solution/"><u>Effective Fixes for When Your PlayStation 4 Mic Stops Working: A Step-by-Step Solution</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-vivo-s18e-and-browser-drfone-by-drfone-virtual-android/"><u>In 2024, Prevent Cross-Site Tracking on Vivo S18e and Browser | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-telegram-web-a-beginners-walkthrough-for-2024/"><u>Mastering Telegram Web A Beginner's Walkthrough for 2024</u></a></li>
+</ul></div>
 

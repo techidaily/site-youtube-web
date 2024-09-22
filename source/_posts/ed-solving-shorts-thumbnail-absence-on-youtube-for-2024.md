@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Solving Shorts Thumbnail Absence on YouTube for 2024"
-date: 2024-09-09T21:09:04.436Z
-updated: 2024-09-16T19:03:17.248Z
+date: 2024-09-19T22:59:00.772Z
+updated: 2024-09-21T22:36:30.769Z
 tags:
   - ai video
   - ai youtube
@@ -116,15 +116,22 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### On a Mobile Phone
@@ -137,13 +144,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-2.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Tap "Library"
 
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
@@ -152,16 +152,16 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![liked videos section on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-4.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Select the Shorts video you just watched. It should be at the top of the list.
 
 ![watching shorts like normal video mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-5.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -203,13 +203,6 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 
 ![library tab on the youtube website](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-3.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Select the Shorts you just watched. It should be on the top and first on the list.
 
 ![playing shorts video like normal video](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-pc-4.JPG)
@@ -221,10 +214,10 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 ![watching a shorts video on mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-1.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Like the Shorts video.
@@ -234,6 +227,13 @@ You can watch Shorts like normal YouTube videos where you can rewind when you wa
 * Tap "Library"
 
 ![library tab on youtube mobile](https://images.wondershare.com/filmora/article-images/shorts-thumbnail-faqs-play-mobile-3.JPG)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934138/19272" target="_top" id="1934138">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934138" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934138/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Scroll down to find "Liked Videos." Click on it.
 
@@ -270,14 +270,19 @@ Users can subscribe to Shorts channels. And if they see that your videos are wel
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-restore-order-fixing-compromised-fb-profile/"><u>[New] In 2024, Restore Order Fixing Compromised Fb Profile</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-thumbnails-that-captivate-a-professionals-guide-to-visual-lures/"><u>[New] In 2024, Thumbnails That Captivate A Professional's Guide to Visual Lures</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/treamlining-your-iphones-video-loops/"><u>[New] Streamlining Your iPhones Video Loops</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-from-novice-to-pro-transforming-zoom-into-a-youtube-live-staple/"><u>[Updated] 2024 Approved From Novice to Pro Transforming Zoom Into a YouTube Live Staple</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-in-2024-top-picks-for-personalizing-mbp-screens-with-skins/"><u>[Updated] In 2024, Top Picks for Personalizing MBP Screens with Skins</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-asus-rog-phone-8-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Asus ROG Phone 8 to iPhone | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-channel-branding-made-simple-and-free/"><u>In 2024, Channel Branding Made Simple & Free</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Lava Blaze Curve 5G? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-motorola-moto-g13-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Motorola Moto G13 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/alculator-projected-profits-from-youtube/"><u>[New] Calculator Projected Profits From YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/clipsing-fears-in-your-first-10-videos-for-2024/"><u>[New] Eclipsing Fears in Your First 10 Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-strategies-for-full-time-workers-who-create-videos/"><u>[New] In 2024, Strategies for Full-Time Workers Who Create Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-unveiling-10-inspirational-workout-plans-for-video-creators/"><u>[New] In 2024, Unveiling 10 Inspirational Workout Plans for Video Creators</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-skyline-of-success-stardews-top-7-upgrades-review/"><u>[New] Skyline of Success Stardew's Top 7 Upgrades Review</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-crafting-compelling-narratives-with-facebook-cover-vids/"><u>[Updated] 2024 Approved Crafting Compelling Narratives with Facebook Cover Vids</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-perfect-game-video-edits-made-easy-for-newcomers/"><u>[Updated] 2024 Approved Perfect Game Video Edits Made Easy for Newcomers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-from-viewers-to-vips-ajays-strategy-for-sustainable-income-streams/"><u>[Updated] In 2024, From Viewers to VIPs Ajay's Strategy for Sustainable Income Streams</u></a></li>
+<li><a href="https://win-blog.techidaily.com/convertissez-un-fichier-rw2-en-jpeg-gratuitement-sur-linternet-groupe-mouvavi/"><u>Convertissez Un Fichier RW2 en JPEG Gratuitement Sur L'Internet - Groupe Mouvavi</u></a></li>
+<li><a href="https://win-community.techidaily.com/decouvrez-les-meilleures-solutions-denregistrement-decran-pour-pc-portable-avec-movavi-en-tete/"><u>Découvrez Les Meilleures Solutions D'enregistrement D'écran Pour PC Portable Avec Movavi en Tête !</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-oneplus-nord-ce-3-lite-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your OnePlus Nord CE 3 Lite 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-navigating-earnings-skyward-youtube-analytics-and-advertising-guide/"><u>In 2024, Navigating Earnings Skyward YouTube Analytics & Advertising Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/keyboard-woes-repairing-damaged-up-down-left-and-right-arrow-keys/"><u>Keyboard Woes: Repairing Damaged Up, Down, Left and Right Arrow Keys</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-contacts-from-realme-11x-5g-by-fonelab-android-recover-contacts/"><u>Undelete lost contacts from Realme 11X 5G.</u></a></li>
 </ul></div>
 

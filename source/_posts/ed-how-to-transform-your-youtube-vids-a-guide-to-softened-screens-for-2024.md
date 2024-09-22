@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How to Transform Your Youtube Vids  A Guide to Softened Screens for 2024\""
-date: 2024-07-13T04:43:23.867Z
-updated: 2024-07-14T04:43:23.867Z
+date: 2024-09-15T18:36:43.264Z
+updated: 2024-09-21T23:46:23.555Z
 tags:
   - ai video
   - ai youtube
@@ -84,6 +84,13 @@ Go to the **Effects** tab and then switch to the **Utility** menu under **Includ
 
 ![Filmora Tilt-Shift effects](https://images.wondershare.com/filmora/article-images/tilt-shift-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here, I will select the **Tilt-Shift Circle** effect and drop it to the track above the video. Now, you can adjust the size, position, and intensity of the tilt-shift circle effect
 
 ![Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
@@ -91,6 +98,13 @@ Here, I will select the **Tilt-Shift Circle** effect and drop it to the track ab
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -100,14 +114,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -116,6 +127,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/eginners-blueprint-for-youtube-income-growth-for-2024/"><u>[New] Beginner's Blueprint for YouTube Income Growth for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-optimize-video-flows-5-steps-for-expert-cutting-and-lengthening-of-vimeo-content-for-2024/"><u>[New] Optimize Video Flows 5 Steps for Expert Cutting & Lengthening of Vimeo Content for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mart-strategies-for-entrepreneurial-video-marketing-for-2024/"><u>[New] SMART Strategies for Entrepreneurial Video Marketing for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-next-gen-videostreaming-hubs-triumph-beyond-youtube/"><u>2024 Approved Next-Gen Videostreaming Hubs Triumph Beyond Youtube</u></a></li>
+<li><a href="https://facebook.techidaily.com/essential-tweaks-for-a-personalized-facebook-experience-on-phone/"><u>Essential Tweaks for a Personalized Facebook Experience on Phone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Tecno Phantom V Flip | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-realme-v30-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Realme V30? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-infinix-hot-30-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, Top 5 Tracking Apps to Track Infinix Hot 30 5G without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/pth-how-vimeo-stacks-up-against-youtube-for-2024/"><u>In-Depth How Vimeo Stacks Up Against YouTube for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/softbox-mastery-the-ultimate-guide-to-lights-of-2024/"><u>SoftBox Mastery - The Ultimate Guide to Lights of 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/space-saver-computing-essentials-fanless-intel-n100-windows-11-with-16gb-ram-and-fast-emmc-storage/"><u>Space-Saver Computing Essentials: Fanless Intel N100, Windows 11 with 16GB RAM and Fast eMMC Storage</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rt-of-amplifying-popularity-on-youtube-for-2024/"><u>The Art of Amplifying Popularity on YouTube for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/top-tricks-to-document-league-of-legends-games-efficiently/"><u>Top Tricks to Document League of Legends Games Efficiently</u></a></li>
+</ul></div>
 

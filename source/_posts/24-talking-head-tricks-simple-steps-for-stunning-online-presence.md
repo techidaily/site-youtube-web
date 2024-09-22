@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Talking-Head Tricks  Simple Steps for Stunning Online Presence\""
-date: 2024-09-09T23:44:41.765Z
-updated: 2024-09-16T19:24:59.278Z
+date: 2024-09-19T21:19:47.447Z
+updated: 2024-09-22T00:37:07.661Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,19 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
+<!-- affiliate ads begin -->
+<span id="2135471">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135471%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135471/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -81,10 +94,10 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -109,13 +122,6 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -139,18 +145,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-shooter-showdown-the-ultimate-battle-for-game-supremacy/"><u>[New] 2024 Approved Shooter Showdown The Ultimate Battle for Game Supremacy</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-2024-approved-unique-and-effective-the-best-username-options-to-dominate-tiktok/"><u>[New] 2024 Approved Unique and Effective The Best Username Options to Dominate TikTok</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-juggling-jargons-an-experts-guide-to-multiple-youtube-views/"><u>[New] In 2024, Juggling Jargons An Expert's Guide to Multiple YouTube Views</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-navigate-beyond-conventional-webcam-uses/"><u>[Updated] 2024 Approved Navigate Beyond Conventional Webcam Uses</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-exclusive-mcb-logo-designs-and-templates/"><u>[Updated] In 2024, Exclusive MCB Logo Designs and Templates</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-simplified-social-media-sharing-youtube-to-facebook/"><u>[Updated] In 2024, Simplified Social Media Sharing YouTube to Facebook</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-turn-your-youtube-shorts-into-a-stream-of-income-for-2024/"><u>[Updated] Turn Your YouTube Shorts Into a Stream of Income for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-video-selfie-mastery-tips-from-top-youtubers/"><u>[Updated] Video Selfie Mastery Tips From Top YouTubers</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-tecno-spark-10-4g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Tecno Spark 10 4G | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-making-an-impact-professional-thumbnail-design-for-youtube/"><u>In 2024, Making an Impact Professional Thumbnail Design for YouTube</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/secrets-revealed-best-8-costless-3d-vids-software-on-pcmac/"><u>Secrets Revealed Best 8 Costless 3D Vids Software on PC/Mac</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/top-meme-maker-apps-for-android-and-ios-devices-2023-update/"><u>Top Meme Maker Apps for Android & iOS Devices (2023 Update)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/el-the-revenue-riddle-googles-guided-triple-steps-to-youtube-income-analysis/"><u>Unravel the Revenue Riddle Google's Guided Triple Steps to YouTube Income Analysis</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/1716070288067-new-2024-approved-easy-gaming-memories-start-recording-now/"><u>[New] 2024 Approved Easy Gaming Memories Start Recording Now!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/est-youtube-live-streaming-software-and-hardware-you-should-know-for-2024/"><u>[New] Best YouTube Live Streaming Software and Hardware You Should Know for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-monthly-income-on-youtubes-revenue-model/"><u>[New] In 2024, Monthly Income on YouTube's Revenue Model?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-navigating-the-intersection-of-youtube-and-fb-video-posts-for-2024/"><u>[Updated] Navigating the Intersection of YouTube and FB Video Posts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/youtube-video-to-text-converters-online/"><u>Best YouTube Video to Text Converters Online</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-hp-officejet-pro-product-model-number-drivers-for-your-pc-now/"><u>Get the Latest HP OfficeJet Pro ([Product Model Number]) Drivers for Your PC Now</u></a></li>
+<li><a href="https://techidaily.com/how-to-recover-data-from-apple-iphone-13-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How To Recover Data from Apple iPhone 13? | Dr.fone</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-synching-melodies-to-photos-virtually/"><u>In 2024, Synching Melodies to Photos Virtually</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-leading-online-video-promo-builders/"><u>New Leading Online Video Promo Builders</u></a></li>
+<li><a href="https://howto.techidaily.com/reasons-for-htc-u23-pro-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for HTC U23 Pro Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/top-10-video-editing-and-repair-tools-for-windowsmac-users/"><u>Top 10 Video Editing & Repair Tools for Windows/Mac Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-mastery-on-the-move-crafting-impactful-video-thumbnails-mobile/"><u>YouTube Mastery on the Move Crafting Impactful Video Thumbnails (Mobile)</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Script to Splendor  Animating Effects Unbound for 2024\""
-date: 2024-07-13T04:44:13.085Z
-updated: 2024-07-14T04:44:13.085Z
+date: 2024-09-15T22:15:40.292Z
+updated: 2024-09-21T18:06:28.353Z
 tags:
   - ai video
   - ai youtube
@@ -60,11 +60,31 @@ What’s great about this course is that it assumes you have no animation experi
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## ** Video Copilot
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
+  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -72,14 +92,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -88,6 +105,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-mastering-obs-mobile-top-techniques/"><u>[New] 2024 Approved Mastering OBS Mobile Top Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-snapshot-showdown-youtube-shorts-challenge-to-the-titans-of-tiktok/"><u>[New] 2024 Approved Snapshot Showdown YouTube Shorts Challenge to the Titans of TikTok</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-trendsetters-tunes-hits-of-the-week-for-yt-shorts-soundtracks/"><u>[Updated] 2024 Approved Trendsetters’ Tunes Hits of the Week for YT Shorts Soundtracks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-ultimate-microphone-choices-for-filmmakers/"><u>[Updated] 2024 Approved Ultimate Microphone Choices for Filmmakers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-easing-into-your-youtube-watches-3-methods-50-chars-for-2024/"><u>[Updated] Easing Into Your YouTube Watches 3 Methods (50 Chars) for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expert-opinions-on-netgears-revolutionary-mesh-wifi-solution-the-nighthawk-x4/"><u>Expert Opinions on Netgear's Revolutionary Mesh WiFi Solution, The Nighthawk X4</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-nokia-g310-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Nokia G310 to Roku | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-everything-to-know-about-apple-id-password-requirements-for-iphone-12-mini-by-drfone-ios/"><u>In 2024, Everything To Know About Apple ID Password Requirements For iPhone 12 mini</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-expert-choices-best-video-cards-for-youtubes-clearest-output/"><u>In 2024, Expert Choices Best Video Cards for YouTube's Clearest Output</u></a></li>
+</ul></div>
 

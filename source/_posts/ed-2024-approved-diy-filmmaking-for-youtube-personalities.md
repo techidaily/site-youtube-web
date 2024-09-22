@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY Filmmaking for YouTube Personalities\""
-date: 2024-07-13T04:41:33.178Z
-updated: 2024-07-14T04:41:33.178Z
+date: 2024-09-20T03:08:17.461Z
+updated: 2024-09-22T04:10:23.846Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -91,6 +98,19 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
@@ -105,14 +125,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,6 +138,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ow-to-elevate-youtube-broadcasts-select-the-right-webcam-for-2024/"><u>[New] How to Elevate YouTube Broadcasts Select the Right Webcam for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-crafting-a-stellar-visual-identity-the-ultimate-guide-to-yt-design/"><u>[Updated] Crafting a Stellar Visual Identity The Ultimate Guide to YT Design</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-seize-visual-riches-from-four-premium-youtube-portals/"><u>[Updated] Seize Visual Riches From Four Premium YouTube Portals</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/11-cutting-edge-techniques-for-optimizing-your-fb-videos/"><u>11 Cutting-Edge Techniques for Optimizing Your FB Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-16-crowning-youtube-opens-for-enhanced-reach/"><u>2024 Approved 16 Crowning YouTube Opens for Enhanced Reach</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-exclusive-tips-for-dominating-the-instagram-story-space/"><u>2024 Approved Exclusive Tips for Dominating the Instagram Story Space</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/free-upgrades-with-blackberry-video-converter-factory-a-complete-tutorial-for-beginners/"><u>Free Upgrades with BlackBerry Video Converter Factory: A Complete Tutorial for Beginners</u></a></li>
+<li><a href="https://android-frp.techidaily.com/how-can-we-bypass-samsung-galaxy-s23-tactical-edition-frp-by-drfone-android/"><u>How Can We Bypass Samsung Galaxy S23 Tactical Edition FRP?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-best-12-youtube-gaming-intro-makers-free-and-paid/"><u>In 2024, Best 12 YouTube Gaming Intro Makers - Free and Paid</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-rank-higher-with-youtube-shorts-a-guide-to-making-a-difference/"><u>In 2024, Rank Higher with YouTube Shorts A Guide to Making a Difference</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Apple iPhone 14 Plus | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-the-art-of-motion-creating-engaging-profitable-fb-ads-for-2024/"><u>Mastering the Art of Motion Creating Engaging, Profitable FB Ads for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ltimate-comparison-of-gif-creators-for-2024/"><u>The Ultimate Comparison of GIF Creators for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/unlocking-advanced-features-with-function-keys-in-microsoft-excel-everything-you-need-to-know/"><u>Unlocking Advanced Features with Function Keys in Microsoft Excel - Everything You Need to Know</u></a></li>
+</ul></div>
 

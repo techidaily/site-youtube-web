@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Easy Way  Adding External YT Videos to Your PowerPoint Sessions\""
-date: 2024-09-11T01:33:50.107Z
-updated: 2024-09-16T18:10:05.699Z
+date: 2024-09-20T20:40:36.164Z
+updated: 2024-09-22T02:04:10.026Z
 tags:
   - ai video
   - ai youtube
@@ -79,13 +79,6 @@ Launch MS PowerPoint 2016, click **Insert** from the menu bar at the top, from t
 
 Paste the embed code you copied earlier in the **Paste embed code here** field present next to the **From a Video Embed Code** option, and press **Enter** to **embed YouTube video in PowerPoint**.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Method 3: Insert YouTube Video into PowerPoint by Searching Names (For Microsoft PowerPoint 2016)
 
 Microsoft Office 2016 has another lucrative feature that allows users to **embed YouTube video in PowerPoint** by searching its name. You can follow the steps given below to find the videos published on YouTube, and insert them to your presentation:
@@ -118,6 +111,13 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
 Depending on the version of Microsoft Office you are using, you may or may not be able to embed a YouTube video in PowerPoint. Also, if your version of PowerPoint allows you to do so, the interface and the options may vary from those you see on your friends’ computer or in some online tutorials.
@@ -132,6 +132,19 @@ That said, the following table gives a clear picture of which version of Microso
 | PowerPoint 2013             | No                     | No                                           | Yes                                          | No                                  |
 | PowerPoint 2010             | No                     | No (Adobe Flash Player Support Discontinued) | No (Adobe Flash Player Support Discontinued) | No                                  |
 | PowerPoint 365/2019 for Mac | Yes                    | No                                           | No                                           | No                                  |
+
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Frequently Asked Questions About Embedding YouTube Videos in PowerPoint
 
@@ -157,13 +170,6 @@ Although the above sections explain **how to embed a YouTube video in PowerPoint
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -185,19 +191,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-how-to-live-stream-facebook-from-pc-mac-or-laptop-with-obs/"><u>[New] 2024 Approved How to Live Stream Facebook From PC, Mac or Laptop with OBS</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-the-perfect-frame-a-guide-to-polishing-videos-with-instagram-edits/"><u>[New] 2024 Approved The Perfect Frame A Guide to Polishing Videos with Instagram Edits</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-essential-free-services-for-designing-impactful-youtube-intros/"><u>[New] In 2024, Essential Free Services for Designing Impactful YouTube Intros</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-screenfreedom-pro-the-unpriced-gaming-recorder/"><u>[New] ScreenFreedom Pro The Unpriced Gaming Recorder</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-climbing-the-youtube-search-rankings-key-seo-strategies-unveiled/"><u>[Updated] 2024 Approved Climbing the YouTube Search Rankings Key SEO Strategies Unveiled</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unleash-youtube-potential-best-mp4-editors-on-mac/"><u>[Updated] 2024 Approved Unleash YouTube Potential Best MP4 Editors on Mac</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-asus-proart-pa32u-review-4k-hdr-professional-monitor-review/"><u>[Updated] ASUS ProArt PA32U Review 4K HDR Professional Monitor Review</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-boosting-earnings-in-the-quick-flicks-of-youtube-shorts/"><u>[Updated] In 2024, Boosting Earnings in the Quick Flicks of YouTube Shorts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-mastering-online-income-from-youtubes-adsense-to-direct-payments/"><u>[Updated] In 2024, Mastering Online Income From YouTube's AdSense to Direct Payments</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-tailored-gaming-journey-disabling-crossplay-for-solo-apex-players/"><u>[Updated] Tailored Gaming Journey - Disabling Crossplay for Solo Apex Players</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/effective-methods-to-rectify-your-fortnite-microphone-malfunction/"><u>Effective Methods to Rectify Your Fortnite Microphone Malfunction</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-f25-pro-5g-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo F25 Pro 5G to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-7-plus-apples-new-iphone-drfone-by-drfone-ios/"><u>How to Unlock iPhone 7 Plus, Apples New iPhone | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ring-the-art-of-self-talk-in-online-videos-for-2024/"><u>Mastering the Art of Self-Talk in Online Videos for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-unleashing-content-extract-vimeo-videos-as-mp4/"><u>[New] 2024 Approved Unleashing Content Extract Vimeo Videos as MP4</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-a-compreranstive-approach-to-high-fidelity-recording-no-mic-necessary/"><u>[Updated] In 2024, A Compreranstive Approach to High-Fidelity Recording, No Mic Necessary</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-discovering-10-superior-history-educational-videos/"><u>2024 Approved Discovering 10 Superior History Educational Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-how-to-fix-the-youtube-shorts-not-showing-up-issue/"><u>2024 Approved How to Fix the YouTube Shorts Not Showing Up Issue?</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-ultimate-guide-to-10-must-have-ig-video-editing-tools/"><u>2024 Approved The Ultimate Guide to 10 Must-Have IG Video Editing Tools</u></a></li>
+<li><a href="https://extra-information.techidaily.com/amplify-your-youtube-audience-three-livestream-strategies-for-2024/"><u>Amplify Your YouTube Audience Three Livestream Strategies for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/clicks-to-cash-the-journey-of-youtubes-ajay-nagar/"><u>From Clicks to Cash The Journey of YouTube's Ajay Nagar</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-6s-plus-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone 6s Plus Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/mastering-low-light-captures-on-your-iphone-for-2024/"><u>Mastering Low-Light Captures on Your IPhone for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/sub-from-srt-effective-techniques-for-format-shift-for-2024/"><u>SUB From SRT Effective Techniques for Format Shift for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/the-free-game-recording-software-of-2024/"><u>The Free Game Recording Software of 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/top-tips-for-eliminating-lag-in-counter-strike-2-across-all-pc-platforms/"><u>Top Tips for Eliminating Lag in Counter-Strike 2 Across All PC Platforms</u></a></li>
 </ul></div>
 
