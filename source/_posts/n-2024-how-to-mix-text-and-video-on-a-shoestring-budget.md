@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, How to Mix Text & Video on a Shoestring Budget"
-date: 2024-09-15T00:41:40.534Z
-updated: 2024-09-21T18:00:43.367Z
+date: 2024-09-21T18:08:12.046Z
+updated: 2024-09-28T20:27:14.581Z
 tags:
   - ai video
   - ai youtube
@@ -55,15 +55,36 @@ Click on the Insert tab, and then choose the Video option from the Media menu. Y
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
 
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
+  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
@@ -87,6 +108,13 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -106,12 +134,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-influencers-utopia-summit/"><u>[New] 2024 Approved Influencers' Utopia Summit</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/xpert-tips-on-adding-yt-playlists-to-your-website-content/"><u>[New] Expert Tips on Adding YT Playlists to Your Website Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/xploring-vlogging-selecting-the-best-cameras-and-lenses-for-2024/"><u>[New] Exploring Vlogging Selecting the Best Cameras & Lenses for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-youtubes-prime-stream-essential-tech-equipment-guide-for-creators/"><u>[Updated] 2024 Approved YouTube's Prime Stream Essential Tech, Equipment Guide for Creators</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-ultimate-sj-cam-s6-review-the-pros-guide-for-2024/"><u>[Updated] Ultimate SJ-CAM S6 Review The Pro's Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-essential-guide-top-10-free-youtube-to-mp3-tools/"><u>2024 Approved Essential Guide Top 10 Free YouTube-to-MP3 Tools</u></a></li>
+<li><a href="https://video-capture.techidaily.com/2024-approved-the-artisans-approach-to-archiving-facebook-discussions/"><u>2024 Approved The Artisan's Approach to Archiving Facebook Discussions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-yt-shorts-soundtrack-hits-top-10-trending-sounds/"><u>2024 Approved YT Shorts Soundtrack Hits Top 10 Trending Sounds</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/correcting-missing-display-options-on-gpu/"><u>Correcting Missing Display Options on GPU</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixes-and-solutions-resolving-nier-automata-pc-game-crashes/"><u>Fixes and Solutions: Resolving Nier Automata PC Game Crashes</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-data-from-iphone-13-pro-to-android-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 13 Pro To Android devices? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-from-shared-laughter-to-your-storage-twitters-gif-guide/"><u>In 2024, From Shared Laughter to Your Storage Twitter's GIF Guide</u></a></li>
+<li><a href="https://facebook.techidaily.com/revitalizing-relationships-without-politics-in-sight/"><u>Revitalizing Relationships Without Politics in Sight</u></a></li>
+<li><a href="https://driver-download.techidaily.com/successful-guide-how-to-download-and-install-the-latest-intel-optane-drivers-on-your-windows-pc/"><u>Successful Guide: How to Download and Install the Latest Intel Optane Drivers on Your Windows PC</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] The Complete Manual to Perfect Proportions in YouTube Videos/Shorts/Ads"
-date: 2024-09-15T00:31:19.699Z
-updated: 2024-09-21T19:32:35.336Z
+date: 2024-09-22T00:15:34.269Z
+updated: 2024-09-28T19:59:51.089Z
 tags:
   - ai video
   - ai youtube
@@ -71,6 +71,13 @@ The world is moving swiftly, and with day passing, people want to complete their
 
 ![youtube shorts ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-ratio.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily follows Vertical format. Following are the requirement for YouTube Shorts Ratio:
 
 **Aspect Ratio:** Vertical format standard ratio is 9:16 (That fill up the entire screen vertically)
@@ -86,6 +93,13 @@ Other possible YouTube Shorts ratios are 4:5, 2:3, 1:2.
 If you want to monetize from your video or Shorts, use YouTube Ads to generate additional income. Or, if you are already in some business and want to grow your business, do it with YouTube Ads.
 
 ![youtube-ads-aspect-ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-ads-aspect-ratio.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now, you might be wondering, what would be the possible YouTube Outro size or YouTube Video Aspect Ratio for YouTube Ads? Check here:
 
@@ -105,13 +119,6 @@ Are you puzzled?
 
 ![how to set aspect ratio](https://images.wondershare.com/filmora/article-images/2021/how-to-set-aspect-ratio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Yeah! Wait, there is the solution. Edit the aspect ratio of your video before uploading it under the YouTube Platform. For that purpose, there is one option named [Wondershae Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) That is used to provide you with the Aspect ratio editing and modification option.
 
 Let's understand how you can do so with Wondershare Filmora that most YouTubers are using to edit and adjust the Aspect Ratio of YouTube Videos.
@@ -128,18 +135,25 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135407/19272" target="_top" id="2135407">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135407" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135407/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 There is another option also, after launching the software, upload your project video. Then, under Project settings, change and set the required aspect ratio.
 
 ![filmora project settings](https://images.wondershare.com/filmora/article-images/2021/filmora-project-settings.jpg)
 
-Simple isn't it. Yes, the process is quite simple. You can easily change YouTube Video size dimensions without any hassle using Wondershare Filmora editor and that quickly. So, get up and record some interesting YouTube videos or Shorts, mix them up with colors, spicy talk, and change the aspect ratio with ease. You are ready to rock the world of YouTube videos with these simple steps, the right approach that most YouTube Videomakers follow worldwide.
-
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Simple isn't it. Yes, the process is quite simple. You can easily change YouTube Video size dimensions without any hassle using Wondershare Filmora editor and that quickly. So, get up and record some interesting YouTube videos or Shorts, mix them up with colors, spicy talk, and change the aspect ratio with ease. You are ready to rock the world of YouTube videos with these simple steps, the right approach that most YouTube Videomakers follow worldwide.
 
 ## Conclusion
 
@@ -160,5 +174,21 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-pioneer-productions-leading-free-editors-on-android/"><u>[New] 2024 Approved Pioneer Productions Leading Free Editors on Android</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-scrutinizing-youtubes-comment-clusters/"><u>[New] 2024 Approved Scrutinizing YouTubes' Comment Clusters</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-digital-dexterity-fine-tuning-funny-videos-for-facebook-and-insta-laughs-for-2024/"><u>[New] Digital Dexterity Fine-Tuning Funny Videos for Facebook and Insta Laughs for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-best-practices-in-extracting-youtube-media/"><u>[Updated] 2024 Approved Best Practices in Extracting YouTube Media</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-comprehensible-guide-to-azure-voice-to-text/"><u>[Updated] Comprehensible Guide to Azure Voice to Text</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-command-center-redefined-your-pathway-through-studio/"><u>2024 Approved Command Center Redefined Your Pathway Through Studio</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-innovative-approaches-to-harvest-large-amounts-of-tiktok-media/"><u>2024 Approved Innovative Approaches to Harvest Large Amounts of TikTok Media</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-livestream-platform-push-facebook-vs-youtube-and-periscope/"><u>2024 Approved Livestream Platform Push Facebook Vs. YouTube & Periscope</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/building-impressive-instagram-story-bookmarks-for-2024/"><u>Building Impressive Instagram Story Bookmarks for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/lut-techniques-for-enhanced-ae-visuals/"><u>LUT Techniques for Enhanced AE Visuals</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/-in-the-views-youtube-thumbnail-size-and-ratios/"><u>Reign in the Views Youtube Thumbnail Size & Ratios</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/simplify-lenovo-screen-casting-today/"><u>Simplify Lenovo Screen Casting Today</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/m-like-a-champion-youtubes-ultimate-techniques/"><u>Stream Like a Champion YouTube's Ultimate Techniques</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unlock-your-creative-potential-with-windows-11-movie-maker-for-2024/"><u>Unlock Your Creative Potential with Windows 11 Movie Maker for 2024</u></a></li>
+</ul></div>
 

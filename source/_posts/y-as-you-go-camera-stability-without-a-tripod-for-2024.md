@@ -1,7 +1,7 @@
 ---
 title: "\"Steady as You Go  Camera Stability Without a Tripod for 2024\""
-date: 2024-09-15T02:35:21.354Z
-updated: 2024-09-22T00:48:12.354Z
+date: 2024-09-21T19:24:53.861Z
+updated: 2024-09-28T16:50:48.948Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,13 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135355/19272" target="_top" id="2135355">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135355" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135355/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
@@ -62,6 +69,13 @@ And here it is with hair clips:
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **DIY adjustable tripod using books and a towel**
 
@@ -81,10 +95,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
@@ -96,10 +110,10 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
@@ -143,5 +157,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/chieving-profitability-at-half-a-million-viewers/"><u>[New] Achieving Profitability at Half a Million Viewers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-unlock-cross-platform-content-sharing-convert-and-upload-with-these-tools/"><u>[New] In 2024, Unlock Cross-Platform Content Sharing Convert and Upload with These Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/uick-cash-flow-on-youtube-maximizing-earnings-with-short-videos/"><u>[New] Quick Cash Flow on YouTube Maximizing Earnings with Short Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/treamline-your-vids-with-these-15-royalty-free-tracks-sites-for-2024/"><u>[New] Streamline Your Vids with These 15 Royalty-Free Tracks Sites for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-best-5-camera-apps-to-shoot-and-record-videos-on-iphone-and-andriod/"><u>[Updated] 2024 Approved Best 5 Camera Apps to Shoot and Record Videos on iPhone and Andriod</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-editcanvas-solutions/"><u>[Updated] 2024 Approved EditCanvas Solutions</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-quick-guide-on-converting-videos-into-dynamic-gifs-online/"><u>[Updated] 2024 Approved Quick Guide on Converting Videos Into Dynamic Gifs Online</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-your-free-guide-to-android-device-screenshots/"><u>[Updated] 2024 Approved Your FREE Guide to Android Device Screenshots</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-boosting-buzz-and-views-masterful-strategies-for-youtube-success/"><u>[Updated] In 2024, Boosting Buzz & Views Masterful Strategies for YouTube Success</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-mastering-youtube-video-sizing-a-step-by-step-approach/"><u>[Updated] In 2024, Mastering YouTube Video Sizing A Step-by-Step Approach</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/comprehensive-guide-what-to-do-when-you-cant-find-physxloaderdll/"><u>Comprehensive Guide: What To Do When You Can't Find physxloader.dll</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/discreetly-share-life-with-instagram-live/"><u>Discreetly Share Life with Instagram Live</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fixing-call-of-duty-wwii-error-4220-heres-your-complete-troubleshooting-solution/"><u>Fixing Call of Duty WWII Error 4220? Here's Your Complete Troubleshooting Solution</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-oneplus-12-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your OnePlus 12 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-all-about-apple-iphone-7-plus-unlock-chip-you-need-to-know-by-drfone-ios/"><u>In 2024, All About Apple iPhone 7 Plus Unlock Chip You Need to Know</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-picture-perfect-creating-screenshots-in-windows/"><u>In 2024, Picture Perfect Creating Screenshots in Windows</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-unobstructed-movie-magic-erasing-youtube-borders/"><u>In 2024, Unobstructed Movie Magic Erasing YouTube Borders</u></a></li>
+<li><a href="https://win11.techidaily.com/privacy-hacked-no-more-winning-encryption-tools-ranked-149-chars/"><u>Privacy Hacked No More: Winning Encryption Tools Ranked (149 Chars)</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/troubleshooting-tips-overcoming-realtek-universal-drivers-challenges/"><u>Troubleshooting Tips: Overcoming Realtek Universal Drivers Challenges</u></a></li>
+</ul></div>
 

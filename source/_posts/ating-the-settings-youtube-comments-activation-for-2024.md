@@ -1,7 +1,7 @@
 ---
 title: "\"Navigating the Settings  YouTube Comments Activation for 2024\""
-date: 2024-09-20T23:43:30.974Z
-updated: 2024-09-21T21:16:07.131Z
+date: 2024-09-24T19:03:27.601Z
+updated: 2024-09-28T16:02:16.480Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -115,7 +122,27 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -147,6 +174,13 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -166,18 +200,19 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-2023-hack-alert-unlocking-your-fb-account/"><u>[New] In 2024, 2023 Hack Alert Unlocking Your FB Account</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-dive-into-immersion-youtubes-best-vr-content/"><u>[New] In 2024, Dive Into Immersion YouTube's Best VR Content</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-photobooth-video-glitch-understanding-the-halt-for-2024/"><u>[New] Photobooth Video Glitch - Understanding the Halt for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-smart-way-to-enhance-your-youtube-presence-legally/"><u>[New] The Smart Way to Enhance Your YouTube Presence Legally</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-compliance-in-recording-video-streams-on-youtube/"><u>[Updated] Compliance in Recording Video Streams on YouTube</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-secrets-unveiled-the-ultimate-strategies-for-saving-disco-livestreams/"><u>2024 Approved Secrets Unveiled The Ultimate Strategies for Saving Disco Livestreams</u></a></li>
+<li><a href="https://win-forum.techidaily.com/fresh-start-the-complete-process-of-flushing-dns-in-windows-operating-systems-windows-10-and-11/"><u>Fresh Start: The Complete Process of Flushing DNS in Windows Operating Systems (Windows 10 and 11)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-remove-pending-videos-from-your-youtube-history-for-2024/"><u>How to Remove Pending Videos From Your YouTube History for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-streamlined-approach-save-youtube-videos/"><u>In 2024, Streamlined Approach Save YouTube Videos</u></a></li>
+<li><a href="https://win11.techidaily.com/security-simplified-defaults-in-windows-11-setup/"><u>Security Simplified: Defaults in Windows 11 Setup</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-honor-magic5-ultimate-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Honor Magic5 Ultimate</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-twin-question-which-ai-wins/"><u>The Twin Question: Which AI Wins?</u></a></li>
+</ul></div>
 

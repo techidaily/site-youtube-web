@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step  Changing the State of Your YouTube Comments for 2024\""
-date: 2024-09-20T16:42:33.363Z
-updated: 2024-09-21T19:06:32.285Z
+date: 2024-09-24T19:39:28.041Z
+updated: 2024-09-28T20:11:38.738Z
 tags:
   - ai video
   - ai youtube
@@ -115,7 +115,21 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -133,6 +147,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +194,18 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-leading-the-charge-in-modern-presentation-recordings/"><u>[New] 2024 Approved Leading the Charge in Modern Presentation Recordings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-perfecting-your-phones-capability-for-youtube-thumbnail-creation/"><u>[New] 2024 Approved Perfecting Your Phone's Capability for YouTube Thumbnail Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mplify-your-online-influence-with-these-best-5-youtube-marketing-techniques/"><u>[New] Amplify Your Online Influence with These Best 5 YouTube Marketing Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iscovering-the-worlds-most-popular-shorter-videos-free/"><u>[New] Discovering the World's Most Popular Shorter Videos (FREE)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/asy-replay-on-iphone-set-videos-cycling-for-2024/"><u>[New] Easy Replay on iPhone Set Videos Cycling for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-disentangle-focus-from-webcams-surroundings/"><u>[Updated] 2024 Approved Disentangle Focus From Webcam's Surroundings</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-uncomplicated-methods-sharing-igtv-in-stories/"><u>[Updated] Uncomplicated Methods Sharing IGTV in Stories</u></a></li>
+<li><a href="https://extra-information.techidaily.com/infusing-your-art-with-captivating-collage-vistas/"><u>Infusing Your Art with Captivating Collage Vistas</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/innovating-podcast-branding-a-comprehensive-logo-guidebook/"><u>Innovating Podcast Branding A Comprehensive Logo Guidebook</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/movavi-2024-9/"><u>Movavi 2024年度折扣票莊 - 入手促銷代碼，享9折優惠!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-the-pros-and-cons-of-youtube-premium-for-2024/"><u>Weighing the Pros and Cons of YouTube Premium for 2024</u></a></li>
+</ul></div>
 
