@@ -1,7 +1,7 @@
 ---
 title: "Free DIY Approaches to Design Your Own YouTube Cards"
-date: 2024-09-21T00:22:42.511Z
-updated: 2024-09-21T23:52:59.610Z
+date: 2024-10-01T16:18:44.333Z
+updated: 2024-10-03T19:54:00.833Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,13 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +124,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087234/19272" target="_top" id="2087234">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087234" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087234/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +150,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/new-navigating-youtubes-photo-publishing/"><u>[New] Navigating YouTube's Photo Publishing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ncover-top-15-sci-tech-youtube-channels-for-learners/"><u>[New] Uncover Top 15 Sci-Tech YouTube Channels for Learners</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hat-makes-youtube-and-dailymention-stand-out/"><u>[New] What Makes YouTube and DailyMention Stand Out?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-optimizing-privacy-for-your-online-videography/"><u>[Updated] 2024 Approved Optimizing Privacy for Your Online Videography</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-achieve-marketing-excellence-the-top-10-steps-to-mastering-smm/"><u>[Updated] Achieve Marketing Excellence The Top 10 Steps to Mastering SMM</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-green-screen-mastery-essential-free-lessons-from-youtubes-best-4-channels-for-2024/"><u>[Updated] Green Screen Mastery Essential Free Lessons From YouTube's Best 4 Channels for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unveiling-the-art-of-personal-branding-mastery/"><u>[Updated] Unveiling the Art of Personal Branding Mastery</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-regulations-on-personal-recordings-for-2024/"><u>[Updated] YouTube Regulations on Personal Recordings for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1-simple-tutorial-mastering-the-art-of-recording-voice-chats-on-discord/"><u>1. Simple Tutorial: Mastering the Art of Recording Voice Chats on Discord</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/audio-tempo-control-gear-guide-mobile-pc/"><u>Audio Tempo Control Gear Guide (Mobile, PC)</u></a></li>
+<li><a href="https://win-forum.techidaily.com/connecting-through-content-the-giants-of-social-media-facebook-twitter-instagram-youtube-unveiled/"><u>Connecting Through Content: The Giants of Social Media - Facebook, Twitter, Instagram, YouTube Unveiled</u></a></li>
+<li><a href="https://techtrends.techidaily.com/defining-biometric-technology-and-its-uses/"><u>Defining Biometric Technology and Its Uses</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-quickly-fix-bluetooth-not-working-on-xiaomi-mix-fold-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Quickly Fix Bluetooth Not Working on Xiaomi Mix Fold 3 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-toddlers-fortune-on-screen-young-ryan-as-top-youtuber-earner/"><u>In 2024, Toddler's Fortune on Screen Young Ryan As Top YouTuber Earner</u></a></li>
+<li><a href="https://driver-download.techidaily.com/keep-your-netgear-adapter-up-to-date-where-to-find-and-download-the-latest-drivers/"><u>Keep Your NETGEAR Adapter Up to Date: Where to Find and Download the Latest Drivers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/izing-visibility-key-elements-in-youtube-thumbnail-design/"><u>Maximizing Visibility Key Elements in YouTube Thumbnail Design</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/conomics-of-youtube-ad-revenues-per-1000-views-for-2024/"><u>The Economics of YouTube Ad Revenues per 1000 Views for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/the-essence-of-youtubes-content-craft-room/"><u>The Essence of YouTube's Content Craft Room</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/ultimate-list-of-low-cost-desktop-encoder-software/"><u>Ultimate List of Low-Cost Desktop Encoder Software</u></a></li>
+</ul></div>
 

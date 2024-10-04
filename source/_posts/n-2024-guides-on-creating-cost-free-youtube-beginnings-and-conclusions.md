@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Guides on Creating Cost-Free YouTube Beginnings & Conclusions\""
-date: 2024-09-26T18:20:59.032Z
-updated: 2024-09-28T20:17:11.276Z
+date: 2024-09-30T18:36:39.471Z
+updated: 2024-10-03T22:28:29.913Z
 tags:
   - ai video
   - ai youtube
@@ -83,10 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -125,16 +125,16 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,20 +158,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/mplify-engagement-utilizing-youtube-analytics-wisely-for-2024/"><u>[New] Amplify Engagement Utilizing YouTube Analytics Wisely for 2024</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-prime-digital-devices-turn-images-into-videos/"><u>[New] Prime Digital Devices Turn Images Into Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/treaming-success-gamers-software-for-2024/"><u>[New] Streaming Success Gamers' Software for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ransparency-in-tracking-youtube-viewers/"><u>[New] Transparency in Tracking YouTube Viewers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-insider-tips-maximizing-youtube-edits-with-finalcut-pro/"><u>[Updated] 2024 Approved Insider Tips Maximizing YouTube Edits with FinalCut Pro</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-amassing-audiences-and-assets-launching-a-livestream-business/"><u>[Updated] Amassing Audiences and Assets Launching a Livestream Business</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-monthly-income-for-content-creators-on-youtube/"><u>[Updated] Monthly Income for Content Creators on YouTube?</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-live-youtube-streaming-unlocked-beginners-obs-tutorial/"><u>2024 Approved Live Youtube Streaming Unlocked Beginner's OBS Tutorial</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-the-ultimate-stream-software-showdown-obs-vs-shadowplay/"><u>2024 Approved The Ultimate Stream Software Showdown OBS vs ShadowPlay</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/cultural-etiquette-for-successful-socializing-in-south-america/"><u>Cultural Etiquette for Successful Socializing in South America</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-from-oppo-a79-5g-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock from Oppo A79 5G Phones with/without a PC</u></a></li>
-<li><a href="https://article-posts.techidaily.com/in-2024-mobile-video-smoothing-system-pro/"><u>In 2024, Mobile Video Smoothing System Pro</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-propel-your-youtube-presence-upwards-by-thousands/"><u>In 2024, Propel Your YouTube Presence Upwards by Thousands</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/leverage-cookiebot-technology-for-enhanced-web-analytics-and-seo-success/"><u>Leverage Cookiebot Technology for Enhanced Web Analytics and SEO Success</u></a></li>
-<li><a href="https://win-dash.techidaily.com/solving-davinci-resolve-issues-with-mxf-file-imports-and-edits/"><u>Solving DaVinci Resolve Issues with MXF File Imports & Edits</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-dualviewpoint-analysis-for-2024/"><u>[New] DualViewpoint Analysis for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-most-influential-gamers-on-youtube/"><u>[New] In 2024, Most Influential Gamers on YouTube</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-the-future-awaits-elevate-your-fb-chronicles-for-free/"><u>[New] In 2024, The Future Awaits Elevate Your FB Chronicles for FREE</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/caling-youtube-influence-a-comprerancial-guide-to-creator-studios-potential/"><u>[New] Scaling YouTube Influence A Comprerancial Guide to Creator Studio's Potential</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-banter-bonanza-the-funniest-content-on-the-internet/"><u>[Updated] 2024 Approved Banter Bonanza The Funniest Content on the Internet</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-comprehensive-list-of-high-quality-game-entrance-makers-online/"><u>[Updated] 2024 Approved Comprehensive List of High-Quality Game Entrance Makers Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-10-recording-tips-for-recording-audio-with-high-quality/"><u>[Updated] In 2024, 10 Recording Tips for Recording Audio with High Quality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-surveying-youtube-interactions-for-2024/"><u>[Updated] Surveying YouTube Interactions for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-social-media-forecasting-through-data-visualization/"><u>2024 Approved Social Media Forecasting Through Data Visualization</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-top-10-yoga-youtube-channels-to-follow-keep-fit/"><u>2024 Approved Top 10 Yoga YouTube Channels to Follow - Keep Fit</u></a></li>
+<li><a href="https://howto.techidaily.com/authentication-error-occurred-on-google-pixel-fold-here-are-10-proven-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Authentication Error Occurred on Google Pixel Fold? Here Are 10 Proven Fixes | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-captivate-and-expand-your-online-following-with-viral-youtube-shorts/"><u>How to Captivate and Expand Your Online Following with Viral YouTube Shorts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-find-ispoofer-pro-activation-key-on-vivo-x90s-drfone-by-drfone-virtual-android/"><u>How to Find iSpoofer Pro Activation Key On Vivo X90S? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-itel-a05s-to-other-android-devices-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Itel A05s to Other Android Devices Devices? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Sony Xperia 5 V? | Dr.fone</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unparalleled-video-intros-made-easy-with-online-tools/"><u>In 2024, Unparalleled Video Intros Made Easy with Online Tools</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/lost-password-not-lost-hope-erasing-and-restoring-an-iphone-with-a-forgotten-passcode-tips-by-stellar-experts/"><u>Lost Password, Not Lost Hope: Erasing & Restoring an iPhone with a Forgotten Passcode - Tips by Stellar Experts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/king-income-insights-googles-simplified-three-step-strategy-for-monetizing-youtube-for-2024/"><u>Unlocking Income Insights Google's Simplified Three-Step Strategy for Monetizing YouTube for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/what-to-do-with-icloud-drives-desktop-anddocuments-access-in-sierra-for-2024/"><u>What to Do with iCloud Drive’s Desktop &Documents Access in Sierra for 2024</u></a></li>
 </ul></div>
 

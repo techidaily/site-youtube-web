@@ -1,7 +1,7 @@
 ---
 title: "[New] Understanding YouTube's User Interaction Options for 2024"
-date: 2024-09-16T21:06:00.531Z
-updated: 2024-09-21T22:39:08.221Z
+date: 2024-09-27T06:13:11.734Z
+updated: 2024-10-03T20:37:35.445Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -117,6 +124,19 @@ From under the **Audience** section in the right window of the **Video details**
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -133,6 +153,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +173,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +200,22 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/new-backtrack-broadcasts-effortlessly-with-these-20-stream-steps/"><u>[New] Backtrack Broadcasts Effortlessly with These 20 Stream Steps</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-complete-manual-taking-editing-and-sharing-display-images/"><u>[Updated] 2024 Approved The Complete Manual Taking, Editing, and Sharing Display Images</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-ignite-your-channels-engagement-with-targeted-youtube-links/"><u>[Updated] In 2024, Ignite Your Channel's Engagement with Targeted YouTube Links</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-upgrading-your-cinematic-story-with-video-edges/"><u>[Updated] Upgrading Your Cinematic Story with Video Edges</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-beyond-vidcon-a-guide-to-the-most-important-youtube-events/"><u>2024 Approved Beyond VidCon - A Guide to the Most Important YouTube Events</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-masterful-tag-utilization-boosting-video-performance/"><u>2024 Approved Masterful Tag Utilization Boosting Video Performance</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-seamless-video-editing-on-windows-11-platform/"><u>2024 Approved Seamless Video Editing on Windows 11 Platform</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/cookiebot-driven-analytics-and-personalization-for-websites/"><u>Cookiebot-Driven Analytics & Personalization for Websites</u></a></li>
+<li><a href="https://extra-information.techidaily.com/explore-the-best-top-10-4k-mirrorless-camera-lists/"><u>Explore the Best Top 10 4K Mirrorless Camera Lists</u></a></li>
+<li><a href="https://howto.techidaily.com/gmail-not-working-on-oppo-reno-11-5g-7-common-problems-and-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Gmail Not Working on Oppo Reno 11 5G 7 Common Problems & Fixes | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-fix-the-persistent-crashes-of-ready-or-not-game-on-your-computer/"><u>How to Fix the Persistent Crashes of 'Ready or Not' Game on Your Computer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-go-frame-by-frame-on-youtube-video-5-free-methods-for-2024/"><u>How to Go Frame by Frame on YouTube Video [5 Free Methods] for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-complete-guide-to-producing-high-impact-youtube-intros/"><u>In 2024, The Complete Guide to Producing High-Impact YouTube Intros</u></a></li>
+<li><a href="https://driver-error.techidaily.com/solved-restoring-functionality-when-your-pc-lacks-a-coprocessor-driver-in-windows-nt/"><u>Solved! Restoring Functionality When Your PC Lacks a Coprocessor Driver in Windows nT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/by-step-guide-to-youtube-video-enhancement-with-wmm/"><u>Step-by-Step Guide to YouTube Video Enhancement with WMM</u></a></li>
+</ul></div>
 

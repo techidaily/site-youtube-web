@@ -1,7 +1,7 @@
 ---
 title: "\"Navigating Your Path as a First-Time YouTuber  Sidestep These 8 Common Mistakes\""
-date: 2024-09-26T20:50:12.916Z
-updated: 2024-09-28T21:39:23.817Z
+date: 2024-10-02T19:42:11.079Z
+updated: 2024-10-03T17:07:16.877Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,13 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 
 ###  
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Failing to have a long-term vision
 
 One common mistake that a lot of new YouTubers make is failing to have a long-term vision. Without a long-term vision, you’re more likely to poorly brand your YouTube channel, drop your YouTube channel activity in busier times, and, midway through, change the type of content you create and upload. None of these are good for your channel!
@@ -49,13 +56,6 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -65,10 +65,10 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
@@ -78,10 +78,10 @@ New YouTubers tend to think about their thumbnail images after they’ve finishe
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\. Making weak intros
@@ -98,13 +98,6 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
@@ -120,6 +113,19 @@ But rather than leaving interesting comments that are related to the video, rath
 Spam comments annoy YouTubers. It would be much more beneficial to your channel to build good relationships with other YouTubers to possibly collaborate on a video together in the future.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -142,19 +148,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-decoding-the-payment-structure-on-youtube/"><u>[New] 2024 Approved Decoding the Payment Structure on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-discover-8-essential-sites-for-pristine-green-screen-images/"><u>[New] 2024 Approved Discover 8 Essential Sites for Pristine Green Screen Images</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-expressiveness-in-yt-adopting-emojis/"><u>[New] 2024 Approved Expressiveness in YT Adopting Emojis</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-how-to-make-tiktok-reaction-videos-easily-in-2-ways/"><u>[New] 2024 Approved How to Make TikTok Reaction Videos Easily in 2 Ways</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-navigate-easy-customization-for-youtube-channel-urls/"><u>[New] 2024 Approved Navigate Easy Customization for YouTube Channel URLs</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-pictorial-narration-framework/"><u>[New] 2024 Approved Pictorial Narration Framework</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-live-techniques-lowering-volume-gradually/"><u>[New] In 2024, Live Techniques Lowering Volume Gradually</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/new-in-2024-navigating-skype-screen-sharing-during-home-office-workflows/"><u>[New] In 2024, Navigating Skype Screen Sharing During Home Office Workflows</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-huawei-nova-y71-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Huawei Nova Y71 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-screen-mirroring-oppo-reno-11f-5g-to-pc-drfone-by-drfone-android/"><u>In 2024, How to Screen Mirroring Oppo Reno 11F 5G to PC? | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/in-2024-unlocking-the-secrets-to-effective-screen-capturing-with-apeaksoft/"><u>In 2024, Unlocking the Secrets to Effective Screen Capturing with Apeaksoft</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/process-of-screen-sharing-realme-v30-to-pc-detailed-steps-drfone-by-drfone-android/"><u>Process of Screen Sharing Realme V30 to PC- Detailed Steps | Dr.fone</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-maisto-rc-rock-crawler-perfect-gift-for-adventure-lovers-of-all-ages/"><u>Unveiling the Maisto RC Rock Crawler – Perfect Gift for Adventure Lovers of All Ages</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-elevate-your-video-editing-skills-6-must-know-adobe-premiere-tricks/"><u>Updated Elevate Your Video Editing Skills 6 Must-Know Adobe Premiere Tricks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-amplifying-video-clarity-on-youtube/"><u>[New] In 2024, Amplifying Video Clarity on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-master-technique-long-term-disabling-of-youtube-shorts/"><u>[New] In 2024, Master Technique Long-Term Disabling of YouTube Shorts</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-navigating-to-platforms-for-youtube-influencer-partnerships/"><u>[New] Navigating to Platforms for YouTube Influencer Partnerships</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nleashing-storytelling-potential-making-youtube-trailers-in-filmora-for-2024/"><u>[New] Unleashing Storytelling Potential Making YouTube Trailers in Filmora for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-gurus-summit-expedition/"><u>[Updated] In 2024, YouTube Gurus Summit Expedition</u></a></li>
+<li><a href="https://win-community.techidaily.com/44cm56m25qw144ks44kk44oj77ya5lia55uu556t54s244gq44k44kk44og44op44ox44k55yuv55s76ko95l2c5oml6acg44cn/"><u>「究極ガイド：一目瞭然なタイムラプス動画製作手順」</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-from-novice-to-vlogger-your-guide-to-creating-a-youtube-chanel/"><u>2024 Approved From Novice to Vlogger Your Guide to Creating a YouTube Chanel</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-journey-through-time-with-these-top-10-historical-youtube-sources/"><u>2024 Approved Journey Through Time with These Top 10 Historical YouTube Sources</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-step-by-step-procedures-for-producing-high-quality-asmr-videos/"><u>2024 Approved Step-by-Step Procedures for Producing High-Quality ASMR Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-ultimate-no-fuss-techniques-for-valorant-sessions/"><u>2024 Approved Ultimate No-Fuss Techniques for Valorant Sessions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ilblazers-guide-youtube-studio-location-unveiled/"><u>A Trailblazer’s Guide YouTube Studio Location Unveiled</u></a></li>
+<li><a href="https://win-net.techidaily.com/effective-strategies-for-converting-mts-files-into-mp4-format/"><u>Effective Strategies for Converting MTS Files Into MP4 Format</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-see-your-subscribers-on-youtube/"><u>How to See Your Subscribers on YouTube?</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-stream-apple-iphone-12-video-to-computer-drfone-by-drfone-ios/"><u>How to Stream Apple iPhone 12 Video to Computer? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Will iSpoofer update On Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://techtrends.techidaily.com/meilleur-outils-de-decoupe-video-gratuits-pour-mac-os-x-top-8-choix/"><u>Meilleur Outils De Découpe Vidéo Gratuits Pour Mac OS X : Top 8 Choix</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/onversion-hack-youtube-to-macs-mp3-tutorial/"><u>MP3 Conversion Hack YouTube to Mac's MP3 Tutorial</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-your-laptops-audio-problem-a-step-by-step-guide/"><u>Solving Your Laptop's Audio Problem: A Step-by-Step Guide</u></a></li>
 </ul></div>
 

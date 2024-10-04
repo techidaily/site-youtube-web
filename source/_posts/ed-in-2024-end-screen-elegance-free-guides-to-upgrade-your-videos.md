@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, End-Screen Elegance - Free Guides to Upgrade Your Videos\""
-date: 2024-09-14T19:50:06.978Z
-updated: 2024-09-22T02:52:13.299Z
+date: 2024-09-30T03:59:27.569Z
+updated: 2024-10-03T19:46:22.856Z
 tags:
   - ai video
   - ai youtube
@@ -100,19 +100,47 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -147,12 +175,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
-  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-kick-starting-a-captivating-instagram-live/"><u>[New] 2024 Approved Kick-Starting a Captivating Instagram Live</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/treaming-success-secrets-unveiling-monetization-on-dm-and-yo-for-2024/"><u>[New] Streaming Success Secrets Unveiling Monetization on Dm & Yo for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-content-creators-revenue-gain-from-each-click/"><u>[Updated] 2024 Approved Content Creators' Revenue Gain From Each Click</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-easy-steps-to-decode-your-facebook-data-for-2024/"><u>[Updated] Easy Steps to Decode Your Facebook Data for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-vimeos-edge-over-youtube-what-the-data-says/"><u>[Updated] In 2024, Vimeo’s Edge Over YouTube? What the Data Says</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-next-gen-spaceholders-unveiling-the-quintessential-cloud-providers/"><u>2024 Approved Next-Gen Spaceholders Unveiling the Quintessential Cloud Providers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-in-depth-guide-to-video-money-making-across-platforms/"><u>In 2024, In-Depth Guide to Video Money-Making Across Platforms</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-the-ultimate-guide-how-to-bypass-swipe-screen-to-unlock-on-lava-device-by-drfone-android/"><u>In 2024, The Ultimate Guide How to Bypass Swipe Screen to Unlock on Lava Device</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/mastering-social-snagging-5-chrome-hdl-vids-for-2024/"><u>Mastering Social Snagging 5 Chrome HDL Vids for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/open-source-musical-aid-for-playing-games/"><u>Open Source Musical Aid for Playing Games</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/seamlessly-linking-your-beatwave-earbuds-with-windows-10-or-11-troubleshooting-tips-and-solutions/"><u>Seamlessly Linking Your BeatWave Earbuds with Windows 10 or 11 – Troubleshooting Tips and Solutions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/simplified-steps-for-effective-telegram-web-use-for-2024/"><u>Simplified Steps for Effective Telegram Web Use for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ty-filmmaker-best-economical-camera-lineup/"><u>Thrifty Filmmaker Best Economical Camera Lineup</u></a></li>
+</ul></div>
 

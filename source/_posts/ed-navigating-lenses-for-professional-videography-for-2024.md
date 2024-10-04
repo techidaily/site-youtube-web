@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Navigating Lenses for Professional Videography for 2024"
-date: 2024-09-23T22:23:26.456Z
-updated: 2024-09-28T17:44:39.932Z
+date: 2024-10-02T06:30:00.320Z
+updated: 2024-10-03T23:26:49.845Z
 tags:
   - ai video
   - ai youtube
@@ -61,6 +61,13 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -83,27 +90,20 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
- In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 ### Focal Length Equivalency Table
 
@@ -124,15 +124,22 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
@@ -154,13 +161,6 @@ But do you even need a fast lens?
 * More expensive
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Optical Image Stabilization
 
@@ -197,21 +197,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-tools-and-methods-how-to-resize-youtube-thumbnail/"><u>[New] 2024 Approved [Tools & Methods] How To Resize YouTube Thumbnail</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/16256617-new-2024-approved-short-film-synopsis-must-know-points/"><u>[New] 2024 Approved Short Film Synopsis Must-Know Points</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-top-15-gaming-capture-utilities/"><u>[New] 2024 Approved Top 15 Gaming Capture Utilities</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unlocking-the-potential-of-video-game-vlogging/"><u>[New] 2024 Approved Unlocking the Potential of Video Game Vlogging</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unveiling-video-sharing-secrets-examining-igtv-and-youtube-in-depth/"><u>[New] 2024 Approved Unveiling Video Sharing Secrets Examining IGTV & YouTube in Depth</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-youtube-editing-essentials-the-ultimate-guide-post-upload-refinements/"><u>[New] 2024 Approved YouTube Editing Essentials The Ultimate Guide Post-Upload Refinements</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-the-ultimate-guide-to-earning-cash-online-with-no-skills-needed-for-2024/"><u>[Updated] The Ultimate Guide to Earning Cash Online with No Skills Needed for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/enhancements-made-in-the-latest-fix-for-football-manager-2020-reliable-performance-guaranteed/"><u>Enhancements Made in the Latest Fix for Football Manager 2020 - Reliable Performance Guaranteed</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-zte-blade-a73-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to ZTE Blade A73 5G Phones? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-motorola-edgeplus-2023-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Motorola Edge+ (2023) Device SIM</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-in-depth-walkthrough-for-proficient-use-of-green-screen-in-kinemaster/"><u>In 2024, In-Depth Walkthrough for Proficient Use of Green Screen in Kinemaster</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-industrys-choice-our-miniature-dvd-players-guide/"><u>In 2024, Industry's Choice Our Miniature DVD Players Guide</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/navigating-online-hostility-on-video-platforms/"><u>Navigating Online Hostility on Video Platforms</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/1-video-recorders-that-save-money-without-sacrificing-performance/"><u>Top 11 Video Recorders That Save Money Without Sacrificing Performance</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/unleash-the-potential-of-your-webcam-for-slideshows-for-2024/"><u>Unleash the Potential of Your Webcam for Slideshows for 2024</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-mastering-voice-over-in-final-cut-pro-quick-start-guide/"><u>Updated 2024 Approved Mastering Voice Over in Final Cut Pro Quick Start Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-expert-recommendations-top-15-no-cost-audiosite-collections/"><u>[Updated] 2024 Approved Expert Recommendations Top 15 No-Cost Audiosite Collections</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-creating-captivating-youtube-openers-two-ways/"><u>[Updated] Creating Captivating YouTube Openers - Two Ways</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-best-mobile-and-desktop-mkv-software/"><u>2024 Approved Best Mobile and Desktop MKV Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ng-into-past-our-top-10-picks-of-history-channels-online-for-2024/"><u>Delving Into Past Our Top 10 Picks of History Channels Online for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/differences-in-enterprise-versus-consumer-gpt-services/"><u>Differences in Enterprise Versus Consumer GPT Services</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-learn-how-to-lock-stolen-your-apple-iphone-xr-properly-by-drfone-ios/"><u>In 2024, Learn How To Lock Stolen Your Apple iPhone XR Properly</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/mastering-easy-hdr-a-step-by-step-guide/"><u>Mastering Easy HDR A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ating-youtubes-featured-slot-a-detailed-explanimation/"><u>Navigating YouTube's Featured Slot A Detailed Explanimation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/er-directory-of-economical-visual-content-providers/"><u>Premier Directory of Economical Visual Content Providers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/ps5-dvd-abspielfunktion-funktionsweise-und-tipps/"><u>PS5 DVD-Abspielfunktion - Funktionsweise Und Tipps</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-pros-and-cons-of-viairs-portable-88p-air-compressor-a-thorough-review/"><u>The Pros and Cons of Viair's Portable 88P Air Compressor: A Thorough Review</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nail-theories-selecting-the-most-effective-youtube-fonts-for-2024/"><u>Thumbnail Theories Selecting the Most Effective YouTube Fonts for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-4-artificial-intelligence-story-creation-tools-you-need-to-explore/"><u>Top 4 Artificial Intelligence Story Creation Tools You Need To Explore</u></a></li>
 </ul></div>
 

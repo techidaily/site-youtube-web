@@ -1,7 +1,7 @@
 ---
 title: "[New] Navigating the Complexities of Online Video Rights"
-date: 2024-09-21T23:23:11.027Z
-updated: 2024-09-28T22:54:36.757Z
+date: 2024-09-30T19:41:07.829Z
+updated: 2024-10-03T16:43:17.195Z
 tags:
   - ai video
   - ai youtube
@@ -59,13 +59,6 @@ There are a few aspects YouTube looks at when it comes to determining whether cr
 2. Are there more original content used than copyrighted content in the video?
 3. Will your video benefit the original copyrighted content?
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3: Types of Content That Meet Fair Use
 
 Some acceptable styles of videos that allow you to exercise fair use are:
@@ -81,6 +74,13 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 **Parody:** Imitation for comedic or dramatic effect is an artistic pursuit as long as it is done in a transformative manner. What does transformative mean? It means in some way, the original is being examined.
 
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
@@ -99,6 +99,13 @@ So what should you do? Here are the steps to take after you receive a copyright 
 1. Review the copyright strike by going into Creator Studio > Video Manager > Copyright notice
 
 ![YouTube Copyright notice](https://images.wondershare.com/filmora/article-images/youtube-copyright-notice.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 1. Click on the “Copyright Strike” link beside the flagged video to see details
 2. Decide how to respond to the strike:  
@@ -129,10 +136,10 @@ In this example from Screen Prism, we see scenes from Wes Anderson movies all th
 **5\. Keep it short.** There is no precise number of seconds or ratio of copyrighted to original footage you should have in your video to qualify as fair use. But generally, if the copyrighted clip is short and/or broken up, then it stands a better chance at being approved by YouTube.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 6: What to Do When Other YouTubers Are Copying Your Content
@@ -153,10 +160,10 @@ If you ever notice that your content is being copied without your approval — i
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/infringe-my-copyright-report.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
@@ -192,13 +199,6 @@ Got any questions on YouTube copyright? Leave a comment below and we’ll help y
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134490/18498" target="_top" id="2134490">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134490" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134490/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -220,22 +220,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-sync-your-device-pace-youtube-audio-control-guide/"><u>[New] 2024 Approved Sync Your Device Pace YouTube Audio Control Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-best-wedding-stories-online-youtube-plus-vimeos-selection-8/"><u>[New] 2024 Approved The Best Wedding Stories Online YouTube + Vimeo's Selection (8)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-revenue-driven-guide-to-designing-youtube-trailers/"><u>[New] 2024 Approved The Revenue-Driven Guide to Designing YouTube Trailers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-youtube-financial-framework-for-content-creators/"><u>[New] 2024 Approved The Ultimate YouTube Financial Framework for Content Creators</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-top-10-best-flvto-alternatives-youtube-converter-you-can-try/"><u>[New] 2024 Approved Top 10 Best Flvto Alternatives YouTube Converter You Can Try</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-top-5-choices-in-professional-3d-intros/"><u>[New] 2024 Approved Top 5 Choices in Professional 3D Intros</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unveiling-the-leaders-free-top-6-youtube-snackers/"><u>[New] 2024 Approved Unveiling the Leaders Free Top 6 YouTube Snackers</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-a-creators-guide-to-understanding-youtube-policies/"><u>[New] In 2024, A Creator’s Guide to Understanding YouTube Policies</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-capitalize-on-youtube-shorts-must-knows-earning-prospects/"><u>[New] In 2024, How to Capitalize on Youtube Shorts Must-Knows, Earning Prospects</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-turn-games-into-memories-no-fuss-nvidia-style/"><u>[Updated] 2024 Approved Turn Games Into Memories - No Fuss, NVIDIA Style</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-how-to-make-a-photo-video-with-pixiz/"><u>[Updated] How to Make a Photo Video with Pixiz?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-quell-the-quake-techniques-to-smooth-out-gopro-footage/"><u>[Updated] Quell the Quake Techniques to Smooth Out GoPro Footage</u></a></li>
-<li><a href="https://win-answers.techidaily.com/1726027743374-youtubeand/"><u>表示されないYouTubeオフラインダウンロード方法・問題解析&改善策</u></a></li>
-<li><a href="https://article-helps.techidaily.com/elevate-your-editing-game-with-video-enhancer-v22/"><u>Elevate Your Editing Game with Video Enhancer V2.2</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-17-best-lights-and-lighting-equipment-for-youtube-videos/"><u>In 2024, 17 Best Lights and Lighting Equipment for YouTube Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-instagram-archive-storing-your-iphone-images-and-videos/"><u>In 2024, Instagram Archive Storing Your iPhone Images and Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/initiating-a-thriving-youtube-channel-avoid-these-8-essential-blunders-in-2024/"><u>Initiating a Thriving YouTube Channel? Avoid These 8 Essential Blunders, In 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-comprehensive-analysis-of-samsung-image-editor/"><u>[New] Comprehensive Analysis of Samsung Image Editor</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rase-unwanted-boards-from-old-youtube-videos-for-clearer-viewing/"><u>[New] Erase Unwanted Boards From Old YouTube Videos for Clearer Viewing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-harnessing-the-benefits-with-creative-commons-licenses/"><u>[New] In 2024, Harnessing the Benefits with Creative Commons Licenses</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-leaders-engineering-digital-marvel-realms/"><u>[New] In 2024, Leaders Engineering Digital Marvel Realms</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-optimized-video-scale-to-mac-aspect-proportion/"><u>[New] In 2024, Optimized Video Scale to Mac Aspect Proportion</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-windows-movie-maker-the-ultimate-guide-to-youtube-video-production/"><u>[New] In 2024, Windows Movie Maker The Ultimate Guide to YouTube Video Production</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-hear-the-difference-mac-in-sound-recording-for-2024/"><u>[Updated] Hear the Difference Mac in Sound Recording for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-in-2024-bursting-laughter-crafting-engaging-reaction-videos-on-youtube-3-methods/"><u>[Updated] In 2024, Bursting Laughter Crafting Engaging Reaction Videos on YouTube (3 Methods)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-insiders-look-at-top-9-free-platforms-for-designing-youtube-logos/"><u>[Updated] In 2024, Insider's Look at Top 9 FREE Platforms for Designing YouTube Logos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-outstanding-mac-screen-recording-options-beyond-bandicamp/"><u>[Updated] Outstanding Mac Screen Recording Options Beyond Bandicamp</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigating-the-quest-for-clean-photo-archives/"><u>2024 Approved Navigating the Quest for Clean Photo Archives</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-streamline-your-vids-with-these-15-royalty-free-tracks-sites/"><u>2024 Approved Streamline Your Vids with These 15 Royalty-Free Tracks Sites</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-iphone-15-pro-without-swiping-up-6-ways-drfone-by-drfone-ios/"><u>How To Unlock iPhone 15 Pro Without Swiping Up? 6 Ways | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-ways-to-find-unlocking-codes-for-motorola-razr-40-phones-by-drfone-android/"><u>In 2024, Ways To Find Unlocking Codes For Motorola Razr 40 Phones</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/mastering-technology-through-toms-hardware-chronicles/"><u>Mastering Technology Through Tom's Hardware Chronicles</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/omplete-handbook-to-excellent-youtube-audio-production/"><u>The Complete Handbook to Excellent YouTube Audio Production</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-12-prominent-oppo-find-n3-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Oppo Find N3 Fingerprint Not Working Solutions</u></a></li>
 </ul></div>
 

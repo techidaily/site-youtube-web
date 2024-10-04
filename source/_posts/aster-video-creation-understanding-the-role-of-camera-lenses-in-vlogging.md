@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Master Video Creation  Understanding the Role of Camera Lenses in Vlogging\""
-date: 2024-09-16T16:43:51.562Z
-updated: 2024-09-21T20:39:42.674Z
+date: 2024-09-30T17:47:21.877Z
+updated: 2024-10-04T01:30:02.405Z
 tags:
   - ai video
   - ai youtube
@@ -83,6 +83,19 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -90,6 +103,13 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -107,10 +127,10 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aperture
@@ -121,18 +141,24 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
+
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -147,13 +173,6 @@ But do you even need a fast lens?
 * More expensive
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Optical Image Stabilization
 
@@ -188,5 +207,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-best-practice-animation-series-for-2024/"><u>[New] Best Practice Animation Series for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-elevate-your-reel-game-on-insta-with-tiktoks-best-practices-for-2024/"><u>[New] Elevate Your Reel Game on Insta with TikTok's Best Practices for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tep-by-step-guide-to-creating-popular-youtube-openings-for-2024/"><u>[New] Step-by-Step Guide to Creating Popular YouTube Openings for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-from-live-demos-to-online-sharing-mastering-idevice-screenshots-for-video-content/"><u>[Updated] 2024 Approved From Live Demos to Online Sharing Mastering iDevice Screenshots for Video Content</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-10-excellent-cost-free-video-meeting-solutions/"><u>[Updated] In 2024, 10 Excellent, Cost-Free Video Meeting Solutions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-your-step-by-step-pathway-to-youtube-video-enhancement-for-2024/"><u>[Updated] Your Step-By-Step Pathway to YouTube Video Enhancement for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-avoid-blandness-optimize-your-thumbnail-with-20-fonts/"><u>2024 Approved Avoid Blandness - Optimize Your Thumbnail with 20 Fonts</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/busting-the-biggest-misconceptions-the-ultimate-guide-to-understanding-ai-chatbots/"><u>Busting the Biggest Misconceptions: The Ultimate Guide to Understanding AI Chatbots</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722956410498-easy-fixes-for-asus-maximus-x-hero-driver-update-issues-get-started-now/"><u>Easy Fixes for ASUS Maximus X Hero Driver Update Issues - Get Started Now!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tial-insights-into-youtube-live-image-crafting/"><u>Essential Insights Into YouTube Live Image Crafting</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/forgotten-the-voicemail-password-of-honor-magic-vs-2-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Honor Magic Vs 2? Try These Fixes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-engagement-creating-budget-friendly-youtube-intros/"><u>Fostering Engagement Creating Budget-Friendly YouTube Intros</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-breakthrough-techniques-for-creative-fb-video-campaigns/"><u>In 2024, Breakthrough Techniques for Creative FB Video Campaigns</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/phoenix-point-crash-dilemma-heres-how-you-can-get-back-on-track/"><u>Phoenix Point Crash Dilemma? Here's How You Can Get Back on Track</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/superior-text-tools-and-after-effects-for-2024/"><u>Superior Text Tools & After Effects for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/talling-video-libraries-from-youtube-for-2024/"><u>Uninstalling Video Libraries From YouTube for 2024</u></a></li>
+</ul></div>
 
