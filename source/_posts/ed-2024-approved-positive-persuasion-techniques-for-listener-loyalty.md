@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Positive Persuasion Techniques for Listener Loyalty\""
-date: 2024-09-16T03:29:35.920Z
-updated: 2024-09-21T23:39:23.953Z
+date: 2024-10-03T10:35:07.380Z
+updated: 2024-10-09T08:51:59.525Z
 tags:
   - ai video
   - ai youtube
@@ -49,6 +49,19 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## A More Effective Way of Asking For Subscribers
 
 Collins Key is one YouTuber who has mastered asking for subscribers early on, and given that he has over 7 million subscribers himself I’d say it’s working out. Check out the technique in this video collab with Brooklyn and Bailey:
@@ -59,6 +72,13 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -68,6 +88,13 @@ Shortly after, while still in the first 30 seconds of the video, Collins gets ri
 It’s only after hooking the viewer in and reiterating the promise of the title that Collins asks viewers to subscribe. The really clever thing about how he asks is that he carves out time in the video for the viewer to comply with his request. He gives 5 seconds and does a countdown.
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
@@ -80,6 +107,13 @@ As one of the most widely used video editing software in YouTube video editing, 
 Here is a tutorial video about how to use Filmora to edit your YouTube video. Check it out and try Filmora if you are interested.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
@@ -104,12 +138,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
-  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/harting-a-course-through-websites-of-youtube-affiliates-for-2024/"><u>[New] Charting a Course Through Websites of YouTube Affiliates for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-10-must-have-screen-capture-tools-for-online-instructors/"><u>[New] In 2024, 10 Must-Have Screen Capture Tools for Online Instructors</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-dichotomy-of-youtube-rights-and-cc-licenses/"><u>[New] The Dichotomy of YouTube Rights and CC Licenses</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-essential-guide-to-mixing-linktree-and-tiktok-bios/"><u>[New] The Essential Guide to Mixing Linktree and TikTok Bios</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-history-buffs-favorite-youtube-history-channels/"><u>[Updated] 2024 Approved History Buffs' Favorite YouTube History Channels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-transform-your-presence-advanced-tricks-for-live-video-graphics/"><u>[Updated] 2024 Approved Transform Your Presence Advanced Tricks for Live Video Graphics</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-cutting-edge-techniques-elevating-your-youtube-edits-using-imovie-for-2024/"><u>[Updated] Cutting-Edge Techniques Elevating Your YouTube Edits Using iMovie for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-cutting-edge-content-creation-mastering-live-recording-tools/"><u>[Updated] In 2024, Cutting-Edge Content Creation Mastering Live Recording Tools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-unveiling-samsungs-image-editing-software-insights/"><u>[Updated] In 2024, Unveiling Samsung's Image Editing Software Insights</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-luts-unveiled-transforming-the-lands-market/"><u>[Updated] LUTs Unveiled Transforming the Lands Market</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-optimize-youtube-watch-experience-boostslow-down-feature-usage/"><u>[Updated] Optimize YouTube Watch Experience Boost/Slow Down Feature Usage</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-streamlining-content-across-platforms-youtube-and-igtv/"><u>[Updated] Streamlining Content Across Platforms YouTube & IGTV</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-your-journey-to-glamorous-guruship-launching-an-aesthetic-channel-for-2024/"><u>[Updated] Your Journey to Glamorous Guruship Launching an Aesthetic Channel for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-10-best-practices-for-boosting-srt-on-pc-and-macos/"><u>2024 Approved 10 Best Practices for Boosting SRT on PC & macOS</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-skyrocket-engagement-optimizing-videos-for-peak-views/"><u>2024 Approved Skyrocket Engagement Optimizing Videos for Peak Views</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-skyrocket-visibility-mastering-google-analytics-for-youtubers/"><u>2024 Approved Skyrocket Visibility Mastering Google Analytics for YouTubers</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-deleted-honor-v-purse-photos-an-easy-method-explained-by-fonelab-android-recover-photos/"><u>How to Restore Deleted Honor V Purse Photos An Easy Method Explained.</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-facebook-dating-for-your-google-pixel-8-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location On Facebook Dating for your Google Pixel 8 | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/the-complete-guide-to-eero-pro-mesh-system-excelling-in-extensive-household-internet-accessibility/"><u>The Complete Guide to Eero Pro Mesh System: Excelling in Extensive Household Internet Accessibility</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating YouTube Comment Settings  Tips and Tricks for 2024\""
-date: 2024-10-03T05:02:21.228Z
-updated: 2024-10-04T00:17:47.449Z
+date: 2024-10-04T19:52:22.068Z
+updated: 2024-10-09T03:32:31.271Z
 tags:
   - ai video
   - ai youtube
@@ -96,16 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -131,10 +125,10 @@ From under the **Audience** section in the right window of the **Video details**
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -154,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -175,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
-  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -202,20 +196,20 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-editing-made-easy-youtube-editiontop-10-tips-for-newbies/"><u>[New] 2024 Approved Editing Made Easy YouTube Edition—Top 10 Tips for Newbies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-cured-non-appearance-of-tiny-vid-content/"><u>[New] In 2024, Cured Non-Appearance of Tiny Vid Content</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-twitter-live-sound-solving-partially-muted-audio-issues/"><u>[New] Twitter Live Sound Solving Partially Muted Audio Issues</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-slash-and-save-how-to-edit-youtube-videos-quickly/"><u>[Updated] 2024 Approved Slash and Save How to Edit YouTube Videos Quickly</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-finding-your-voice-on-youtube-a-guide-to-selective-audiences-for-2024/"><u>[Updated] Finding Your Voice on YouTube A Guide to Selective Audiences for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-peering-into-tseries-earnings-processes-on-youtube-networks/"><u>[Updated] Peering Into TSeries' Earnings Processes on YouTube Networks</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-unlocking-the-power-of-videos-to-drive-fb-traffic/"><u>[Updated] Unlocking the Power of Videos to Drive FB Traffic</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/7-ways-to-unlock-a-locked-nokia-c12-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Nokia C12 Phone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/benchmark-analysis-djis-drone-phantom-3-for-2024/"><u>Benchmark Analysis DJI's Drone Phantom 3 for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/boosting-emotional-smarts-a-guide-on-leveraging-chatgpt/"><u>Boosting Emotional Smarts: A Guide on Leveraging ChatGPT</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-heartwarmth-to-the-winter-5-snug-cinematographic-tips/"><u>Bringing Heartwarmth to the Winter 5 Snug Cinematographic Tips</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/guide-eradicating-the-crackling-sound-in-your-arctis-7-while-using-windows-os/"><u>Guide: Eradicating the Crackling Sound in Your Arctis 7 While Using Windows OS</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-newly-eligible-users-see-revenue-uplift/"><u>In 2024, Newly Eligible Users See Revenue Uplift</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-top-8-strategies-for-striking-thumbnails-in-youtube-circles/"><u>In 2024, Top 8 Strategies for Striking Thumbnails in YouTube Circles</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/official-release-upgrade-to-the-cutting-edge-imovie-for-windows-your-top-choice-in-video-editing/"><u>Official Release: Upgrade to the Cutting-Edge iMovie for Windows - Your Top Choice in Video Editing !</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-crafting-gifs-like-a-pro-industry-leaders-tools/"><u>[New] 2024 Approved Crafting GIFs Like a Pro Industry Leaders' Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/levate-your-channels-a-guide-to-youtube-metrics/"><u>[New] Elevate Your Channels A Guide to YouTube Metrics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-beginners-guide-to-camera-lenses-in-filmmaking-and-vlogging/"><u>[New] In 2024, The Beginner's Guide to Camera Lenses in Filmmaking & Vlogging</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-next-gen-recording-iphoneipad-screens/"><u>[New] Next-Gen Recording IPhone/iPad Screens</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-reel-in-the-action-top-strategies-for-recording-your-minecraft-sessions-on-a-mac/"><u>[New] Reel in the Action Top Strategies for Recording Your Minecraft Sessions on a Mac</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-decoding-the-algorithm-behind-youtube-shorts/"><u>[Updated] In 2024, Decoding the Algorithm Behind YouTube Shorts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-premier-baking-studio-best-cookies-to-try-and-buy/"><u>[Updated] Premier Baking Studio Best Cookies to Try and Buy</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-utilizing-alternate-shots-to-elevate-film-quality/"><u>[Updated] Utilizing Alternate Shots to Elevate Film Quality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-source-stock-images-directly-from-trusted-4-youtube-vids/"><u>2024 Approved Source Stock Images Directly From Trusted 4 Youtube Vids</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-strategic-endings-keeping-viewers-engaged-on-yt/"><u>2024 Approved Strategic Endings Keeping Viewers Engaged on YT</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/budget-friendly-blink-4-camera-and-floodlight-combo-at-only-80-perfect-labor-day-deal/"><u>Budget-Friendly Blink 4-Camera & Floodlight Combo at Only $80 - Perfect Labor Day Deal!</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/nic-haven-best-dj-template-selections/"><u>Harmonic Haven Best DJ Template Selections</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-early-bird-winners-youtubes-quick-favorites/"><u>In 2024, Early Bird Winners Youtube's Quick Favorites</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-transform-your-youtube-sign-up-rate-learn-anime-subscribe-buttons-in-filmora/"><u>In 2024, Transform Your YouTube Sign-Up Rate - Learn Anime Subscribe Buttons in Filmora</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlock-the-potential-of-anonymous-chats-with-cutting-edge-ai-try-out-duckduckgos-platform-featuring-chatgpt-integration/"><u>Unlock the Potential of Anonymous Chats with Cutting-Edge AI – Try Out DuckDuckGo's Platform Featuring ChatGPT Integration</u></a></li>
 </ul></div>
 

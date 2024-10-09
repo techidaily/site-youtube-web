@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Channel Conclusion Mastery  Customized Screens in Focus\""
-date: 2024-09-15T21:08:51.637Z
-updated: 2024-09-21T22:18:48.922Z
+date: 2024-10-04T16:44:08.305Z
+updated: 2024-10-08T20:14:20.445Z
 tags:
   - ai video
   - ai youtube
@@ -106,13 +106,34 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
@@ -125,6 +146,19 @@ Another way to get your YouTube end screens for free, of course, is to make them
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -147,12 +181,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-legality-of-reproducing-your-watched-youtube-videos/"><u>[New] 2024 Approved Legality of Reproducing Your Watched YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-softer-side-of-promotion-elevating-your-audience-count-for-2024/"><u>[New] The Softer Side of Promotion Elevating Your Audience Count for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iral-video-vault-top-10-most-viewed-in-a-day/"><u>[New] Viral Video Vault Top 10 Most Viewed in a Day</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-top-5-video-and-picture-capturing-tools-for-smartphones/"><u>[Updated] In 2024, Top 5 Video & Picture Capturing Tools for Smartphones</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-syncopation-and-screenplay-directing-music-videos-with-ios/"><u>2024 Approved Syncopation & Screenplay Directing Music Videos with iOS</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-tailor-the-rhythm-of-youtube-videos-desktopmobile-way/"><u>2024 Approved Tailor the Rhythm of YouTube Videos - Desktop/Mobile Way</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-xs-max-online-by-drfone-ios/"><u>A Comprehensive Guide to iCloud Unlock From Apple iPhone XS Max Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/te-your-filming-flair-with-free-green-screen-insights-from-4-youtube-authorities-for-2024/"><u>Elevate Your Filming Flair with Free Green Screen Insights From 4 YouTube Authorities for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/enhancing-your-digital-dialogue-5-best-chatgpt-instructions/"><u>Enhancing Your Digital Dialogue: 5 Best ChatGPT Instructions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-social-media-trends-visualized/"><u>In 2024, Social Media Trends Visualized</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-the-ultimate-speech-refinement-kit-free-tools-for-flawless-audio-effects/"><u>In 2024, The Ultimate Speech Refinement Kit Free Tools for Flawless Audio Effects</u></a></li>
+<li><a href="https://games-able.techidaily.com/strategies-for-dealing-with-missing-parts-on-pc/"><u>Strategies for Dealing with Missing Parts on PC</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-unstoppable-force-cutting-edge-review-explores-how-apples-newest-m1-mac-mini-redefines-the-competitive-landscape/"><u>The Unstoppable Force: Cutting-Edge Review Explores How Apple's Newest M1 Mac Mini Redefines the Competitive Landscape</u></a></li>
+</ul></div>
 

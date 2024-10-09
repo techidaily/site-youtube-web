@@ -1,7 +1,7 @@
 ---
 title: "[New] Creating Captivating Visuals with DIY Filming Methods"
-date: 2024-09-14T20:42:36.168Z
-updated: 2024-09-22T00:29:12.389Z
+date: 2024-10-02T17:59:23.357Z
+updated: 2024-10-09T11:01:36.287Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,13 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047406/19272" target="_top" id="2047406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047406" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -72,19 +79,6 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -109,19 +103,33 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
+  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -143,5 +151,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-top-5-mac-software-for-mkv-files/"><u>[New] 2024 Approved Top 5 Mac Software for MKV Files</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-transforming-cityscapes-into-sustainable-havens-of-life/"><u>[New] 2024 Approved Transforming Cityscapes Into Sustainable Havens of Life</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ow-to-make-your-youtube-animated-subscribe-button-easily-with-filmora/"><u>[New] How to Make Your YouTube Animated Subscribe Button Easily With Filmora</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-charting-a-course-to-your-signature-sphere/"><u>[New] In 2024, Charting a Course to Your Signature Sphere</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-maximize-your-mobile-experience-with-these-7-blockers/"><u>[New] In 2024, Maximize Your Mobile Experience with These 7 Blockers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oyful-jokes-youtubes-funniest-creators-to-relax-with-for-2024/"><u>[New] Joyful Jokes YouTube's Funniest Creators to Relax With for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-mystery-of-youtubes-viewer-count-puzzle/"><u>[Updated] 2024 Approved The Mystery of YouTube's Viewer Count Puzzle</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-from-novice-to-niche-tripling-your-youtube-fans/"><u>[Updated] In 2024, From Novice to Niche Tripling Your Youtube Fans</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-prime-tools-elevating-digital-collaboration/"><u>[Updated] In 2024, Prime Tools Elevating Digital Collaboration</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-professionalscreenx-insiders-take-on-software-for-2024/"><u>[Updated] ProfessionalScreenX Insider’s Take on Software for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-optimizing-your-windows-10-experience-using-zoom-effectively/"><u>2024 Approved Optimizing Your Windows 10 Experience Using Zoom Effectively</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-samsung-galaxy-s24-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Samsung Galaxy S24 Activity | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-7-top-ways-to-resolve-apple-id-not-active-issue-for-iphone-11-pro-by-drfone-ios/"><u>In 2024, 7 Top Ways To Resolve Apple ID Not Active Issue For iPhone 11 Pro</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-streamlining-co-productions-a-guide-to-more-followers/"><u>In 2024, Streamlining Co-Productions A Guide to More Followers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/pixelperfect-editor-for-2024/"><u>PixelPerfect Editor for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/g-parts-of-youtube-a-comprehensive-tutorial/"><u>Saving Parts of YouTube A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mlining-video-dispatch-to-facebook-from-youtube/"><u>Streamlining Video Dispatch to Facebook From YouTube</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/0-sound-enhancers-across-multiple-platforms/"><u>Top 10 Sound Enhancers Across Multiple Platforms</u></a></li>
+</ul></div>
 

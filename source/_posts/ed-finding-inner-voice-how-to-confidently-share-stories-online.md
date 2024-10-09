@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Finding Inner Voice  How to Confidently Share Stories Online\""
-date: 2024-09-21T01:05:03.994Z
-updated: 2024-09-22T00:25:44.796Z
+date: 2024-10-06T02:55:32.077Z
+updated: 2024-10-08T22:49:17.458Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,19 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -55,6 +68,13 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -64,10 +84,10 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049382/7443" target="_top" id="2049382">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049382" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049382/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -77,6 +97,13 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -89,13 +116,6 @@ The great thing about vlogging is that you will get a lot of practice framing sh
 Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UCjwmbv6NE4mOh8Z8VhPUx1Q), where she gives a tour of her bedroom.
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
 
@@ -143,13 +163,6 @@ If you want to find a video editing solution that empowers your imagination and 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -169,5 +182,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/diting-engine-room/"><u>[New] Editing Engine Room</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/levate-your-youtube-traffic-best-hash-tactics-explained-for-2024/"><u>[New] Elevate Your YouTube Traffic Best Hash Tactics Explained for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-your-personalized-playlist-blueprint-for-youtube/"><u>[New] In 2024, Your Personalized Playlist Blueprint for YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ptimal-youtube-video-formats-a-comprehensive-guide/"><u>[New] Optimal YouTube Video Formats A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-step-up-your-stream-simultaneous-views-on-one-screen/"><u>[Updated] 2024 Approved Step Up Your Stream Simultaneous Views on One Screen</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-5-essential-strategies-to-avoid-a-dark-screen-during-obs-recordings/"><u>[Updated] In 2024, 5 Essential Strategies to Avoid a Dark Screen During OBS Recordings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-revolutionize-your-profile-picture-top-11-online-makers-ranked/"><u>[Updated] In 2024, Revolutionize Your Profile Picture Top 11 Online Makers Ranked</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-a-complete-strategy-for-superior-animoji-use-on-iphone-x/"><u>2024 Approved A Complete Strategy for Superior Animoji Use on iPhone X</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-virtual-hubs-for-scouting-sponsorship-opportunities-on-youtube/"><u>2024 Approved Virtual Hubs for Scouting Sponsorship Opportunities on Youtube</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-access-to-high-performance-pci-drivers-for-multiple-windows-systems-11-10-8-and-7/"><u>Easy Access to High-Performance PCI Drivers for Multiple Windows Systems (11, 10, 8 & 7)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-starting-from-scratch-video-gear-insights/"><u>In 2024, Starting From Scratch Video Gear Insights</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-truth-in-ai-medical-advice-fact-checking-techniques/"><u>Mastering Truth in AI Medical Advice: Fact-Checking Techniques</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/trasforma-i-tuoi-file-m1v-in-mpeg-gratuitamente-con-movavi/"><u>Trasforma I Tuoi File M1V in MPEG Gratuitamente Con Movavi</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/unlocking-the-secrets-of-instagrams-trending-reels-for-2024/"><u>Unlocking the Secrets of Instagram's Trending Reels for 2024</u></a></li>
+</ul></div>
 

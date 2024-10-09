@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Effective YouTube Banners  Pros and Cons to Avoid\""
-date: 2024-09-14T20:03:49.885Z
-updated: 2024-09-22T00:02:17.981Z
+date: 2024-10-04T20:32:52.011Z
+updated: 2024-10-08T22:34:49.382Z
 tags:
   - ai video
   - ai youtube
@@ -78,6 +78,19 @@ It is always best to use a current photo of yourself. Many times viewers will go
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### _Do: Include Your Channel Name_
 
 While including your channel name in your banner seems like a no brainer, it is often left out by aspiring YouTubers. Displaying your channel name in a large font allows it to be more visible for viewers - your channel name is already on the page, but it is underneath your channel art and doesn’t stand out.
@@ -97,6 +110,13 @@ Social media accounts are important to include in your channel art because we li
 Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _Make sure everything important fits in the safe area!_
 
@@ -130,26 +150,32 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -171,5 +197,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-honorable-warriors-reimagined-best-matching-gaming-titles/"><u>[New] 2024 Approved Honorable Warriors, Reimagined Best Matching Gaming Titles</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-perfecting-instagram-reels-acoustics-with-music-voiceovers/"><u>[New] 2024 Approved Perfecting Instagram Reels Acoustics with Music, Voiceovers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-navigating-through-best-youtube-extractors/"><u>[New] In 2024, Navigating Through Best YouTube Extractors</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-instant-recovery-of-vanished-visuals/"><u>[Updated] Instant Recovery of Vanished Visuals</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-chucklechamber-endless-options-to-spread-smiles/"><u>2024 Approved ChuckleChamber Endless Options to Spread Smiles</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-integrating-annotations-for-enhanced-engagement/"><u>2024 Approved Integrating Annotations for Enhanced Engagement</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-lunapic-basics-for-budding-photographers/"><u>2024 Approved LunaPic Basics for Budding Photographers</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-insights-on-the-remarkable-enhancements-of-apple-watch-series-4/"><u>Expert Insights on The Remarkable Enhancements of Apple Watch Series 4</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ey-through-virtuality-youtubes-best-10-for-2024/"><u>Journey Through Virtuality YouTube's Best 10 for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/netgear-wireless-usb-drivers-ac1200/"><u>NETGEAR Wireless USB Drivers - AC1200</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tability-in-production-starting-a-successful-vlog/"><u>Profitability in Production Starting a Successful Vlog</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/restoring-failed-m4v-media-on-operating-systems/"><u>Restoring Failed M4V Media on Operating Systems</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-growth-secrets-masterful-narration-techniques-for-2024/"><u>YouTube Growth Secrets Masterful Narration Techniques for 2024</u></a></li>
+</ul></div>
 

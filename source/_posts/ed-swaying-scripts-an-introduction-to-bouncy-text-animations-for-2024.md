@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Swaying Scripts  An Introduction to Bouncy Text Animations for 2024\""
-date: 2024-09-30T00:06:53.725Z
-updated: 2024-10-04T03:42:54.317Z
+date: 2024-10-04T10:56:54.358Z
+updated: 2024-10-09T14:46:54.978Z
 tags:
   - ai video
   - ai youtube
@@ -76,10 +76,10 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -95,10 +95,10 @@ Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
@@ -128,10 +128,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
@@ -149,16 +149,10 @@ Generating **bounce text** effect is much simpler when you use Wondershare Filmo
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -182,21 +176,15 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ransform-your-channel-with-effective-youtube-link-protocols/"><u>[New] Transform Your Channel with Effective YouTube Link Protocols</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-avoid-paying-for-space-the-most-attractive-20plus-free-cloud-services/"><u>[Updated] 2024 Approved Avoid Paying for Space - The Most Attractive 20+ Free Cloud Services</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-no-money-down-for-vfx-wizards-exclusive-video-tutorials-on-free-green-screen-techniques-from-top-channels/"><u>[Updated] In 2024, No Money Down for VFX Wizards Exclusive Video Tutorials on Free Green Screen Techniques From Top Channels</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unveiling-the-leading-youtube-to-mp3-tools/"><u>[Updated] In 2024, Unveiling the Leading YouTube to Mp3 Tools</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-put-a-halt-on-surprise-youtube-videos-for-2024/"><u>[Updated] Put a Halt on Surprise YouTube Videos for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-movavi-plus-unveiled-the-latest-edition/"><u>2024 Approved Movavi Plus Unveiled – The Latest Edition</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-unleashing-youtube-potential-the-best-shortcuts-to-higher-views/"><u>2024 Approved Unleashing YouTube Potential The Best Shortcuts to Higher Views</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/addressing-directx-update-problems-in-windows-os/"><u>Addressing DirectX Update Problems in Windows OS</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-channel-earnings-the-step-by-step-famebit-guide-to-affiliates/"><u>Boosting Channel Earnings The Step-by-Step FameBit Guide to Affiliates</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/combatting-iphones-difficulty-in-autofocusing/"><u>Combatting iPhone's Difficulty in Autofocusing</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/how-to-archive-snaps-on-iphoneandroid-from-snapchat-for-2024/"><u>How To Archive Snaps on iPhone/Android From Snapchat for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-it-samsung-galaxy-m14-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Samsung Galaxy M14 5G Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-how-to-fix-apple-id-verification-code-not-working-from-apple-iphone-x-by-drfone-ios/"><u>In 2024, How To Fix Apple ID Verification Code Not Working From Apple iPhone X</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/inside-look-at-youtubes-creator-workshop-space/"><u>Inside Look at YouTube's Creator Workshop Space</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/creen-recording-tool-for-successful-youtubers-for-2024/"><u>Pro Screen Recording Tool for Successful YouTubers for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-iphone-7-plus-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your iPhone 7 Plus? How to Fix</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-essential-guide-to-embedding-youtube-into-gslides/"><u>[New] 2024 Approved The Essential Guide to Embedding YouTube Into GSlides</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-captureit-all-the-complete-screen-recorder-hack/"><u>[Updated] CaptureIt All The Complete Screen Recorder Hack</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-smart-shoppers-guide-to-inexpensive-recording-gear/"><u>[Updated] In 2024, Smart Shopper's Guide to Inexpensive Recording Gear</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-scout-platforms-securing-partnerships-with-youtube-content-creators/"><u>2024 Approved Scout Platforms Securing Partnerships with YouTube Content Creators</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-xiaomi-redmi-note-12-pro-5g-pin-codepattern-lockpassword-by-drfone-android/"><u>In 2024, How to Unlock Xiaomi Redmi Note 12 Pro 5G PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-leveraging-tech-for-better-facebook-live-records/"><u>In 2024, Leveraging Tech for Better Facebook Live Records</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-youtube-integration-a-beginners-guide-to-google-meet/"><u>In 2024, YouTube Integration A Beginner's Guide to Google Meet</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/skyline-redefined-q500-typhoon-reviewed-for-2024/"><u>Skyline Redefined Q500 Typhoon Reviewed for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/style-sleuths-influential-beauty-creators-for-2024/"><u>Style Sleuths Influential Beauty Creators for 2024</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/updated-vn-video-editor-for-pc-a-concise-review-and-guide/"><u>Updated VN Video Editor for PC A Concise Review and Guide</u></a></li>
 </ul></div>
 

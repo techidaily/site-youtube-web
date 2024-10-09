@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How to Illuminate  A Guide to Great Vlog Images\""
-date: 2024-09-20T21:25:22.730Z
-updated: 2024-09-22T01:50:08.140Z
+date: 2024-10-03T03:48:26.502Z
+updated: 2024-10-08T21:21:10.672Z
 tags:
   - ai video
   - ai youtube
@@ -49,7 +49,21 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868495/19272" target="_top" id="1868495">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868495" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868495/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144276/7443" target="_top" id="2144276">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144276" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144276/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -77,6 +91,13 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037474/7443" target="_top" id="2037474">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037474" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037474/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -88,6 +109,13 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -108,12 +136,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-free-templates-for-dynamic-youtube-channel-closures/"><u>[New] In 2024, Free Templates for Dynamic YouTube Channel Closures</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rocuring-legal-melodies-a-youtube-creators-guide/"><u>[New] Procuring Legal Melodies A YouTube Creator's Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-efficiently-edit-your-youtube-videos-using-sony-vegas/"><u>[Updated] 2024 Approved Efficiently Edit Your YouTube Videos Using Sony Vegas</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-essential-10-history-youtube-feeds-for-learners/"><u>[Updated] 2024 Approved Essential 10 History YouTube Feeds For Learners</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-halt-youtube-suggested-content-now/"><u>[Updated] 2024 Approved Halt YouTube Suggested Content Now!</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-balancing-act-camera-gimbals-for-drones/"><u>[Updated] Balancing Act Camera Gimbals for Drones</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-achieving-high-clickthrough-rates-with-yt-thumbnails/"><u>[Updated] In 2024, Achieving High Clickthrough Rates with YT Thumbnails</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-streamline-your-writing-process-transcribing-with-microsoft-word/"><u>[Updated] In 2024, Streamline Your Writing Process Transcribing with Microsoft Word</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-navigating-youtube-comment-settings-tips-and-tricks-for-2024/"><u>[Updated] Navigating YouTube Comment Settings Tips and Tricks for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtubes-profit-distribution-to-content-makers/"><u>[Updated] YouTube's Profit Distribution to Content Makers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/come-tagliare-i-tuoi-file-video-con-vlc-nel-2024-guida-di-instantanea/"><u>Come Tagliare I Tuoi File Video Con VLC Nel 2024 - Guida Di Instantanea</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-music-from-samsung-galaxy-a05-by-fonelab-android-recover-music/"><u>Easy steps to recover deleted music from Samsung Galaxy A05</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-step-by-step-tutorial-how-to-bypass-oppo-reno-9a-frp-by-drfone-android/"><u>In 2024, Step-by-Step Tutorial How To Bypass Oppo Reno 9A FRP</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-win11s-1-5-pick-for-budget-friendly-screen-capture-apps/"><u>In 2024, Win11's #1-5 Pick for Budget-Friendly Screen Capture Apps</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/professional-tips-how-to-download-and-implement-linksys-wusb6300-drivers-seamlessly/"><u>Professional Tips: How to Download and Implement Linksys WUSB6300 Drivers Seamlessly</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-coordination-tips-instagram-reels-on-facebook-page/"><u>Social Media Coordination Tips: Instagram Reels on Facebook Page</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/transitioning-to-ai-freedom-discover-the-continued-benefits-of-choosing-chatgpt-plus-over-free-gpt/"><u>Transitioning to AI Freedom: Discover the Continued Benefits of Choosing ChatGPT Plus Over Free GPT-#</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/why-might-you-encounter-difficulties-with-your-youtube-connection/"><u>Why Might You Encounter Difficulties with Your YouTube Connection?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-success-starts-here-best-tutorials-for-starters/"><u>YouTube Success Starts Here Best Tutorials for Starters</u></a></li>
+</ul></div>
 

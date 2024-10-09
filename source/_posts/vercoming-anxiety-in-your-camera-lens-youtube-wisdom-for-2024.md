@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Overcoming Anxiety in Your Camera Lens  YouTube Wisdom for 2024\""
-date: 2024-09-19T00:46:50.834Z
-updated: 2024-09-21T22:24:18.701Z
+date: 2024-10-04T16:37:57.810Z
+updated: 2024-10-08T17:36:23.258Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,13 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **2\. Tell A Story**
 
 A vlog is not an assortment of footage haphazardly put together. A successful vlog must have a story: a conflict told with a beginning, middle, and end.
@@ -63,6 +70,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -70,13 +84,6 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -91,10 +98,10 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105876/7443" target="_top" id="2105876">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105876" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105876/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
@@ -116,13 +123,6 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -148,6 +148,13 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -169,5 +176,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-best-mobile-film-and-picture-capture-tools-for-iphones-and-androids/"><u>[New] 2024 Approved Best Mobile Film & Picture Capture Tools for iPhones & Androids</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-navigating-youtube-shorts-investments/"><u>[New] 2024 Approved Navigating YouTube Shorts Investments</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ncrease-video-traffic-key-youtube-seo-strategies/"><u>[New] Increase Video Traffic Key YouTube SEO Strategies</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-gag-galore-a-treasury-of-no-cost-memes/"><u>[Updated] 2024 Approved Gag Galore A Treasury of No-Cost Memes</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-a-comprehensive-walkthrough-setting-up-your-first-wirecast-livestream-to-youtube-for-2024/"><u>[Updated] A Comprehensive Walkthrough Setting Up Your First WireCast Livestream to Youtube for 2024</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/elevate-your-content-tiktoks-premium-font-selection-for-2024/"><u>Elevate Your Content TikTok's Premium Font Selection for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/get-your-free-video-editor-with-customizable-project-setup-options/"><u>Get Your Free Video Editor with Customizable Project Setup Options</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-rip-audio-from-youtube-in-3-ways-free-and-safe-for-2024/"><u>How to Rip Audio From YouTube in 3 Ways [Free and Safe] for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-to-turn-comments-on-or-off-on-youtube-easily-for-2024/"><u>Learn to Turn Comments On or Off on YouTube Easily for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-core-methods-to-implement-gpt-3-in-openai-realm/"><u>The Core Methods to Implement GPT-3 in OpenAI Realm</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-revolutionary-m1-integrated-processor-in-the-new-imac-an-expert-review/"><u>The Revolutionary M1 Integrated Processor in the New iMac: An Expert Review</u></a></li>
+</ul></div>
 

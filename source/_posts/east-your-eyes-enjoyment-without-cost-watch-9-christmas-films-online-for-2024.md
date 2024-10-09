@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Feast Your Eyes, Enjoyment Without Cost  Watch 9 Christmas Films Online for 2024\""
-date: 2024-10-03T01:34:32.065Z
-updated: 2024-10-04T01:40:34.803Z
+date: 2024-10-02T00:21:57.482Z
+updated: 2024-10-08T20:52:32.849Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,6 @@ If you are looking for Christmas entertainment this season you may be quick to l
 
 The Nutcracker is a holiday classic that many people seek out every year on the stage. This family ballet classic was filmed by the Pacific Northwest ballet in a huge and lavish version of the production in 1986\. This still stands as one of the best versions of the Nutcracker ever captured on film and you can watch it for free on YouTube. You can find the Nutcracker at :
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2. A smoky mountain Christmas
 
 A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and starring Lee Majors and Dolly Parton. The full musical fairy tale can be found online on YouTube and it's about a country singer who is trying to spend a quiet Christmas holiday at home. She suddenly becomes involved with a mysterious mountain man, an evil witch and is forced to protect seven orphans over the holidays. This film can be found at:
@@ -51,22 +44,21 @@ A Smoky Mountain Christmas is a film from 1986 directed by Harry Winkler and sta
 This film from 1989 features Jim Varney and his most famous character Ernest in a holiday Christmas movie that is an instant classic. This film is very funny and a favorite amongst some of the Ernest films for many. This Christmas movie from 1989 can be found at:
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4. A Christmas story
 
 A Christmas story has long been one of the favorite Christmas movies for many families. In this film from 1983 we travel back in time to a traditional 1940s Christmas. In this film we follow the nine-year-old Ralphie who is looking for the famous red Ryder BB gun for Christmas and will stop at absolutely nothing to get it. A Christmas story can be found at:
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5. Richie Rich's Christmas wish
 
@@ -76,26 +68,46 @@ In this film from 1998 we hear the story of the richest kid in the world on Chri
 
 This film stars the hulk Mark Ruffalo in one of his earlier roles as a store employee who catches a con woman trying to steal from a department store on Christmas. His character agrees to be responsible for the con woman and her niece over the holidays to prevent them from staying with social services. A romance develops! This 1997 film can be found at:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7. Santa Who?
 
 Santa who is a film from the year 2000 starring Leslie Nielsen. In this holiday classic Santa suffers a severe case of amnesia on Christmas Eve and needs to recover for Christmas day in order to make it through and deliver presents to all of the good children of the world. See if Santa gets his Christmas memories back by watching Santa Who here:
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8. A Christmas Carol
 
 In this film from 1984 George C Scott brings to life the role of Ebenezer Scrooge from the perspective of the Charles Dickens novel. This is heavily been regarded as one of the most accurate versions to the Charles Dickens story. Although it may not have all of the special effects of some of the other versions of a Christmas carol this is still one of the favored versions of the story out there. You can watch this 1984 film here:
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 9. Miracle on 34th street
 
 In this recreation of the original film from 1947 this shortened full-length version from 1955 per trade is the classic story of santa on trial. A department store Santa suggests that he's the real santa and goes on trial to prove it. In this version of miracle on 34th Street starring Thomas Mitchell and Macdonald Carey we learn who really believes in Santa Claus. You can find this classic film here:
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -118,21 +130,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-maximize-your-videos-a-curated-list-of-top-flv-to-youtube-apps/"><u>[New] In 2024, Maximize Your Videos A Curated List of Top FLV-to-YouTube Apps</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-streamline-your-youtube-shorts-a-guide-to-effortless-thumbnail-integration/"><u>[New] In 2024, Streamline Your YouTube Shorts A Guide to Effortless Thumbnail Integration</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nfographics-spotlight-on-future-social-trends-for-2024/"><u>[New] Infographics Spotlight on Future Social Trends for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-no-money-no-problem-adding-videos-to-written-pieces/"><u>[Updated] 2024 Approved No Money, No Problem Adding Videos to Written Pieces</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-elevate-videography-quality-top-7-sound-effects-pick/"><u>[Updated] Elevate Videography Quality Top 7 Sound Effects Pick</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-making-your-igtv-more-inclusive-with-subtitles/"><u>[Updated] Making Your IGTV More Inclusive with Subtitles</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-comparing-micro-video-formats-the-battle-of-tiktok-and-youtube-shorts/"><u>2024 Approved Comparing Micro-Video Formats The Battle of TikTok and YouTube Shorts</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ais-ability-to-craft-jokes-a-blend-of-logic-and-wit/"><u>AI's Ability to Craft Jokes: A Blend of Logic and Wit?</u></a></li>
-<li><a href="https://howto.techidaily.com/android-screen-stuck-general-xiaomi-redmi-note-13-5g-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Xiaomi Redmi Note 13 5G Partly Screen Unresponsive | Dr.fone</u></a></li>
-<li><a href="https://games-able.techidaily.com/fortifying-playtime-enabling-security-features-on-your-switch/"><u>Fortifying Playtime: Enabling Security Features on Your Switch</u></a></li>
-<li><a href="https://win-blog.techidaily.com/fortnite-and-pc-playability-solutions-for-freezing-issues-during-gaming/"><u>Fortnite and PC Playability : Solutions for Freezing Issues During Gaming</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-how-to-tackle-missing-thumbnails-on-youtube-shorts/"><u>In 2024, How to Tackle Missing Thumbnails on YouTube Shorts</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/in-2024-overlooked-masterpieces-unique-free-speech-to-text-apps-for-mac/"><u>In 2024, Overlooked Masterpieces Unique Free Speech-to-Text Apps for Mac</u></a></li>
-<li><a href="https://howto.techidaily.com/play-store-stuck-on-downloading-of-poco-c50-7-ways-to-resolve-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Stuck on Downloading Of Poco C50? 7 Ways to Resolve | Dr.fone</u></a></li>
-<li><a href="https://win-dash.techidaily.com/rtx-2060-latest-driver-version-available-compatible-with-various-windows-versions/"><u>RTX 2060 Latest Driver Version Available - Compatible with Various Windows Versions</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ts-to-effective-video-tagging-revealed-here-for-2024/"><u>Secrets to Effective Video Tagging Revealed Here for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-broadview-networks-navigating-mcn-choices/"><u>[New] 2024 Approved Broadview Networks Navigating MCN Choices</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-lightweight-pc-video-grabber-w10-compatible/"><u>[New] 2024 Approved Lightweight PC Video Grabber, W10 Compatible</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-unveiling-top-7-adblocker-apps-for-android-users/"><u>[New] 2024 Approved Unveiling Top 7 AdBlocker Apps for Android Users</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-discovering-the-least-expensive-cloud-storage-plans/"><u>[New] In 2024, Discovering the Least Expensive Cloud Storage Plans</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-ice-warriors-battle-the-spectacular-winter-olympics-snowboard-showdown/"><u>[Updated] 2024 Approved Ice Warriors Battle - The Spectacular Winter Olympics Snowboard Showdown</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-easily-connect-to-the-cloud-and-post-from-your-camera-roll/"><u>[Updated] Easily Connect to the Cloud and Post From Your Camera Roll</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-gamers-dream-the-ultimate-compilation-of-best-yt-game-entrances-for-2024/"><u>[Updated] Gamer's Dream The Ultimate Compilation of Best YT Game Entrances for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-windows-11-pro-prime-video-cameras-for-pcs/"><u>2024 Approved Windows 11 Pro Prime Video Cameras for PCs</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-erased-videos-from-lava-blaze-2-pro-by-fonelab-android-recover-video/"><u>How to retrieve erased videos from Lava Blaze 2 Pro</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/er-transcriber-platform-video-to-writing/"><u>Premier Transcriber Platform Video to Writing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mline-your-content-transform-videos-into-playful-animation-gifs/"><u>Streamline Your Content Transform Videos Into Playful Animation Gifs</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshooting-dark-souls-3-a-comprehensive-guide-to-fixing-game-crashes/"><u>Troubleshooting Dark Souls 3: A Comprehensive Guide to Fixing Game Crashes</u></a></li>
 </ul></div>
 

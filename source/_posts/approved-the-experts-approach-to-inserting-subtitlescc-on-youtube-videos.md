@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  The Expert's Approach to Inserting Subtitles/CC on YouTube Videos\""
-date: 2024-09-18T00:08:24.597Z
-updated: 2024-09-22T03:48:19.116Z
+date: 2024-10-05T05:38:11.555Z
+updated: 2024-10-09T03:53:31.792Z
 tags:
   - ai video
   - ai youtube
@@ -48,6 +48,13 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 
  So, here we are going to show you two ways to add subtittles to video: directly or uploading caption or transcript files
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Adding subtitles and closed captions manually
 
  To add subtitles and closed captions to your YouTube video, fisrt, you should sign in to your YouTube account. On left right below 'Home' you will find 'My Channel'. It will direct you to your personal YouTube page. On the top, right next to your subscribers lays the 'Video manager', giving you the list of your uploaded videos.
@@ -57,6 +64,13 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
  An interruption might occur with appearing of subtitles in accordance with video. Hence a lot precision is required while doing so.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Uploading Caption or Transcript Files automatically
 
@@ -77,10 +91,10 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
  This will create a subtitle timeline right beneath the video. You can manage by dragging and expanding the subtitle duration according to the audio of the video. The subtitle will appear at the bottom of the video screen. Click 'publish' once done.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959778/19272" target="_top" id="1959778">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959778" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959778/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 3 Best Tools for add/managing video Subtitles/CC
@@ -100,10 +114,10 @@ thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -125,5 +139,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-humor-hub-catching-the-best-comedy-channels-ever/"><u>[New] 2024 Approved Humor Hub Catching the Best Comedy Channels Ever</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/udiovisual-excellence-youtube-videos-in-premiere-pro/"><u>[New] Audiovisual Excellence YouTube Videos in Premiere Pro</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-maximizing-engagement-with-instagrams-ask-emoji/"><u>[New] In 2024, Maximizing Engagement with Instagram's Ask Emoji</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-lens-leaders-battle-sj6-clashes-with-xiaomis-four-k-kickstarter/"><u>[New] Lens Leaders Battle SJ6 Clashes with Xiaomi’s Four-K Kickstarter</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-epic-tiktok-success-the-virality-formula/"><u>[Updated] 2024 Approved Epic TikTok Success The Virality Formula</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-premier-7-phone-apps-for-changing-tone-quality/"><u>[Updated] In 2024, Premier 7 Phone Apps for Changing Tone Quality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-top-12-vlogger-friendly-cameras-unveiled/"><u>2024 Approved Top 12 Vlogger-Friendly Cameras Unveiled!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-motorola-edge-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to get the dragon scale and evolution-enabled pokemon On Motorola Edge 2023? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-innovating-sustainable-communities-within-the-concrete-jungle/"><u>In 2024, Innovating Sustainable Communities Within the Concrete Jungle</u></a></li>
+<li><a href="https://driver-error.techidaily.com/neutralized-hardware-misreadings/"><u>Neutralized Hardware Misreadings</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/quick-guide-transforming-your-iphone-into-a-portable-wi-fi-hub/"><u>Quick Guide: Transforming Your iPhone Into a Portable Wi-Fi Hub</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/tips-of-transferring-messages-from-honor-x7b-to-iphone-1415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Tips of Transferring Messages from Honor X7b to iPhone 14/15 | Dr.fone</u></a></li>
+</ul></div>
 

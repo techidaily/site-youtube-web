@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Smooth Transition of Short Videos to YouTube - Device Guide\""
-date: 2024-09-19T17:51:47.325Z
-updated: 2024-09-22T00:10:09.141Z
+date: 2024-10-04T10:26:56.793Z
+updated: 2024-10-08T23:45:53.019Z
 tags:
   - ai video
   - ai youtube
@@ -81,6 +81,13 @@ For macOS 10.12 or later
 
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Upload Short Video on YouTube Mobile App?
 
 The process of **uploading YouTube Shorts** from the mobile app is fairly simple compared to the method used on a computer. While using the app, you can either upload an existing video or shoot a new one from within the program itself then and there, add music and text, and upload it right away. Both these methods are explained below in detail:
@@ -94,6 +101,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 #### Step 1: Select a Video to Upload
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
@@ -117,6 +131,13 @@ Please note you will not see the **Create a Short** option if you are outsides o
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112008/7443" target="_top" id="2112008">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112008" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112008/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
 Next, use the **Speed** and **Timer** icons to set the speed of the video and the countdown timer duration before the app starts recording the video when you press the **Record** button respectively.
@@ -133,13 +154,6 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
@@ -149,10 +163,10 @@ Learning the process of **how to post short videos on YouTube** is fairly simple
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -174,5 +188,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-learn-to-craft-eye-catching-youtube-thumbnails-using-your-phone/"><u>[New] 2024 Approved Learn to Craft Eye-Catching YouTube Thumbnails Using Your Phone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-top-10-youtube-video-to-mp3-converter-withwithout-editor/"><u>[New] 2024 Approved Top 10 YouTube Video to Mp3 Converter With/Without Editor</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oosting-views-with-customized-thumbnail-sizes-on-youtube-for-2024/"><u>[New] Boosting Views with Customized Thumbnail Sizes on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-best-choice-streamline-your-youtube-audio/"><u>[New] In 2024, Best Choice Streamline Your YouTube Audio</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-diy-youtube-intros-and-ends-without-breaking-the-bank/"><u>[New] In 2024, DIY YouTube Intros & Ends Without Breaking the Bank</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-experience-the-future-of-learning-with-these-channels/"><u>[New] In 2024, Experience the Future of Learning with These Channels</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlocking-instagrams-potential-elevating-content-impact-for-2024/"><u>[New] Unlocking Instagram's Potential Elevating Content Impact for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-filmforge-editor8x/"><u>[Updated] FilmForge Editor8X</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-ai-name-magic-selecting-the-best-tools-for-your-podcast-titles/"><u>[Updated] In 2024, AI Name Magic Selecting the Best Tools for Your Podcast Titles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-samsung-ue590-unveiled-ultra-hd-4k-and-freesync-edition/"><u>[Updated] Samsung UE590 Unveiled Ultra HD 4K & FreeSync Edition</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-unleashing-potential-the-best-anime-ideas-in-videos/"><u>[Updated] Unleashing Potential The Best Anime Ideas in Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-cross-social-media-content-strategy-with-youtube-and-fb-for-2024/"><u>Crafting Cross-Social Media Content Strategy with YouTube & FB for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-youtubes-earning-rules-update-for-2024/"><u>Decoding YouTube's Earning Rules Update for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/how-to-fix-pokemon-go-route-not-working-on-apple-iphone-15-pro-drfone-by-drfone-virtual-ios/"><u>How to Fix Pokemon Go Route Not Working On Apple iPhone 15 Pro? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-broken-video-files-of-huawei-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair Broken video files of Huawei ?</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-minimize-external-noise-find-a-quiet-environment-to-minimize-distractions-that-can-hinder-understanding/"><u>In 2024, Minimize External Noise Find a Quiet Environment to Minimize Distractions that Can Hinder Understanding</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/quick-tutorial-setting-up-your-canon-printing-device/"><u>Quick Tutorial: Setting Up Your Canon Printing Device</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ling-youtubes-complex-view-count-system-for-2024/"><u>Unveiling YouTube's Complex View Count System for 2024</u></a></li>
+</ul></div>
 

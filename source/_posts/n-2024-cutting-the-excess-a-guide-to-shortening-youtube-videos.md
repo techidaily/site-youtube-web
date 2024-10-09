@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Cutting the Excess  A Guide to Shortening YouTube Videos\""
-date: 2024-09-21T00:34:05.308Z
-updated: 2024-09-21T23:24:44.660Z
+date: 2024-10-06T23:15:28.699Z
+updated: 2024-10-08T20:19:21.554Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,13 @@ In this way, you don’t need to take down the original video, edit it and re-up
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### Method 1: Trim on Timeline
 
 YouTubers who don’t want to rely on YouTube’s video editing capabilities can trim their footage with Filmora (to be honest, the Editor in YouTube platform has limited features). Filmora video editing software for PC and Mac computers offers a few different tools for trimming videos. After you’ve created a new project in Filmora, you should import a video clip into the editor by clicking on the **Import** drop-down menu and select the **Import Media Files** option. Each file you add to a project will be displayed in the **Media tab**, and you can just **drag and drop** it to a video track on the timeline.
@@ -66,6 +73,13 @@ YouTubers who don’t want to rely on YouTube’s video editing capabilities can
 All you have to do in order to trim a video after you’ve placed it on the timeline is drag **one of its ends to the left or to the right**. As you drag one of the clip’s edges the editor will only display **the remaining footage** while rendering the rest invisible. If at any point you want to access a portion of the video you’ve trimmed you just have to **extend the file by dragging it** until you’re able to see the segment you’re searching for.
 
 ![Trim YouTube Videos with Filmora Trimmer  Tool](https://images.wondershare.com/filmora/guide/trim-sides.gif)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Method 2: Using Filmora Split Tool
 
@@ -83,6 +97,13 @@ The **Instant Cutter Tool** enables you to quickly trim or merge high-resolution
 
 ![Trim YouTube Videos with Filmora Instant Cutter Tool](https://images.wondershare.com/filmora/article-images/instant-cutter-filmora-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Using Online Video Editing Platforms to Trim YouTube Videos
 
 In case you’re looking for a tool that lets you save extracts of scenes from YouTube to your computer free of charge [YT Cutter](https://ytcutter.com/) may be one of your best options.
@@ -95,19 +116,6 @@ There’re many [online video trimmers](https://tools.techidaily.com/wondershare
 
  **Read More to Get :** [How to Download YouTube Videos without Any Software Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1983552">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 **Trimming a video online** or with a video editing software like Filmora is an effortless task that can be completed in just a couple of minutes. However, it is better to complete the entire video editing process before you upload a video to your YouTube channel because YouTube Studio and other online video editing platforms still offer only a limited amount of video editing tools. Which method of trimming YouTube videos do you like using the most? Leave a comment and share your opinions with us.
@@ -115,10 +123,10 @@ There’re many [online video trimmers](https://tools.techidaily.com/wondershare
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,5 +148,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/uickly-create-a-youtube-animation-for-your-subscribe-button-with-filmora/"><u>[New] Quickly Create a YouTube Animation for Your Subscribe Button with Filmora</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ecure-your-free-green-screen-assets-with-these-top-8-sites/"><u>[New] Secure Your FREE Green Screen Assets with These Top 8 Sites</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-detailed-methods-for-seamless-wirecast-livestreams-on-youtube/"><u>[Updated] 2024 Approved Detailed Methods for Seamless WireCast Livestreams on YouTube</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-5-best-photo-video-maker-with-music-you-should-know-for-2024/"><u>[Updated] 5 Best Photo Video Maker With Music You Should Know for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-budding-creators-set-up-a-profitable-youtube-chanel/"><u>[Updated] In 2024, Budding Creators Set Up a Profitable YouTube Chanel</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-safekeeping-sensitive-visuals-from-public-eyes-for-2024/"><u>[Updated] Safekeeping Sensitive Visuals From Public Eyes for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-swift-channels-growth-optimizing-viewership-with-collaborative-videos-for-2024/"><u>[Updated] Swift Channels Growth Optimizing Viewership with Collaborative Videos for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-making-the-leap-set-up-a-sports-vlog-on-macos/"><u>2024 Approved Making the Leap Set Up a Sports Vlog on macOS</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/harnessing-multiple-windows-learn-pip-in-microsoft-edge/"><u>Harnessing Multiple Windows Learn PIP in Microsoft Edge</u></a></li>
+<li><a href="https://network-issues.techidaily.com/1719973988124-improve-graphic-performance-with-an-easy-update-to-your-intel-3000-graphics-on-w10/"><u>Improve Graphic Performance with an Easy Update to Your Intel 3000 Graphics on W10.</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-ensuring-correct-ad-revenue-a-comprehensive-guide-to-yt-channel-earnings/"><u>In 2024, Ensuring Correct Ad Revenue A Comprehensive Guide to YT Channel Earnings</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-how-to-change-shape-of-a-video/"><u>In 2024, How to Change Shape of a Video?</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-screenscapes-the-new-tech-frontier/"><u>In 2024, Screenscapes The New Tech Frontier</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/transcultural-dialogues-and-their-impact-on-english/"><u>Transcultural Dialogues and Their Impact on English</u></a></li>
+</ul></div>
 
