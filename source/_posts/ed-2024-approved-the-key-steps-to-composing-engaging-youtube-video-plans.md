@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Key Steps to Composing Engaging YouTube Video Plans\""
-date: 2024-10-08T03:01:14.350Z
-updated: 2024-10-08T22:27:12.237Z
+date: 2024-10-10T17:40:04.672Z
+updated: 2024-10-15T16:32:40.048Z
 tags:
   - ai video
   - ai youtube
@@ -44,37 +44,31 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 1\. Create an outline for your story
 
@@ -85,15 +79,22 @@ The first step in writing a script is to develop an outline for the story. You m
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -129,13 +130,6 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -159,21 +153,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-10-essential-meme-blueprints/"><u>[New] In 2024, 10 Essential Meme Blueprints</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-guide-to-growing-groups-of-great-guests-subscribers-on-youtube/"><u>[New] In 2024, The Guide to Growing Groups of Great Guests (Subscribers) on Youtube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/aximize-content-impact-with-youtubes-movie-maker-tools/"><u>[New] Maximize Content Impact with YouTube's Movie Maker Tools</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-elevate-your-content-delivery-from-zoom-to-fb-live-streaming/"><u>[Updated] 2024 Approved Elevate Your Content Delivery From Zoom to FB Live Streaming</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-swiftly-adjust-video-speeds-a-users-guide-to-youtube-features/"><u>[Updated] 2024 Approved Swiftly Adjust Video Speeds A User's Guide to YouTube Features</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-best-youtube-channel-name-ideas-for-aspiring-vloggers-and-film-makers-maximum-length-156-characters/"><u>[Updated] Best Youtube Channel Name Ideas For Aspiring Vloggers & Film Makers (Maximum Length 156 Characters)</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-how-to-record-a-voice-over-for-a-video-for-2024/"><u>[Updated] How To Record A Voice Over For A Video for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-essential-insights-for-crafting-youtube-intros-aplusb-methods/"><u>2024 Approved Essential Insights for Crafting YouTube Intros A+B Methods</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-from-humble-beginnings-jake-paul-on-youtube-triumph/"><u>2024 Approved From Humble Beginnings Jake Paul on YouTube Triumph</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-mobile-mastery-youtube-video-thumbnails-made-easy/"><u>2024 Approved Mobile Mastery YouTube Video Thumbnails Made Easy</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nce-centric-video-structure-chapter-addition-for-maximum-viewership-on-youtube/"><u>Audience-Centric Video Structure Chapter Addition for Maximum Viewership on YouTube</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/combining-photographs-seamlessly-effortless-methods-revealed-in-november-2022/"><u>Combining Photographs Seamlessly - Effortless Methods Revealed in November 2022</u></a></li>
-<li><a href="https://some-tips.techidaily.com/harness-the-power-of-cookiebot-for-superior-website-insights-and-conversions/"><u>Harness the Power of Cookiebot for Superior Website Insights & Conversions</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/-screen-reporter-tech-boosting-youtubing-experience/"><u>Ideal Screen Reporter Tech Boosting YouTubing Experience</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/maximize-site-performance-with-cookiebot-advanced-tracker-and-pixel-technology/"><u>Maximize Site Performance with Cookiebot: Advanced Tracker & Pixel Technology</u></a></li>
-<li><a href="https://win-community.techidaily.com/top-5-gratis-mac-apps-to-convert-videos-from-ipad/"><u>Top 5 Gratis Mac Apps to Convert Videos From iPad</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-how-to-do-a-poll-on-instagram-stories-a-complete-guide/"><u>[New] In 2024, How to Do a Poll on Instagram Stories - a Complete Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aestro-of-visual-and-sonic-harmony-creation-for-2024/"><u>[New] Maestro of Visual & Sonic Harmony Creation for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-steps-to-uncover-youtubes-central-editing-nexus/"><u>[Updated] In 2024, Steps to Uncover YouTube’s Central Editing Nexus</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-maximize-your-mobile-experience-with-these-7-blockers/"><u>[Updated] Maximize Your Mobile Experience with These 7 Blockers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-premium-cut-tools-the-top-8-linux-apps-for-2024/"><u>[Updated] Premium Cut Tools The Top 8 Linux Apps for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-retro-reel-upgrade-converting-photographs-to-videos-for-2024/"><u>[Updated] Retro Reel Upgrade Converting Photographs to Videos for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1725290079746-video-downloadhelper/"><u>無料配布版 Video Downloadhelperの使い方：全機能利用へ</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gpt-chat-and-whisper-api-release-a-game-changer-for-companies/"><u>GPT-Chat and Whisper API Release - A Game Changer for Companies</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-activation-lock-from-the-apple-iphone-12-pro-without-previous-owner-by-drfone-ios/"><u>In 2024, How to Remove Activation Lock From the Apple iPhone 12 Pro Without Previous Owner?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-youthful-wealth-wonders-a-look-at-ryans-online-riches/"><u>In 2024, Youthful Wealth Wonders A Look at Ryan's Online Riches</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/h-cinematography-best-stabilizers-listed-for-2024/"><u>Smooth Cinematography Best Stabilizers Listed for 2024</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-auditory-delights-in-cinema-celebrating-the-best-8-film-soundscapes/"><u>Updated 2024 Approved Auditory Delights in Cinema - Celebrating the Best 8 Film Soundscapes</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/zero-downloads-the-ultimate-list-of-seamless-gif-to-video-tools/"><u>Zero Downloads The Ultimate List of Seamless GIF to Video Tools</u></a></li>
 </ul></div>
 

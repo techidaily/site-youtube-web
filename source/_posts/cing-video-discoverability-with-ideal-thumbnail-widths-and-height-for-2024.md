@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Video Discoverability with Ideal Thumbnail Widths and Height for 2024"
-date: 2024-09-20T17:59:19.196Z
-updated: 2024-09-21T21:40:44.689Z
+date: 2024-10-12T20:58:45.467Z
+updated: 2024-10-15T20:01:18.277Z
 tags:
   - ai video
   - ai youtube
@@ -69,6 +69,13 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
@@ -77,6 +84,13 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
@@ -91,6 +105,13 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
@@ -103,13 +124,6 @@ You may want to know:
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
 YouTube will not allow you to upload a custom thumbnail image if it is bigger than the 2MB limit. So, you need to make sure the file size is below the limit to be able to successfully upload a custom thumbnail. To reduce the image size you can follow the steps below:
@@ -118,6 +132,13 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -131,13 +152,6 @@ Let's see how you can create your thumbnail using Wondershare Filmora:
 
 **[![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 2\. [Try Wondershare PixStudio>>](https://tools.techidaily.com/wondershare/fotophire/download/)
 
 Wondershare PixStudio provides you massive pre-designed templates which help you to create attractive YouTube Thumbnail. Let’s see the video below and see how you can design your YouTube Thumbnail easily.
@@ -149,6 +163,13 @@ With Canva you can make a distinct and stand-out YouTube thumbnail image. Canva 
 **Note:**
 
 To download the image without the watermark you’ll need to sign-up for a premium account on the Canva.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **To sum up**
 
@@ -175,5 +196,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-navigating-youtube-music-eclecticism/"><u>[New] 2024 Approved Navigating YouTube Music Eclecticism</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-audiovisual-powerhouses-select-best-laptops-for-editing/"><u>[New] In 2024, Audiovisual Powerhouses Select Best Laptops for Editing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-making-every-penny-count-in-youtube-webinars/"><u>[New] In 2024, Making Every Penny Count in Youtube Webinars</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-detailed-guide-to-dollar-counts-a-stepwise-strategy-to-track-youtube-earnings/"><u>[Updated] 2024 Approved Detailed Guide to Dollar Counts A Stepwise Strategy to Track YouTube Earnings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-master-the-art-of-streaming-pick-from-the-leading-6-cost-free-and-on-demand-short-video-downloads/"><u>[Updated] In 2024, Master the Art of Streaming Pick From the Leading 6 Cost-Free & On-Demand Short Video Downloads</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-navigating-the-complexities-of-online-video-rights/"><u>[Updated] In 2024, Navigating the Complexities of Online Video Rights</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-social-media-whizs-playbook-analyzing-user-behavior-with-insta-insights/"><u>[Updated] The Social Media Whiz's Playbook Analyzing User Behavior with Insta Insights</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-time-lapse-tips-for-iphoneipad-users/"><u>[Updated] Time-Lapse Tips for iPhone/iPad Users</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/can-chatgpt-improve-its-responses-through-interactions-with-users/"><u>Can ChatGPT Improve Its Responses Through Interactions With Users?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-speedy-fortnite-cover-art-creation/"><u>In 2024, Speedy Fortnite Cover Art Creation</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/the-rise-and-reality-of-magix-paintbox/"><u>The Rise and Reality of MAGIX Paintbox</u></a></li>
+</ul></div>
 

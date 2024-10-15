@@ -1,7 +1,7 @@
 ---
 title: "How To Ensure Smooth Play in FIFA 20 for PC: A Comprehensive Fixing Guide"
-date: 2024-10-02T02:37:39.676Z
-updated: 2024-10-08T23:57:42.463Z
+date: 2024-10-14T16:35:23.725Z
+updated: 2024-10-15T21:13:51.161Z
 tags:
   - win11
   - win10
@@ -59,20 +59,33 @@ Check if the game runs normally now. If not, move on to the second fix.
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **2)** Right-click**Star Wars Squadrons** from the game list and click**Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2-2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **3)** Select the**Local Files** tab, and click**Verify Integrity of Game Files** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Wait for the repair process to finish. Then launch the game to see how it works. If crashing persists, try **[Fix 3](https://tools.techidaily.com/drivereasy/download/)**  to update your GPU driver.
 
@@ -87,10 +100,10 @@ Check if the game runs normally now. If not, move on to the second fix.
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/0.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Relaunch the game after repair finishes. If crashing remains, try the next fix below.
@@ -123,16 +136,10 @@ There are mainly two ways you can do the driver update:
  If all the device drivers are up-to-date but the crashes don’t stop, there are more methods to try below.
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Fix 4 – Turn off overlays
@@ -145,6 +152,13 @@ There are mainly two ways you can do the driver update:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2-1-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **2)** Right-click**Star Wars Squadrons** and click**Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/2-2.jpg)
@@ -152,13 +166,6 @@ There are mainly two ways you can do the driver update:
 **3)** Untick**Enable the Steam Overlay while in-game** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/5-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### On Origin
 
@@ -168,27 +175,20 @@ There are mainly two ways you can do the driver update:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/5-2-1200x625.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **3)** Click the**settings icon** and click**Game Properties** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/5-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **4)** Untick**Enable Origin In Game for STAR WARS: Squadrons** and click**Save** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/5-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### On GeForce Experience
 
@@ -198,18 +198,25 @@ There are mainly two ways you can do the driver update:
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/7-1-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **3)** Toggle off**In-Game Overlay** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/0-00.jpg)
 
- Restart the game to see whether crashing is fixed or not. If not, head towards the next method.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+ Restart the game to see whether crashing is fixed or not. If not, head towards the next method.
 
 ### Fix 5 – Adjust the graphics settings
 
@@ -228,19 +235,6 @@ There are mainly two ways you can do the driver update:
 **4)** Set Fullscreen Mode to**Windowed** or**Borderless** .
 
 ![](https://images.drivereasy.com/wp-content/uploads/2020/12/4-3.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **5)** Scroll down to Volumetric Quality, and set it to**Medium** or**Low** .
 
@@ -273,20 +267,18 @@ There are mainly two ways you can do the driver update:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-easy-steps-to-record-with-your-macbooks-camera-for-2024/"><u>[New] Easy Steps to Record with Your MacBook's Camera for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ssential-youtube-to-webm-video-transformers-for-2024/"><u>[New] Essential YouTube-to-WebM Video Transformers for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-from-raw-footage-to-polished-content-youtube-studio-edition/"><u>[New] In 2024, From Raw Footage to Polished Content YouTube Studio Edition</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-unraveling-the-mystery-of-online-video-sharing-for-2024/"><u>[New] Unraveling the Mystery of Online Video Sharing for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-from-free-to-profitable-unlocking-youtubes-monetization-at-500plus/"><u>[Updated] 2024 Approved From Free to Profitable Unlocking YouTube's Monetization at 500+</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-capture-the-essence-of-xiaomis-latest-smartphones/"><u>[Updated] In 2024, Capture the Essence of Xiaomi's Latest Smartphones</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-frame-by-frame-mastery-in-youtube-no-cost-required/"><u>2024 Approved Frame by Frame Mastery in YouTube - No Cost Required</u></a></li>
-<li><a href="https://discover-help.techidaily.com/beginners-guide-mastering-gemini-ai-essential-tips-and-tricks/"><u>Beginner's Guide: Mastering Gemini AI - Essential Tips & Tricks</u></a></li>
-<li><a href="https://blog-min.techidaily.com/convert-your-textbooks-to-pdf-format-with-vitalsource-seamless-digital-solutions/"><u>Convert Your Textbooks to PDF Format with Vitalsource: Seamless Digital Solutions</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ss-the-power-of-youtube-video-for-stunning-gif-masterpieces/"><u>Harness the Power of YouTube Video for Stunning GIF Masterpieces</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-poco-m6-pro-5g-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Poco M6 Pro 5G Device</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/mastering-visual-learning-lesson-planning-guide-for-2024/"><u>Mastering Visual Learning Lesson Planning Guide for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/on-view-achievement-and-its-monetary-benefit-for-2024/"><u>Million View Achievement and Its Monetary Benefit for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/rev-up-creativity-instagrams-best-inspirational-snapshots/"><u>Rev Up Creativity Instagram's Best Inspirational Snapshots</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/visual-stories-in-25-steps-blending-pictures-for-maximum-engagement-for-2024/"><u>Visual Stories in 25 Steps Blending Pictures for Maximum Engagement for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rafting-kingdom-the-path-to-youtube-mastery-for-2024/"><u>[New] Crafting Kingdom The Path to YouTube Mastery for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-expand-your-online-realm-harnessing-youtube-insights-powerfully/"><u>[Updated] Expand Your Online Realm Harnessing YouTube Insights Powerfully</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-hiding-youtube-playback-tips-for-ios-and-android-for-2024/"><u>[Updated] Hiding YouTube Playback Tips for iOS and Android for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-instant-how-to-converting-photos-to-your-youtube-channels-thumbnails/"><u>[Updated] In 2024, Instant How-To Converting Photos to Your YouTube Channel's Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-short-chords-long-stories-musical-roles-played/"><u>[Updated] In 2024, Short Chords, Long Stories Musical Roles Played</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-the-art-of-transferring-tunes-between-platforms-for-2024/"><u>[Updated] The Art of Transferring Tunes Between Platforms for 2024</u></a></li>
+<li><a href="https://fox-search.techidaily.com/essential-strategies-mastering-the-move-from-hardware-to-virtual-environment/"><u>Essential Strategies: Mastering the Move From Hardware to Virtual Environment</u></a></li>
+<li><a href="https://discover-cheats.techidaily.com/fixing-record-cannot-be-synced-errors-in-microsoft-outlook-for-macos/"><u>Fixing 'Record Cannot Be Synced' Errors in Microsoft Outlook for macOS</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-iphones-video-reduction-and-adjustment-tools/"><u>In 2024, Mastering iPhone's Video Reduction and Adjustment Tools</u></a></li>
+<li><a href="https://games-able.techidaily.com/pc-harmony-a-how-to-guide-for-preventive-measures/"><u>PC Harmony: A How-To Guide for Preventive Measures</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/simple-guide-installing-lenovo-x220-device-drivers-fast-and-secure/"><u>Simple Guide: Installing Lenovo X220 Device Drivers - Fast and Secure</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-tricks-for-achieving-high-quality-slow-motion-videos-on-android-for-2024/"><u>Top Tricks for Achieving High-Quality Slow Motion Videos on Android for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ched-camera-and-recording-app-selection-on-iphones-and-androids-for-2024/"><u>Unmatched Camera & Recording App Selection on iPhones and Androids for 2024</u></a></li>
 </ul></div>
 

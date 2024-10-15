@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of Self-Recording  Improving Your YouTube Presence for 2024\""
-date: 2024-10-06T01:16:47.665Z
-updated: 2024-10-09T09:22:17.041Z
+date: 2024-10-13T20:29:55.289Z
+updated: 2024-10-15T16:27:06.320Z
 tags:
   - ai video
   - ai youtube
@@ -43,10 +43,10 @@ We’ve summarized the key points about setting up talking head style video shot
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
@@ -65,13 +65,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -86,6 +79,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -95,10 +95,10 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -117,18 +117,18 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -153,16 +153,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-channel-upgrade-made-simple-embrace-tubebuddy-techniques/"><u>[New] In 2024, Channel Upgrade Made Simple - Embrace TubeBuddy Techniques</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-focusing-attention-with-eye-catching-intros-in-imovie/"><u>[New] In 2024, Focusing Attention with Eye-Catching Intros in iMovie</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-hourly-hitlist-the-leading-youtube-videos-by-watch-time/"><u>[Updated] 2024 Approved Hourly Hitlist The Leading YouTube Videos by Watch Time</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-transforming-trips-into-tales-the-roadmap-to-becoming-a-travel-blogger/"><u>[Updated] 2024 Approved Transforming Trips Into Tales The Roadmap to Becoming a Travel Blogger</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-7-easy-steps-for-a-subscriber-surge-on-youtube/"><u>[Updated] In 2024, 7 Easy Steps for a Subscriber Surge on YouTube</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-notable-20-anime-series-theme-tracks/"><u>2024 Approved Notable 20 Anime Series Theme Tracks</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-playbook-for-attracting-hundred-thousand-on-youtube/"><u>2024 Approved The Ultimate Playbook for Attracting Hundred Thousand on YouTube</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/a-step-by-step-fix-for-neros-elusive-advrcntr2dll-error-message/"><u>A Step-by-Step Fix for Nero's Elusive Advrcntr2.dll Error Message</u></a></li>
-<li><a href="https://windows11.techidaily.com/guidelines-to-address-missing-windows-1011-search-data/"><u>Guidelines to Address Missing Windows 10/11 Search Data</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/mp3-versus-mp4/"><u>MP3 versus MP4 - 違いとフォーマット間で変換する手順</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/mp3-mp4m4v-movavi/"><u>원통과 MP3를 합친 무료 MP4/M4V 바이널로 인터넷을 통해 자동 변환 - Movavi</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/utomate-playlist-retrieval-from-youtube-directly-for-2024/"><u>[New] Automate Playlist Retrieval From YouTube Directly for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/onnect-with-creators-unravel-your-youtube-subscriber-type-with-6-exciting-questionnaires/"><u>[New] Connect With Creators Unravel Your YouTube Subscriber Type with 6 Exciting Questionnaires</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-complete-guide-to-proficient-periscope-operation/"><u>[New] In 2024, Complete Guide to Proficient Periscope Operation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-hot-takes-dailys-most-popular-video-tracks/"><u>[Updated] In 2024, Hot Takes Daily's Most Popular Video Tracks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-expert-picks-best-7-video-streaming-apps-to-take-your-youtube-game-upward-iosandroid/"><u>2024 Approved Expert Picks Best 7 Video Streaming Apps to Take Your YouTube Game Upward (iOS/Android)</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-cinematic-edge-master-the-top-5-camera-skills/"><u>2024 Approved The Cinematic Edge Master the Top 5 Camera Skills</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/combatting-the-common-open-package-failure-in-win-1011/"><u>Combatting the Common 'Open Package' Failure in Win 10/11</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/playlist-extraction-made-simple-download-steps-revealed/"><u>Playlist Extraction Made Simple Download Steps Revealed</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-list-11-leading-free-tools-to-automate-software-updates/"><u>The Ultimate List: 11 Leading Free Tools to Automate Software Updates</u></a></li>
 </ul></div>
 

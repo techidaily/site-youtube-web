@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, A Practical Guide To Applying Creative Commons Rights"
-date: 2024-09-17T22:17:45.125Z
-updated: 2024-09-21T22:40:48.088Z
+date: 2024-10-14T19:52:57.814Z
+updated: 2024-10-15T17:51:16.585Z
 tags:
   - ai video
   - ai youtube
@@ -63,11 +63,31 @@ If you’re using music or other media with this license, all you need to do is 
 
 If you license your video this way, people can do whatever they like with any element of it (video or sound) so long as they credit you. I.e. if someone wanted to mute your clips and use you as stock footage in a bigger project, they could.
 
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Attribution-ShareAlike – CC BY-SA
 
 If you use music, photos, or any other media licensed this way, then you must both credit the artist and license your video this same way. Meaning, you can’t use YouTube’s standard license and must instead allow for others to use your work the way you are using the licensed media.
 
 If you apply this license to your video, you’re saying you don’t mind people using all or portions of your video for their project so long as they allow others to use their work in the same way.
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Attribution-NoDerivs – CC BY-ND
 
@@ -82,13 +102,6 @@ For example, you can’t edit clips of yourself snowboarding so that they’re i
 Whether or not you can play the song in the background of your vlog while you are speaking can be a bit of a grey area. In theory, it shouldn’t be a problem, but if you’re accessing the music through a social site like SoundCloud then it might be best to ask the artist first.
 
 There’s no reason to license your YouTube videos this way. If people cannot alter your video, all that’s left is for them to repost it. Even though they’d also be crediting you, they’d still essentially be stealing views and ad revenue from your original video.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Attribution-NonCommercial – CC BY-NC
 
@@ -106,6 +119,13 @@ Music and other media with an ‘Attribution-NonCommercial-ShareAlike’ license
 
 If you license your video this way, people can use it or a portion of it in their project if they credit you. They must also use this same license for their video if they do. This protects you from the situation where a third person who never licensed your original content is making money off of it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Attribution-NonCommercial-NoDerivs – CC BY-NC-ND
 
 There aren’t many situations where you would be using media licensed this way in your YouTube videos. You can’t alter it, sync videos to it, or make money from any video that uses it.
@@ -119,10 +139,10 @@ You also probably shouldn’t use this license for your videos. ‘NoDerivs’ m
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -144,5 +164,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/54706931-new-2024-approved-tone-your-vlogs-access-free-sound-tracks/"><u>[New] 2024 Approved Tone Your Vlogs Access Free Sound Tracks</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-insight-into-quadcopters-functionality-uncovered-for-2024/"><u>[New] Insight Into Quadcopters Functionality Uncovered for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rim-the-hours-off-custom-youtube-shorts-image-creation/"><u>[New] Trim The Hours Off Custom YouTube Shorts Image Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/our-treasure-trove-of-free-marketing-50plus-youtube-ads-ready-to-go/"><u>[New] Your Treasure Trove of Free Marketing 50+ YouTube Ads Ready to Go</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-conquering-camera-angst-the-ultimate-list-of-video-blogging-phobias/"><u>[Updated] In 2024, Conquering Camera Angst The Ultimate List of Video Blogging Phobias</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-minecraft-homestead-blueprint-6-10/"><u>[Updated] In 2024, Minecraft Homestead Blueprint #6-10</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-pro-tips-to-enhance-your-use-of-instagrams-query-symbol-for-2024/"><u>[Updated] Pro Tips to Enhance Your Use of Instagram's Query Symbol for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-irreversible-termination-of-youtubes-brevity-mode/"><u>2024 Approved Irreversible Termination of YouTube’s Brevity Mode</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/compatible-driver-installation-guide-for-samsung-960-evo-on-windows-computers/"><u>Compatible Driver Installation Guide for Samsung 960 EVO on Windows Computers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ng-edge-techniques-for-powerful-youtube-thumbnail-designs/"><u>Cutting-Edge Techniques for Powerful YouTube Thumbnail Designs</u></a></li>
+<li><a href="https://win-blog.techidaily.com/expert-tips-for-resolving-continuous-load-failures-in-cold-war-pc-and-console-edition/"><u>Expert Tips for Resolving Continuous Load Failures in 'Cold War': PC and Console Edition</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-best-online-video-trailer-makers-for-2024/"><u>New Best Online Video Trailer Makers for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/overcoming-installation-hurdles-for-windows-11-update-v1607-expert-solutions/"><u>Overcoming Installation Hurdles for Windows 11 Update v1607: Expert Solutions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nfluence-of-thumbnail-size-on-viewership-numbers/"><u>The Influence of Thumbnail Size on Viewership Numbers</u></a></li>
+<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-lava-agni-2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Lava Agni 2 5G | Dr.fone</u></a></li>
+</ul></div>
 

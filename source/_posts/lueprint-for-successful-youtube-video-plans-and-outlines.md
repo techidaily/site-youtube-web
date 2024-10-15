@@ -1,7 +1,7 @@
 ---
 title: "The Blueprint for Successful YouTube Video Plans and Outlines"
-date: 2024-10-02T04:06:06.144Z
-updated: 2024-10-09T05:40:41.905Z
+date: 2024-10-10T20:21:15.422Z
+updated: 2024-10-15T21:24:09.400Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,16 @@ You have a great idea for a video, but you’re just not sure how to express it 
 Here are some things to do before you start writing your script for YouTube:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Collect Ideas
@@ -56,22 +62,15 @@ Here are some things to do before you start writing your script for YouTube:
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484940/16446" target="_top" id="1484940">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484940/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Writing a Script for a YouTube Video
 
@@ -88,19 +87,6 @@ The tone you pick for the video will depend on your audience. It’s safe to ass
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -136,7 +122,21 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -159,18 +159,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-swift-ways-to-reorder-youtube-watchlist-alphabetically/"><u>[New] In 2024, Swift Ways to Reorder YouTube Watchlist Alphabetically</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nleashing-the-power-of-youtube-finding-and-creating-partnerships/"><u>[New] Unleashing the Power of YouTube Finding and Creating Partnerships</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-lenovo-screen-recording-a-quick-guide/"><u>[Updated] 2024 Approved Lenovo Screen Recording A Quick Guide</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-add-flair-with-gifs-on-snapchat-a-comprehensive-walkthrough/"><u>[Updated] Add Flair with GIFs on Snapchat – A Comprehensive Walkthrough</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-enhance-engagement-top-tools-and-tips-for-properly-tagged-videos-for-2024/"><u>[Updated] Enhance Engagement Top Tools and Tips for Properly Tagged Videos for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-how-to-be-a-ghost-in-the-social-media-crowd-live/"><u>[Updated] How to Be a Ghost in the Social Media Crowd - Live</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-savory-streamers-the-creme-de-la-cuisine-for-2024/"><u>[Updated] Savory Streamers The Crème De La Cuisine for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-viewership-victors-the-worlds-top-10-video-content-makers-for-2024/"><u>[Updated] Viewership Victors The World's Top 10 Video Content Makers for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-watch-hulu-outside-us-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>How to Watch Hulu Outside US On Honor Play 7T | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/hp-officejet-5740-windows-11108/"><u>HP OfficeJet 지도 5740: Windows 11/10/8에 호킹 가능</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ring-youtubes-video-editor-integrating-tracks-into-your-videos/"><u>Mastering YouTube's Video Editor Integrating Tracks Into Your Videos</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/the-top-30-for-timeless-telephone-chimes/"><u>The Top 30 for Timeless Telephone Chimes</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ltimate-guide-to-effective-real-youtube-promotion-for-2024/"><u>The Ultimate Guide to Effective, Real Youtube Promotion for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/levating-your-content-powerful-tags-to-watch-out-for/"><u>[New] Elevating Your Content Powerful Tags to Watch Out For</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-transform-your-video-output-tubebuddys-methodology/"><u>[New] In 2024, Transform Your Video Output - TubeBuddy's Methodology</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-dissecting-discords-visual-language-innovators-and-their-works-for-2024/"><u>[Updated] Dissecting Discord's Visual Language Innovators and Their Works for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-turn-your-tactical-talks-into-a-thriving-youtube-trade/"><u>[Updated] In 2024, Turn Your Tactical Talks Into a Thriving YouTube Trade</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-in-2024-vintage-video-enhancements-an-80s-edition-hack-list/"><u>[Updated] In 2024, Vintage Video Enhancements An 80S Edition Hack List</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-initiating-your-streaming-journey-youtube-registration/"><u>[Updated] Initiating Your Streaming Journey YouTube Registration</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-overcoming-screen-blackouts-in-recording-tools/"><u>[Updated] Overcoming Screen Blackouts in Recording Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-to-dailymotion-transferring-videos-seamlessly/"><u>[Updated] YouTube to Dailymotion Transferring Videos Seamlessly</u></a></li>
+<li><a href="https://windows11.techidaily.com/efficient-fixes-for-the-frozen-search-in-windows-11-settings-app/"><u>Efficient Fixes for the Frozen Search in Windows 11 Settings App</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-vivo-y100i-power-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Vivo Y100i Power 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-perfect-shade-editor/"><u>In 2024, Perfect Shade Editor</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-unlock-physical-and-spiritual-potential-the-best-yoga-vlogs-out-there/"><u>In 2024, Unlock Physical & Spiritual Potential The Best Yoga Vlogs Out There</u></a></li>
+<li><a href="https://fake-location.techidaily.com/life360-circle-everything-you-need-to-know-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>Life360 Circle Everything You Need to Know On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/mp3-2/"><u>MP3への変換 : ニコニコ動画ダウンロード手順｜2つの有効法</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/the-complete-angle-manipulation-handbook-for-youtube-videos-for-2024/"><u>The Complete Angle Manipulation Handbook for YouTube Videos for 2024</u></a></li>
 </ul></div>
 

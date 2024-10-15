@@ -1,7 +1,7 @@
 ---
 title: "Tips for Effortless Eradication of Unwanted YouTube Discussions"
-date: 2024-10-03T10:59:54.330Z
-updated: 2024-10-09T07:00:37.264Z
+date: 2024-10-12T19:35:41.508Z
+updated: 2024-10-15T19:06:02.897Z
 tags:
   - ai video
   - ai youtube
@@ -62,13 +62,6 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -95,6 +88,13 @@ If it is your video where the comment to be removed is, you can go to My Channel
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Delete Other People’s Comments on Others’ Channels
 
 Did you see a hate comment on your favorite creator’s video? Sadly, you cannot delete the comment. But, you can report it, and YouTube will hide or take it down.
@@ -115,6 +115,19 @@ To find your History from your desktop, you need to click on the three horizonta
 
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -124,42 +137,35 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052060/7443" target="_top" id="2052060">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052060" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052060/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -182,16 +188,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ulse-picking-playbacks-character-beats-unveiled/"><u>[New] Pulse-Picking Playbacks Character Beats Unveiled</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/tep-by-step-guide-to-crafting-engaging-valorant-thumbnails-for-2024/"><u>[New] Step-by-Step Guide to Crafting Engaging Valorant Thumbnails for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-concealed-aspects-understanding-the-unique-stories-of-followers/"><u>[New] The Concealed Aspects Understanding the Unique Stories of Followers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-ignite-curiosity-with-a-personal-touch-anime-subscribe-buttons-for-filmmakers-filmora/"><u>[Updated] 2024 Approved Ignite Curiosity with a Personal Touch - Anime Subscribe Buttons for Filmmakers (Filmora)</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-discover-the-premier-screen-recording-tools-for-mac-for-2024/"><u>[Updated] Discover the Premier Screen Recording Tools for Mac for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-join-the-monetized-majority-with-500-subscribers/"><u>[Updated] Join the Monetized Majority with 500 Subscribers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/2024-approved-discover-the-premier-complimentary-voice-transform-for-valorant/"><u>2024 Approved Discover the Premier, Complimentary Voice Transform for Valorant</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/access-downloads-for-universal-pci-device-software-supporting-all-windows-11-10-8-and-7-systems/"><u>Access Downloads for Universal PCI Device Software Supporting All Windows 11, 10, 8, and 7 Systems</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723206820210-dealing-with-directx-errors-that-cant-be-fixed-insightful-strategies-for-success/"><u>Dealing With DirectX Errors That Can’t Be Fixed - Insightful Strategies for Success.</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/al-film-composer/"><u>Digital Film Composer</u></a></li>
-<li><a href="https://fox-place.techidaily.com/how-to-move-footage-between-your-iphone-and-pc-5-simple-techniques/"><u>How to Move Footage Between Your iPhone and PC – 5 Simple Techniques</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-bass-brilliance-new-device-overview/"><u>[New] In 2024, Bass Brilliance New Device Overview</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-sparking-viewers-interest-top-youtube-themes-for-channels/"><u>[Updated] Sparking Viewers' Interest Top YouTube Themes for Channels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-does-quick-subscribe-strategy-boost-audience-growth/"><u>2024 Approved Does Quick-Subscribe Strategy Boost Audience Growth?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-jumpstart-your-video-projects-access-free-stunning-banner-templates/"><u>2024 Approved Jumpstart Your Video Projects Access Free, Stunning Banner Templates</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/discover-the-perfect-size-with-samsung-galaxy-fit2-your-go-to-activity-tracker/"><u>Discover the Perfect Size with Samsung Galaxy Fit2 – Your Go-To Activity Tracker</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hing-vlog-topics-to-share/"><u>Enriching Vlog Topics to Share</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/great-iphone-and-ipad-pranks-to-pull-on-friends/"><u>Great iPhone and iPad Pranks to Pull on Friends</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/harmonizing-new-years-vows-with-action-plans/"><u>Harmonizing New Year's Vows With Action Plans</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-overcome-content-servers-unreachable-on-steam-platforms/"><u>How To Overcome 'Content Servers Unreachable' On Steam Platforms</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/powerhouse-prompts-for-gym-aficionados-unlocking-optimal-chatgpt-responses/"><u>Powerhouse Prompts for Gym Aficionados: Unlocking Optimal ChatGPT Responses</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/revolutionize-your-media-creation-hero5-black-mastery-skills/"><u>Revolutionize Your Media Creation Hero5 Black Mastery Skills</u></a></li>
 </ul></div>
 

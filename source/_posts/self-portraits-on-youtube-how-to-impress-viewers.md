@@ -1,7 +1,7 @@
 ---
 title: "\"Solo Self-Portraits on YouTube  How to Impress Viewers\""
-date: 2024-10-06T14:01:29.652Z
-updated: 2024-10-09T14:23:57.906Z
+date: 2024-10-08T20:59:22.267Z
+updated: 2024-10-15T18:27:53.020Z
 tags:
   - ai video
   - ai youtube
@@ -42,14 +42,14 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
@@ -65,13 +65,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -86,6 +79,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -95,10 +95,10 @@ If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
@@ -123,14 +123,14 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118320/7443" target="_top" id="2118320">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118320" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118320/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -153,24 +153,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-branding-breakthrough-constructing-logos-for-podcasts/"><u>[New] Branding Breakthrough Constructing Logos for Podcasts</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-ultimate-racing-game-anthology-the-top-five/"><u>[New] In 2024, Ultimate Racing Game Anthology The Top Five</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ncover-top-15-sci-tech-youtube-channels-for-learners/"><u>[New] Uncover Top 15 Sci-Tech YouTube Channels for Learners</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/hat-makes-youtube-and-dailymention-stand-out/"><u>[New] What Makes YouTube and DailyMention Stand Out?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-optimizing-privacy-for-your-online-videography/"><u>[Updated] 2024 Approved Optimizing Privacy for Your Online Videography</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-green-screen-mastery-essential-free-lessons-from-youtubes-best-4-channels-for-2024/"><u>[Updated] Green Screen Mastery Essential Free Lessons From YouTube's Best 4 Channels for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-gain-profit-power-the-secret-of-successful-youtube-marketing-and-500plus/"><u>[Updated] In 2024, Gain Profit Power The Secret of Successful Youtube Marketing & 500+</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-youtube-regulations-on-personal-recordings-for-2024/"><u>[Updated] YouTube Regulations on Personal Recordings for 2024</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/4k3840x2160/"><u>4K寶藏開發者：無價遊戲軟件—3840x2160的超高解析度影像體驗</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/androids-new-frontier-the-impact-of-kinemaster-app/"><u>Android's New Frontier The Impact of KineMaster App</u></a></li>
-<li><a href="https://windows11.techidaily.com/change-to-dark-theme-in-the-windows-calculator/"><u>Change to Dark Theme in the Windows Calculator</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/decoding-vlc-player-mac-usage-tips/"><u>Decoding VLC Player Mac Usage Tips</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/o-elevate-youtube-broadcasts-select-the-right-webcam/"><u>How to Elevate YouTube Broadcasts Select the Right Webcam</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-forgot-your-apple-id-password-and-email-from-iphone-12-pro-max-heres-the-best-fixes-by-drfone-ios/"><u>In 2024, Forgot Your Apple ID Password and Email From iPhone 12 Pro Max? Heres the Best Fixes</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-top-5-oppo-a18-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>In 2024, Top 5 Oppo A18 Bypass FRP Tools for PC That Actually Work</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/install-and-update-your-logitech-c920-webcam-drivers-on-windows-11/"><u>Install and Update Your Logitech C920 Webcam Drivers on Windows 11</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/izing-visibility-key-elements-in-youtube-thumbnail-design/"><u>Maximizing Visibility Key Elements in YouTube Thumbnail Design</u></a></li>
-<li><a href="https://review-topics.techidaily.com/mov-to-xiaomi-redmi-12-5g-converter-convert-mov-files-for-xiaomi-redmi-12-5g-by-aiseesoft-video-converter-play-mov-on-android/"><u>MOV to Xiaomi Redmi 12 5G converter-convert .mov files for Xiaomi Redmi 12 5G</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/conomics-of-youtube-ad-revenues-per-1000-views-for-2024/"><u>The Economics of YouTube Ad Revenues per 1000 Views for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-foremost-sites-for-digital-type-creation/"><u>[New] Foremost Sites for Digital Type Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-break-it-down-streamlining-video-length-with-efficient-chapter-breaks-on-youtube/"><u>[Updated] 2024 Approved Break It Down Streamlining Video Length with Efficient Chapter Breaks on YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-how-to-get-a-faster-live-streaming-on-periscope-for-2024/"><u>[Updated] How to Get a Faster Live Streaming on Periscope for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-controlling-who-can-leave-a-comment-on-your-youtube-videos/"><u>[Updated] In 2024, Controlling Who Can Leave a Comment on Your YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-troubleshooting-made-easy-youtube-shorts-edition/"><u>[Updated] In 2024, Troubleshooting Made Easy YouTube Shorts Edition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-mastering-the-art-of-customizing-your-youtube-channel-url-for-2024/"><u>[Updated] Mastering the Art of Customizing Your YouTube Channel URL for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/funimate-unlocking-the-secrets-of-easy-downloads-for-2024/"><u>Funimate Unlocking the Secrets of Easy Downloads for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/hassle-free-guide-to-amd-ryzen-driver-installation-and-upgrades/"><u>Hassle-Free Guide to AMD Ryzen Driver Installation & Upgrades</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-get-your-non-working-jabra-wireless-earbuds-up-and-running-again-latest-fixes/"><u>How To Get Your Non-Working Jabra Wireless Earbuds Up and Running Again - Latest Fixes !</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-remove-flashlight-from-iphone-6-lock-screen-by-drfone-ios/"><u>In 2024, How To Remove Flashlight From iPhone 6 Lock Screen</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-screencapture-2023-top-techs-recommendations/"><u>In 2024, ScreenCapture 2023 Top Tech's Recommendations</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-unlock-your-iphone-14-pro-in-minutes-with-iccid-code-everything-you-need-to-know-by-drfone-ios/"><u>In 2024, Unlock Your iPhone 14 Pro in Minutes with ICCID Code Everything You Need to Know</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/prompt-engineering-assessing-job-viability-and-growth-potential/"><u>Prompt Engineering: Assessing Job Viability and Growth Potential</u></a></li>
 </ul></div>
 

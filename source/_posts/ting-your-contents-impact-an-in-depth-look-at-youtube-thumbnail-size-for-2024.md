@@ -1,7 +1,7 @@
 ---
 title: "\"Elevating Your Content's Impact  An In-Depth Look at YouTube Thumbnail Size for 2024\""
-date: 2024-10-04T21:50:53.364Z
-updated: 2024-10-08T17:24:19.820Z
+date: 2024-10-09T18:11:34.580Z
+updated: 2024-10-15T21:11:53.879Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,19 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -69,32 +82,32 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![change thumbnail size](https://images.wondershare.com/filmora/article-images/upload-thumbnail-image1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * When your upload to the YouTube is completed a section will appear at the down portion of the browser screen showing **Video Thumbnails**. Here YouTube automatically creates some thumbnail images from your uploaded video and shows them here. These are the screenshots from your video, and you can select any one of them to be your thumbnail.
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148634/16836" target="_top" id="2148634">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148634" border="0" alt="https://techidaily.com" width="80" height="31"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148634/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
 
@@ -105,17 +118,17 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
@@ -123,13 +136,6 @@ You may want to know:
 
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
@@ -171,10 +177,16 @@ YouTube thumbnail plays an important part for the audience's first impression on
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424529">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424529.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424529">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424529.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424529%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424529/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -198,22 +210,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/utting-edge-techniques-mastering-youtube-subtitlecc-additions-for-2024/"><u>[New] Cutting-Edge Techniques Mastering YouTube Subtitle/CC Additions for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-from-end-to-start-annoying-yourself-with-yt-playlist-upside-down/"><u>[New] In 2024, From End to Start Annoying Yourself with YT Playlist Upside-Down</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-2024-approved-navigate-to-success-the-insiders-guide-to-adding-times/"><u>[Updated] 2024 Approved Navigate to Success The Insider's Guide to Adding Times</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-5-youtube-promo-tactics-for-max-impact/"><u>[Updated] 2024 Approved Top 5 YouTube Promo Tactics for Max Impact</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-youtubes-go-to-lighting-kit-17-picks-reviewed/"><u>[Updated] 2024 Approved YouTube's Go-To Lighting Kit - #17 Picks Reviewed</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-free-vs-paid-youtubes-exclusive-picks-for-superior-opening-tutorials/"><u>[Updated] Free vs Paid YouTube's Exclusive Picks for Superior Opening Tutorials</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-monetizing-makeup-tutorial-content/"><u>[Updated] In 2024, Monetizing Makeup Tutorial Content</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/2024-approved-frosty-olympics-highlights-in-figure-skating/"><u>2024 Approved Frosty Olympics Highlights in Figure Skating</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/convertidor-online-de-gifs-a-avi-sin-costo-easy-con-movavi/"><u>Convertidor Online De GIFs a AVI Sin Costo - Easy Con Movavi</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-pokemon-evolve-with-a-dawn-stone-for-realme-narzo-n53-drfone-by-drfone-virtual-android/"><u>In 2024, What Pokémon Evolve with A Dawn Stone For Realme Narzo N53? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ring-free-melodies-a-guide-for-youtube-producers/"><u>Mastering Free Melodies A Guide for YouTube Producers</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolved-issue-why-the-ascent-update-was-delayed/"><u>Resolved Issue: Why 'The Ascent' Update Was Delayed</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/itute-cinema-classics-ranked-7-1-for-2024/"><u>Substitute Cinema Classics, Ranked #7-1 for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/the-infographic-spectacle-of-youtubes-2017-data-for-2024/"><u>The Infographic Spectacle of YouTube's 2017 Data for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/outube-hashtag-strategies-for-boosting-your-contents-visibility-for-2024/"><u>Top Youtube Hashtag Strategies for Boosting Your Content's Visibility for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/why-the-huawei-p30-pro-remains-a-favorite-among-tech-enthusiasts-a-thorough-insight/"><u>Why the Huawei P30 Pro Remains a Favorite Among Tech Enthusiasts - A Thorough Insight</u></a></li>
-<li><a href="https://blog-min.techidaily.com/pc-8/"><u>ハイパワー動画取り込みツール集PC用 - おすすめベスト8選!</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-best-hd-video-screen-recorders/"><u>[New] Best HD Video Screen Recorders</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-innovative-cameras-of-2024-the-ultimate-rundown/"><u>[New] Innovative Cameras of 2024 The Ultimate Rundown</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/adies-of-youtube-discovering-top-10-female-influencers-for-2024/"><u>[New] Ladies of YouTube Discovering Top 10 Female Influencers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-top-hits-on-reddit-a-compilation-of-the-best-ten/"><u>[Updated] 2024 Approved Top Hits on Reddit - A Compilation of the Best Ten</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-whats-new-in-big-sur-necessary-specs-and-features/"><u>[Updated] In 2024, What's New in Big Sur Necessary Specs and Features</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-monetizing-mastery-harness-the-power-of-your-youtube-content-on-mobile-for-2024/"><u>[Updated] Monetizing Mastery Harness the Power of Your YouTube Content on Mobile for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-aural-adventures-discovering-the-top-15-instructional-music-videos/"><u>2024 Approved Aural Adventures Discovering the Top 15 Instructional Music Videos</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-motorola-moto-g13-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Motorola Moto G13 FRP Locks</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/maximize-efficiency-connect-to-two-monitors-using-your-m3-macbook-pro-similar-to-m3-macbook-air-capabilities-znettech-insights/"><u>Maximize Efficiency: Connect to Two Monitors Using Your M3 MacBook Pro, Similar to M3 MacBook Air Capabilities | ZnetTech Insights</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/movie-substitutes-that-shook-up-my-world-7-choices/"><u>Movie Substitutes That Shook Up My World - #7 Choices</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-audio-dial-achieving-smooth-volume-ramp-ups/"><u>New 2024 Approved Audio Dial Achieving Smooth Volume Ramp-Ups</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ct-end-screen-and-cards-strategies-for-yt/"><u>Perfect End Screen & Cards Strategies for YT</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/step-up-your-game-why-gopro-hero7-black-is-a-must-have/"><u>Step Up Your Game - Why GoPro HERO7 Black Is a Must-Have.</u></a></li>
 </ul></div>
 

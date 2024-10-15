@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Easy Way  Adding External YT Videos to Your PowerPoint Sessions\""
-date: 2024-09-20T20:40:36.164Z
-updated: 2024-09-22T02:04:10.026Z
+date: 2024-10-12T17:03:16.229Z
+updated: 2024-10-15T18:05:12.289Z
 tags:
   - ai video
   - ai youtube
@@ -53,6 +53,13 @@ Open your default web browser, go to the YouTube video you want to embed to Powe
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-via-url.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036467/19272" target="_top" id="2036467">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036467" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036467/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Launch PowerPoint if it is not already open, go to the slide you want to embed the YouTube video to, click **Insert** from menu bar present above the Ribbon, click **Video** from the **Media** section at the right end of the Ribbon, click **Online Video** from the list that appears, in the **Enter the URL for the online video** field on the **Online Video** box, paste the URL that you copied earlier, and click **Insert** to **insert YouTube video into PowerPoint**.
 
 ![ embed YouTube video to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-url-2.jpg)
@@ -70,6 +77,13 @@ Unlike PowerPoint 2019 that accepts URLs and embed codes in a single URL field, 
 Go to the YouTube video you want to embed to your PowerPoint slide, click the **SHARE** icon from the left area under the video player, click the **Embed** icon in the **Share** box, and click **COPY** from the bottom-right corner of the **Embed Video** box that appears next.
 
 ![ embed YouTube video code to PowerPoint ](https://images.wondershare.com/filmora/article-images/embed-youtube-video-in-powerpoint-via-embed-code.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2: Get to the PowerPoint’s Insert Video Box**
 
@@ -111,13 +125,6 @@ Click the **Video** icon from the **Media** section of the Ribbon, click **Video
 
 Grab any of the six handles of the video you inserted, and drag it inward to decrease the size of the frame. It is advisable to use the corner handle and drag them diagonally to maintain proper aspect ratio of the player’s frame. Next, right-click anywhere inside the frame, click **Format Video** from the context menu, and use the options that appear in the right pane to make necessary adjustments to the clip like color correction, manage brightness and contrast, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## YouTube Embedding Supported PowerPoint Version Checklist
 
 Depending on the version of Microsoft Office you are using, you may or may not be able to embed a YouTube video in PowerPoint. Also, if your version of PowerPoint allows you to do so, the interface and the options may vary from those you see on your friends’ computer or in some online tutorials.
@@ -134,16 +141,10 @@ That said, the following table gives a clear picture of which version of Microso
 | PowerPoint 365/2019 for Mac | Yes                    | No                                           | No                                           | No                                  |
 
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Frequently Asked Questions About Embedding YouTube Videos in PowerPoint
@@ -170,6 +171,13 @@ Although the above sections explain **how to embed a YouTube video in PowerPoint
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -189,5 +197,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-insta-facebook-connection-essentials/"><u>[New] 2024 Approved Insta-Facebook Connection Essentials</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-livestream-titans-clash-facebook-live-and-youtube-vs-twitter-spaces/"><u>[New] In 2024, Livestream Titans Clash Facebook LIVE & YouTube Vs. Twitter Spaces</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-shorts-issue-fixed-now-visible-on-youtube/"><u>[New] In 2024, Shorts Issue Fixed – Now Visible on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-imagemorph-magic/"><u>[Updated] In 2024, ImageMorph Magic</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-the-ultimate-setup-for-championship-streaming/"><u>[Updated] In 2024, The Ultimate Setup for Championship Streaming</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-navigating-iphones-automatic-replay-feature-for-2024/"><u>[Updated] Navigating iPhone's Automatic Replay Feature for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/exploring-the-evolution-of-ai-language-models-spotlighting-the-top-5-contrasts-between-gpt-4-and-gpt-35/"><u>Exploring the Evolution of AI Language Models: Spotlighting the Top 5 Contrasts Between GPT-4 and GPT-3.5</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/guide-to-remedy-disconnected-windows-11-printers/"><u>Guide to Remedy Disconnected Windows 11 Printers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-infinix-smart-7-drfone-by-drfone-android/"><u>How to Screen Mirroring Infinix Smart 7? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-reset-the-security-questions-of-your-apple-id-from-your-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, How To Reset the Security Questions of Your Apple ID From Your Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-google-pixel-7afrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Google Pixel 7aFRP Lock</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-streamsurf-skimming-above-dacast/"><u>In 2024, StreamSurf Skimming Above DaCast</u></a></li>
+<li><a href="https://win-answers.techidaily.com/mastering-mass-effects-legacies-the-path-to-exceptional-fps-drops-and-gameplay-triumphs/"><u>Mastering Mass Effect's Legacies: The Path to Exceptional FPS Drops and Gameplay Triumphs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/bes-monetization-metrics-for-a-million-viewers/"><u>Youtube's Monetization Metrics for A Million Viewers</u></a></li>
+</ul></div>
 

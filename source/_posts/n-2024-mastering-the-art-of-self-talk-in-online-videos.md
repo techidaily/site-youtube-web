@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Mastering the Art of Self-Talk in Online Videos\""
-date: 2024-09-17T21:22:48.793Z
-updated: 2024-09-22T00:32:32.038Z
+date: 2024-10-13T17:46:01.165Z
+updated: 2024-10-15T16:38:24.672Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,13 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -72,6 +79,13 @@ You can see from how even the background and couch looks across the entire camer
 
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3.  Two Person Vlog Set-Up
 
 If your talking-head shot has got to include two people, you can use a similar set-up as the medium vlog set-up detailed above.
@@ -79,6 +93,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -96,27 +117,20 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948876/19272" target="_top" id="1948876">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948876" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948876/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -137,5 +151,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-exploring-the-top-hashtags-for-a-boost-on-ig/"><u>[New] Exploring the Top Hashtags for a Boost on IG</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-3-best-ios-video-editors-free-tips-and-guides/"><u>[New] Top 3 Best iOS Video Editors FREE Tips & Guides</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-content-creators-earnings-timeline-on-youtube/"><u>[Updated] In 2024, Content Creators’ Earnings Timeline on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtubers-playbook-advanced-techniques-for-engaging-editing/"><u>[Updated] In 2024, Youtuber's Playbook Advanced Techniques for Engaging Editing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-satire-skills-video-comedy-mastery-tips/"><u>[Updated] Satire Skills Video Comedy Mastery Tips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-combining-youtube-videos-for-seamless-playback/"><u>2024 Approved Combining YouTube Videos for Seamless Playback</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/best-in-class-skype-recorders-ranked-for-2024/"><u>Best-in-Class Skype Recorders Ranked for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/finding-the-ideal-format-for-your-youtube-videos-for-2024/"><u>Finding the Ideal Format for Your YouTube Videos for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-life360-shows-wrong-location-on-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Life360 Shows Wrong Location On Oppo A56s 5G? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-overview-of-the-best-htc-u23-pro-screen-mirroring-app-drfone-by-drfone-android/"><u>In 2024, Overview of the Best HTC U23 Pro Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-perfecting-stability-a-no-tripod-guide/"><u>In 2024, Perfecting Stability A No-Tripod Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ring-the-art-of-youtube-closings-inclusive-guide-for-2024/"><u>Mastering the Art of YouTube Closings [Inclusive Guide] for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/spoofing-life360-how-to-do-it-on-oppo-find-x6-drfone-by-drfone-virtual-android/"><u>Spoofing Life360 How to Do it on Oppo Find X6? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-best-4k-blu-ray-experience-ranking-of-devices/"><u>The Best 4K Blu-Ray Experience Ranking of Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/e-video-monikers-brainstorming-insights/"><u>Unique Video Monikers Brainstorming Insights</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-stunning-glitch-effect-and-its-creation-guideline-for-premiere-pro/"><u>Updated In 2024, Stunning Glitch Effect and Its Creation Guideline for Premiere Pro</u></a></li>
+</ul></div>
 

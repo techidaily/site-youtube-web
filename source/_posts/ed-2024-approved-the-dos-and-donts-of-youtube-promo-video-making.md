@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Do's and Don’ts of YouTube Promo Video Making\""
-date: 2024-09-16T19:52:14.868Z
-updated: 2024-09-22T01:37:39.818Z
+date: 2024-10-13T16:41:14.102Z
+updated: 2024-10-15T17:16:53.297Z
 tags:
   - ai video
   - ai youtube
@@ -69,9 +69,23 @@ Make a short intro, depending on the content and your presence on the screen. Ag
 
 ![self-introduction example](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-2.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can add a quick introduction about yourself and your backstory. It will create a sense of personal attachment to the channel and help you engage better with the audience.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Note:** keep in mind to make a short intro. Please don't spend too much time on it. And remember, it's all about the audience.
 
@@ -102,6 +116,19 @@ You can refer to the most popular style in your area. Then, making the possibili
 Schedules are vital if you want regularly engaging viewers. The audience will be kept track of your activities and be there as soon as you upload your video. Also, new viewers know when to expect new content from you and commit to your goal, so they know your strategy.
 
 ![video posts schedules](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-4.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step6 Call to action
 
@@ -177,6 +204,19 @@ Here, you should explain to your audience the purpose of your channel and what t
 
 ![an example of a creative trailer](https://images.wondershare.com/filmora/article-images/2022/12/youtube-trailer-3.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982459">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Determine the style of your video**
 
 You can refer to the most popular style in your area. Then, making the possibilities endless, you name it!
@@ -234,12 +274,20 @@ Alright! Following the steps mentioned above, you will be able to create a good 
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-youtube-essentials-for-successful-channel-creation/"><u>[New] In 2024, Youtube Essentials for Successful Channel Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/astering-the-art-of-clearing-youtubes-stored-videos-for-2024/"><u>[New] Mastering the Art of Clearing YouTube's Stored Videos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-gaming-on-the-green-comprehenive-review-of-vegas-pro-2021/"><u>[Updated] Gaming on the Green Comprehenive Review of Vegas Pro 2021</u></a></li>
+<li><a href="https://games-able.techidaily.com/competing-with-precision-in-tetris-showdowns-phone-style/"><u>Competing with Precision in Tetris Showdowns, Phone Style</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-airplane-mode-turn-off-gps-location-on-apple-iphone-11-drfone-by-drfone-virtual-ios/"><u>Does Airplane Mode Turn off GPS Location On Apple iPhone 11? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/foolproof-techniques-for-effortlessly-upgrading-to-a-new-iphone-with-tips-from-zdnet/"><u>Foolproof Techniques for Effortlessly Upgrading to a New iPhone with Tips From ZDNet</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rical-highlights-topping-the-list-of-learning-yt-sources/"><u>Historical Highlights Topping the List of Learning YT Sources</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-android-app-not-installed-error-on-samsung-galaxy-a23-5g-quickly-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Android App Not Installed Error on Samsung Galaxy A23 5G Quickly? | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-rog-phone-7-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from ROG Phone 7.</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-oppo-k11-5g-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Oppo K11 5G to iPhone XS/11 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-a-list-makeup-tutorials-who-to-watch/"><u>In 2024, A-List Makeup Tutorials Who to Watch ?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rd-optimization-for-higher-youtube-viewership-for-2024/"><u>Keyword Optimization for Higher YouTube Viewership for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/precision-and-convenience-meet-with-our-winning-window-timers-list/"><u>Precision & Convenience Meet With Our Winning Window Timers List</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Viewer-Friendly Approach  Implementing Commentary and Alerts on YouTube for 2024\""
-date: 2024-09-14T22:29:34.841Z
-updated: 2024-09-21T22:40:43.897Z
+date: 2024-10-12T17:04:11.832Z
+updated: 2024-10-15T16:12:06.172Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,30 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982499">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +152,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,12 +178,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/avigating-youtube-submission-with-imovie-files/"><u>[New] Navigating YouTube Submission with iMovie Files</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-ideal-7-digital-photography-devices-for-high-quality-video-streams/"><u>[Updated] 2024 Approved Ideal 7 Digital Photography Devices for High-Quality Video Streams</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-script-to-screen-the-compreeved-guide-to-youtube-video-edits/"><u>[Updated] From Script to Screen The Compreeved Guide to YouTube Video Edits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-guide-to-consolidating-your-youtube-video-collection/"><u>[Updated] Guide to Consolidating Your YouTube Video Collection</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-diy-sports-highlights-a-comprehensive-guide/"><u>[Updated] In 2024, DIY Sports Highlights A Comprehensive Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-latest-drivers-for-your-canon-mg2900-printer-free-downloads/"><u>Get Latest Drivers for Your Canon MG2900 Printer - Free Downloads</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-motorola-edge-2023-phones-withwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Motorola Edge 2023 Phones with/without a PC</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/tips-and-tricks-for-effective-google-meet-capture/"><u>Tips and Tricks for Effective Google Meet Capture</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-resolving-your-phoenix-point-crash-issues/"><u>Troubleshooting Steps: Resolving Your Phoenix Point Crash Issues</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Controlling Who Can Leave a Comment on Your YouTube Videos"
-date: 2024-09-14T21:32:22.803Z
-updated: 2024-09-21T20:33:22.484Z
+date: 2024-10-14T18:06:21.645Z
+updated: 2024-10-15T17:06:22.990Z
 tags:
   - ai video
   - ai youtube
@@ -95,6 +95,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -115,6 +122,13 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 ## FAQs About YouTube Comments
@@ -133,6 +147,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -146,6 +167,13 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -166,12 +194,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ccelerate-video-processing-for-youtube-uploads/"><u>[New] Accelerate Video Processing for YouTube Uploads</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/inance-frontiers-the-finest-youtube-channels-to-follow-for-2024/"><u>[New] Finance Frontiers The Finest YouTube Channels to Follow for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-crafting-video-magic-with-imovie-directed-to-youtube/"><u>[Updated] 2024 Approved Crafting Video Magic with iMovie, Directed to YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-prime-10-channel-list-best-history-yt-groups/"><u>[Updated] 2024 Approved Prime 10 Channel List Best History YT Groups</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-per-view-value-to-youtube-star-economy/"><u>[Updated] Per-View Value to YouTube Star Economy</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-revolutionize-your-social-network-creating-captivating-facebook-slides/"><u>[Updated] Revolutionize Your Social Network Creating Captivating Facebook Slides</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-stealthy-strategies-for-anonymous-instagram-broadcasts/"><u>2024 Approved Stealthy Strategies for Anonymous Instagram Broadcasts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-secret-to-youtube-dominance-unveiled-by-creative-studio-insights/"><u>2024 Approved The Secret to YouTube Dominance Unveiled by Creative Studio Insights</u></a></li>
+<li><a href="https://win-updates.techidaily.com/cosa-fare-per-riportare-indietro-il-tuo-storico-messaggi-di-wechat-con-risolta-e-icloud-un-tutorial-approfondito/"><u>Cosa Fare per Riportare Indietro Il Tuo Storico Messaggi Di WeChat Con Risolta E iCloud - Un Tutorial Approfondito</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/1722962953960-easy-peasy-driver-download-for-your-hp-stream-devices-fast-as-lightning/"><u>Easy-Peasy Driver Download for Your HP Stream Devices - Fast as Lightning</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/video-content-to-cash-flow-youtubes-profit-mechanics-for-2024/"><u>From Video Content to Cash Flow YouTube's Profit Mechanics for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-3-ways-to-change-location-on-facebook-marketplace-for-tecno-phantom-v-fold-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Change Location on Facebook Marketplace for Tecno Phantom V Fold | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-digital-broadcasting-battle-comparing-facebook-live-youtube-live-and-twitter-spaces/"><u>In 2024, Digital Broadcasting Battle Comparing Facebook LIVE, YouTube Live, & Twitter Spaces</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-from-zero-to-hundred-hundreders-yt-success-story/"><u>In 2024, From Zero to Hundred Hundreders YT Success Story</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mline-profitability-on-yt-post-monetization-financial-steps/"><u>Streamline Profitability on YT – Post-Monetization Financial Steps</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/the-ultimate-guide-to-poco-c55-pattern-lock-screen-everything-you-need-to-know-by-drfone-android/"><u>The Ultimate Guide to Poco C55 Pattern Lock Screen Everything You Need to Know</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-non-functional-keyboard-illumination-on-macbook-and-desktop-computers/"><u>Troubleshooting Guide: Non-Functional Keyboard Illumination on MacBook and Desktop Computers</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-get-the-best-view-16-free-avi-video-rotators-for-perfect-orientation-on-any-device-for-2024/"><u>Updated Get the Best View 16 Free AVI Video Rotators for Perfect Orientation on Any Device for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-the-guide-to-blending-music-and-movement-on-screen/"><u>Updated The Guide to Blending Music and Movement on Screen</u></a></li>
+</ul></div>
 

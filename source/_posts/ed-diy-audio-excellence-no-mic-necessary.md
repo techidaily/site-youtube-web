@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] DIY Audio Excellence  No Mic Necessary\""
-date: 2024-10-05T12:18:46.760Z
-updated: 2024-10-09T03:20:28.363Z
+date: 2024-10-12T19:30:49.248Z
+updated: 2024-10-15T21:38:38.105Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,10 @@ For example, your camera’s mic might be just as good as a clip-on LAV, but tha
 Moving your camera/smartphone physically closer to you will make it hard to include anything besides your head and shoulders in your shot, but it will get you significantly better audio.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2.Shoot Somewhere Quiet
@@ -73,6 +73,13 @@ You should also pay attention to what’s in the room you’re recording in. Avo
 
 Look for a room that has a lot of soft things in it, like beds and sofas.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Protect your Built-In Mic from Wind
 
 If you shoot outside, then the wind passing over your built-in mic will do terrible things to your audio. You can do a lot to counter-act this problem by physically blocking the wind.
@@ -87,22 +94,21 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Use a Free Audio App
@@ -113,6 +119,13 @@ Even if you’re not recording video from your smartphone, it might be a good id
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043594/7443" target="_top" id="2043594">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043594" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043594/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 6\. Do a Sound Check
 
 Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
@@ -120,13 +133,6 @@ Once you think you’ve got good audio set up – test it! You don’t want to d
 Do you have any of your own audio tips to pass on? Leave them in the comments!
 
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
 
@@ -157,18 +163,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-hubsan-h501s-exploration-the-ultimate-fpv-experience/"><u>[New] 2024 Approved Hubsan H501S Exploration The Ultimate FPV Experience</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/rom-concept-to-creation-crafting-youtube-video-splits-for-2024/"><u>[New] From Concept to Creation Crafting YouTube Video Splits for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-navigating-speed-settings-for-snapchat-content/"><u>[New] Navigating Speed Settings for Snapchat Content</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-essential-guide-to-a-bespoke-youtube-channel-url/"><u>[New] The Essential Guide to a Bespoke YouTube Channel URL</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-innovating-storytelling-editing-and-uploading-immersive-360-content-on-youtube/"><u>2024 Approved Innovating Storytelling Editing and Uploading Immersive 360° Content on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/p-by-step-guide-to-embedding-timestamp-metadata-for-2024/"><u>A Step-by-Step Guide to Embedding Timestamp Metadata for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ring-connection-through-respectful-engagement/"><u>Fostering Connection Through Respectful Engagement</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-fake-android-location-without-rooting-for-your-samsung-galaxy-a24-drfone-by-drfone-virtual/"><u>In 2024, Fake Android Location without Rooting For Your Samsung Galaxy A24 | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-nokia-c12-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Nokia C12 Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-vivo-y77t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Vivo Y77t? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-tips-and-tricks-for-easily-finding-your-youtube-comments/"><u>In 2024, Tips & Tricks for Easily Finding Your YouTube Comments</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ring-reversal-a-guide-to-rewinding-your-youtube-sequence/"><u>Mastering Reversal A Guide to Rewinding Your YouTube Sequence</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/top-5-vivo-v29-bypass-frp-tools-for-pc-that-actually-work-by-drfone-android/"><u>Top 5 Vivo V29 Bypass FRP Tools for PC That Actually Work</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-scaling-photography-with-no-detail-degradation/"><u>[New] In 2024, Scaling Photography with No Detail Degradation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-avoid-monetization-mishaps-essential-youtube-checks/"><u>[Updated] 2024 Approved Avoid Monetization Mishaps Essential YouTube Checks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-feast-your-eyes-on-9-whole-film-winter-wonders-no-charge/"><u>[Updated] Feast Your Eyes on 9 Whole-Film Winter Wonders No Charge!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-transforming-youtube-descriptions-leveraging-template-power/"><u>2024 Approved Transforming YouTube Descriptions Leveraging Template Power</u></a></li>
+<li><a href="https://fox-info.techidaily.com/drone-showdown-dji-vs-gopro-hero-for-2024/"><u>Drone Showdown DJI vs GoPro Hero for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/excel-wonders-still-out-of-reach-for-advanced-language-models-like-chatgpt/"><u>Excel Wonders Still Out of Reach for Advanced Language Models Like ChatGPT</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On ZTE Nubia Z60 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-track-imei-number-of-xiaomi-redmi-note-12-proplus-5g-through-google-earth-by-drfone-android/"><u>In 2024, How To Track IMEI Number Of Xiaomi Redmi Note 12 Pro+ 5G Through Google Earth?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-youtubes-essential-view-total-to-secure-income/"><u>In 2024, YouTube's Essential View Total to Secure Income</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/quick-and-simple-dell-sound-card-software-updates/"><u>Quick and Simple Dell Sound Card Software Updates</u></a></li>
 </ul></div>
 

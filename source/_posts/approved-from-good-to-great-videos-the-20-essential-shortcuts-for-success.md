@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Good to Great Videos  The 20 Essential Shortcuts for Success\""
-date: 2024-10-07T09:44:24.003Z
-updated: 2024-10-09T09:36:56.660Z
+date: 2024-10-08T20:06:04.704Z
+updated: 2024-10-15T17:23:12.854Z
 tags:
   - ai video
   - ai youtube
@@ -36,13 +36,6 @@ With that said, the following two-columned tables give you detailed information 
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
 
@@ -103,6 +96,13 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -117,13 +117,6 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -137,10 +130,10 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
@@ -155,6 +148,19 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -166,16 +172,10 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -199,16 +199,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/rafting-an-impactful-waterway-teaser/"><u>[New] Crafting an Impactful Waterway Teaser</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ourly-highlights-top-10-youtubes-biggest-view-count/"><u>[New] Hourly Highlights Top 10 YouTube's Biggest View Count</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/utwit-youtube-visitors-tips-to-evade-automated-audiences/"><u>[New] Outwit YouTube Visitors Tips to Evade Automated Audiences</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-the-pathway-to-crafting-a-viral-video-introduction/"><u>[New] The Pathway to Crafting a Viral Video Introduction</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-easy-ways-to-get-free-views-on-youtube-alternative-methods/"><u>[Updated] 2024 Approved Easy Ways To Get Free Views on YouTube! Alternative Methods</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-pioneering-unmicrophoned-audio-capturing-methods/"><u>[Updated] 2024 Approved Pioneering Unmicrophoned Audio Capturing Methods</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/cinematic-close-ups-elevating-your-work-with-kinemaster-for-2024/"><u>Cinematic Close-Ups Elevating Your Work with Kinemaster for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-apple-iphone-8-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the Apple iPhone 8 Without Previous Owner?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-apple-iphone-6-to-chromecast-drfone-by-drfone-ios/"><u>In 2024, How to Cast Apple iPhone 6 to Chromecast? | Dr.fone</u></a></li>
-<li><a href="https://blog-min.techidaily.com/top-10-professional-video-editors-for-windows-the-ultimate-guide/"><u>Top 10 Professional Video Editors for Windows: The Ultimate Guide</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshooting-and-solving-the-dark-display-problem-in-persona-5-strikers-gameplay/"><u>Troubleshooting and Solving the Dark Display Problem in Persona 5 Strikers Gameplay</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-soundtrack-secrets-your-complete-audio-compilation-for-ig-videos/"><u>[New] 2024 Approved Soundtrack Secrets Your Complete Audio Compilation for IG Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hannel-expansion-through-smart-youtube-link-building-methods/"><u>[New] Channel Expansion Through Smart YouTube Link-Building Methods</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-ajay-the-creative-content-creators-profitable-venture-on-youtube/"><u>[New] In 2024, AJay The Creative Content Creator's Profitable Venture on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-high-revenue-streaming-star-across-the-globe/"><u>[New] In 2024, High Revenue Streaming Star Across the Globe</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-immediate-actions-reactivating-obs-audio-track/"><u>[New] In 2024, Immediate Actions Reactivating OBS Audio Track</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-leveraging-videos-to-skyrocket-your-fb-audience-for-2024/"><u>[New] Leveraging Videos to Skyrocket Your FB Audience for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/implify-tv-broadcasts-introducing-youtube-content-loops/"><u>[New] Simplify TV Broadcasts Introducing YouTube Content Loops</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-which-platform-triumphs-in-revenue-generation-dailymotion-vs-youtube/"><u>[Updated] In 2024, Which Platform Triumphs in Revenue Generation? Dailymotion Vs YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-your-ultimate-youtube-video-gear-top-rated-cameras-and-lenses/"><u>[Updated] In 2024, Your Ultimate YouTube Video Gear Top-Rated Cameras and Lenses</u></a></li>
+<li><a href="https://win11.techidaily.com/5-best-file-sharing-apps-on-a-windows-pc/"><u>5 Best File Sharing Apps on a Windows PC</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/exceptional-value-and-simplicity-in-vr-an-in-depth-look-at-the-oculus-quest-2/"><u>Exceptional Value & Simplicity in VR: An In-Depth Look at the Oculus Quest 2</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/re-these-seven-sources-for-youtube-sound-effects-for-2024/"><u>Explore These Seven Sources for YouTube Sound Effects for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How to Fake Snapchat Location on Apple iPhone 14 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-will-ispoofer-update-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, Will iSpoofer update On Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/resolving-nonfunctional-windows-10-search-effective-strategies-and-tips/"><u>Resolving Nonfunctional Windows 10 Search: Effective Strategies and Tips</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-the-ultimate-guide-to-blurring-faces-in-photos-and-videos-top-10-free-tools/"><u>Updated 2024 Approved The Ultimate Guide to Blurring Faces in Photos and Videos Top 10 Free Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-shorts-earning-blueprint/"><u>Youtube Shorts Earning Blueprint</u></a></li>
 </ul></div>
 

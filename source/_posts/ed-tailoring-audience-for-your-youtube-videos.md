@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Tailoring Audience for Your Youtube Videos"
-date: 2024-10-02T00:11:04.748Z
-updated: 2024-10-08T16:02:48.300Z
+date: 2024-10-11T16:06:05.436Z
+updated: 2024-10-15T16:41:16.763Z
 tags:
   - ai video
   - ai youtube
@@ -65,13 +65,6 @@ thumbnail: https://thmb.techidaily.com/0379597f9da7536e36404a183eea7c97d1ca35642
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -83,10 +76,16 @@ thumbnail: https://thmb.techidaily.com/0379597f9da7536e36404a183eea7c97d1ca35642
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Method 2:**
@@ -104,10 +103,10 @@ thumbnail: https://thmb.techidaily.com/0379597f9da7536e36404a183eea7c97d1ca35642
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -117,13 +116,20 @@ thumbnail: https://thmb.techidaily.com/0379597f9da7536e36404a183eea7c97d1ca35642
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075476/7443" target="_top" id="2075476">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075476" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075476/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -146,14 +152,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/uide-to-quick-eradication-of-online-youtube-discussions-for-2024/"><u>[New] Guide to Quick Eradication of Online YouTube Discussions for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-streamline-your-music-library-mp3s-direct-to-youtube-playlist/"><u>[Updated] Streamline Your Music Library MP3s Direct to YouTube Playlist</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-the-ultimate-cheat-sheet-essentials-for-vlc-and-mac/"><u>[Updated] The Ultimate Cheat Sheet Essentials for VLC and Mac</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-top-5-zero-price-screen-capture-software-for-windows-10-users/"><u>[Updated] Top 5 Zero Price Screen Capture Software for Windows 10 Users</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-unveiling-the-art-of-personal-branding-mastery/"><u>[Updated] Unveiling the Art of Personal Branding Mastery</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/exclusive-list-digital-dominators-in-av-production-for-2024/"><u>Exclusive List Digital Dominators in AV Production for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-apple-iphone-12-pro-withwithout-sim-card-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 Pro with/without SIM Card</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-toddlers-fortune-on-screen-young-ryan-as-top-youtuber-earner/"><u>In 2024, Toddler's Fortune on Screen Young Ryan As Top YouTuber Earner</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/leveraging-the-strengths-of-ez-grabber-software/"><u>Leveraging the Strengths of EZ Grabber Software</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-comprehensive-guide-to-valheim-flora/"><u>[New] 2024 Approved Comprehensive Guide to Valheim Flora</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-crown-jewels-of-online-watching-youtubes-treasures/"><u>[Updated] 2024 Approved Crown Jewels of Online Watching YouTube's Treasures</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-a-viewer-friendly-approach-implementing-commentary-and-alerts-on-youtube-for-2024/"><u>[Updated] A Viewer-Friendly Approach Implementing Commentary and Alerts on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-download-youtube-images-with-ease-online-for-2024/"><u>[Updated] Download YouTube Images with Ease Online for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-charting-success-top-online-video-channels/"><u>[Updated] In 2024, Charting Success Top Online Video Channels</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-instagram-story-whats-not-in-public-knowledge/"><u>[Updated] In 2024, Instagram Story What's Not in Public Knowledge?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-complete-guide-mastering-final-cut-pro/"><u>2024 Approved Complete Guide Mastering Final Cut Pro</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-the-complete-checklist-for-internet-broadcast-preservation/"><u>2024 Approved The Complete Checklist for Internet Broadcast Preservation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-youtube-growth-strategy-attracting-million-strong-fans/"><u>2024 Approved Youtube Growth Strategy Attracting Million-Strong Fans</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-vivo-s18e-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track Vivo S18e by Phone Number | Dr.fone</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/iphone-youtube/"><u>IPhoneへの着信メロディ追加: YouTube 曲変換ガイド</u></a></li>
+<li><a href="https://blog-min.techidaily.com/overcoming-media-player-issues-with-codec-compatibility-on-microsoft-powerpoint/"><u>Overcoming Media Player Issues with Codec Compatibility on Microsoft PowerPoint</u></a></li>
+<li><a href="https://techidaily.com/recover-apple-iphone-13-mini-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>Recover Apple iPhone 13 mini Data From iOS iCloud | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-value-contender-apple-ipad-air-4-as-an-alternative-to-ipad-pro-explored/"><u>Unveiling the Value Contender: Apple iPad Air 4 as an Alternative to iPad Pro Explored</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/bes-guide-to-the-best-gaming-tech-for-2024/"><u>YouTube's Guide to the Best Gaming Tech for 2024</u></a></li>
 </ul></div>
 
