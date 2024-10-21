@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Mastering YouTube Notes & Alerts Implementation"
-date: 2024-09-18T00:48:24.320Z
-updated: 2024-09-22T00:07:47.677Z
+date: 2024-10-18T11:07:09.087Z
+updated: 2024-10-21T07:32:57.641Z
 tags:
   - ai video
   - ai youtube
@@ -72,6 +72,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -82,10 +89,30 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -125,6 +152,13 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115946/19272" target="_top" id="2115946">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115946" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115946/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -144,12 +178,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
-  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ow-to-use-youtube-analytics-to-grow-your-channel-for-2024/"><u>[New] How to Use YouTube Analytics to Grow Your Channel for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-maximizing-clicks-ultimate-youtube-banner-guidebook/"><u>[New] In 2024, Maximizing Clicks Ultimate YouTube Banner Guidebook</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-crafting-comedy-mastering-kinemaster/"><u>[Updated] Crafting Comedy Mastering KineMaster</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-essential-photo-and-film-capture-apps-iphone-and-android-edition/"><u>[Updated] Essential Photo & Film Capture Apps IPhone & Android Edition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-to-add-video-to-text/"><u>[Updated] How to Add Video to Text</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-professional-text-design-in-10-minutes-or-less-ae-style/"><u>[Updated] Professional Text Design in 10 Minutes or Less (AE Style)</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-bridging-the-media-gap-coordinating-vids-on-twitter-and-tumblr/"><u>2024 Approved Bridging the Media Gap Coordinating Vids on Twitter & Tumblr</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-roadmap-to-making-money-with-personal-videos/"><u>2024 Approved The Roadmap to Making Money with Personal Videos</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-realme-v30-to-mac-drfone-by-drfone-android/"><u>How to Mirror Realme V30 to Mac? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-tecno-camon-30-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Tecno Camon 30 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-meizu-21-pro-phone-without-password-by-drfone-android/"><u>In 2024, How To Unlock Meizu 21 Pro Phone Without Password?</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-customization-adjusting-the-control-center-in-ios-18-on-your-iphone-expert-tips-by-zdnet/"><u>Mastering Customization: Adjusting the Control Center in iOS 18 on Your iPhone – Expert Tips by ZDNET</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/overcoming-the-igfxem-not-working-hurdle-proven-fixes-and-tips-inside/"><u>Overcoming the 'iGFXem Not Working' Hurdle: Proven Fixes & Tips Inside</u></a></li>
+</ul></div>
 

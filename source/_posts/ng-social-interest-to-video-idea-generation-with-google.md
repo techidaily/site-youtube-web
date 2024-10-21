@@ -1,7 +1,7 @@
 ---
 title: "Mapping Social Interest to Video Idea Generation with Google"
-date: 2024-10-08T20:14:17.335Z
-updated: 2024-10-15T19:04:52.921Z
+date: 2024-10-17T07:02:13.945Z
+updated: 2024-10-21T01:57:02.458Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,13 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -75,6 +82,19 @@ For example, if you have a gaming channel and you’re looking for a non-gamepla
 
 ![Google Trends Category YouTube Video Ideas](https://images.wondershare.com/filmora/article-images/google-trends-categories.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The first two happen to be about gaming. If you, as a gamer, had any strong reaction to either of these topics – whether it’s that you feel like you’re knowledgeable about them, or that you’re excited by something that’s coming up, or that something made you groan – then that would be a sign that you should make a video. Capitalizing on a trend while also covering a topic you have a lot to say about is always a good move.
 
 Having something to say doesn’t have to mean having a strong opinion. If you just find something interesting and want to pass the information along to your viewers then that’s great too.
@@ -82,10 +102,10 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Battle of the Keywords
@@ -106,19 +126,6 @@ You can see near the top that this chart represents searches for the topic over 
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
@@ -133,13 +140,6 @@ Although, when you do a comparison like this you should also go to YouTube and s
 
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
 
 The second-highest ranked result is only 2 months old and isn’t from a huge channel. Although there is competition for this keyword, ranking for it is not impossible. It also helps that software reviews are a topic where people will always be looking for the latest information/newest videos.
@@ -150,13 +150,6 @@ One of the biggest benefits of identifying trends and making videos about them q
 
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
@@ -164,6 +157,13 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -186,22 +186,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-from-amateur-to-professional-transform-your-minecraft-recordings-with-mac/"><u>[New] From Amateur to Professional Transform Your Minecraft Recordings with Mac</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-creative-components-free-youtube-visual-resources/"><u>[New] In 2024, Creative Components FREE YouTube Visual Resources</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-fifa-highlights-and-trends-charting-on-youtube/"><u>[New] In 2024, FIFA Highlights & Trends Charting on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/our-ultimate-guide-to-youtube-shorts-for-2024/"><u>[New] Your Ultimate Guide to YouTube Shorts for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-hacking-back-photo-viewing-in-windows-11-easily/"><u>[Updated] In 2024, Hacking Back Photo Viewing in Windows 11 Easily</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-iphone-and-ios-a-beginners-approach-to-vr-videos-for-2024/"><u>[Updated] IPhone & IOS A Beginner's Approach to VR Videos for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-superstars-with-a-subscriber-base-for-2024/"><u>[Updated] Superstars with a Subscriber Base for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-unraveling-free-filter-treasures-through-instagrams-advanced-searches-for-2024/"><u>[Updated] Unraveling Free Filter Treasures Through Instagram’s Advanced Searches for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-a-step-by-step-guide-to-youtube-stats-analysis-via-social-blade-platform/"><u>2024 Approved A Step-by-Step Guide to YouTube Stats Analysis via Social Blade Platform</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-explore-12-prime-flip-screen-cameras-revolutionizing-vlogs/"><u>2024 Approved Explore 12 Prime Flip Screen Cameras Revolutionizing Vlogs</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-streamline-the-age-update-process-on-tiktok/"><u>2024 Approved Streamline the Age Update Process on TikTok</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/direct-x-anomaly-eliminated-from-league-gameplay/"><u>Direct X Anomaly Eliminated From League Gameplay</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/download-high-definition-badminton-matches-a-step-by-step-guide-to-finding-free-hd-videos/"><u>Download High-Definition Badminton Matches: A Step-by-Step Guide to Finding Free HD Videos</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/hp-and-airpod-enthusiasts-seamless-connection-techniques-revealed/"><u>HP and AirPod Enthusiasts: Seamless Connection Techniques Revealed</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-engaging-audiences-how-tos-for-effective-youtube-logo-creation/"><u>In 2024, Engaging Audiences How-To's for Effective YouTube Logo Creation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-maximize-marketing-youtubes-best-seo-aids-for-videos/"><u>In 2024, Maximize Marketing - YouTube's Best SEO Aids for Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-online-money-tally-for-youtube-creators/"><u>In 2024, Online Money Tally for YouTube Creators</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-peeking-at-the-reason-behind-highlighted-comments-on-youtube/"><u>[New] 2024 Approved Peeking at the Reason Behind Highlighted Comments on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ow-to-fix-the-youtube-shorts-not-showing-up-issue-for-2024/"><u>[New] How to Fix the YouTube Shorts Not Showing Up Issue for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-in-2024-quickcopy-custodians-judgment/"><u>[New] In 2024, QuickCopy Custodians' Judgment</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-worlds-richest-social-media-influencer/"><u>[New] In 2024, World's Richest Social Media Influencer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-rankings-secrets-enhancing-video-visibility/"><u>[New] YouTube Rankings Secrets Enhancing Video Visibility</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-top-picks-perfect-mics-for-creator-pros/"><u>[Updated] In 2024, Top Picks Perfect Mics for Creator Pros</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-video-aspect-ratio-guide-optimal-upload-sizes-for-2024/"><u>[Updated] YouTube Video Aspect Ratio Guide Optimal Upload Sizes for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-streaming-sensations-worlds-most-popular-video-content-makers/"><u>Elite Streaming Sensations World's Most Popular Video Content Makers</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-infinix-zero-5g-2023-turbo-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Infinix Zero 5G 2023 Turbo FRP Locks</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-use-google-assistant-on-your-lock-screen-of-infinix-hot-30-5g-phone-by-drfone-android/"><u>How to Use Google Assistant on Your Lock Screen Of Infinix Hot 30 5G Phone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-facebooks-visual-journey-capturing-videos/"><u>In 2024, Facebook's Visual Journey Capturing Videos</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-lava-blaze-2-5g-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Lava Blaze 2 5G | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-vivo-y100-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Vivo Y100 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-step-by-step-guide-to-creating-engaging-high-quality-asmr-scenes/"><u>In 2024, Step-by-Step Guide to Creating Engaging, High-Quality ASMR Scenes</u></a></li>
+<li><a href="https://windows11.techidaily.com/restoring-normalcy-notepad-on-windows-recovery/"><u>Restoring Normalcy: Notepad on Windows Recovery</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>What are Location Permissions Life360 On Infinix Smart 7? | Dr.fone</u></a></li>
 </ul></div>
 

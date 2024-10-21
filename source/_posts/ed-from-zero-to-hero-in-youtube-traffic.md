@@ -1,7 +1,7 @@
 ---
 title: "[Updated] From Zero to Hero in YouTube Traffic"
-date: 2024-09-15T00:08:40.765Z
-updated: 2024-09-17T03:49:32.385Z
+date: 2024-10-18T23:36:48.236Z
+updated: 2024-10-21T10:36:40.740Z
 tags:
   - ai video
   - ai youtube
@@ -161,6 +161,13 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -205,6 +212,13 @@ Your viewers will absolutely judge your video by its cover so it’s important t
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1013424/11832" target="_top" id="1013424">
+  <img src="//a.impactradius-go.com/display-ad/11832-1013424" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1013424/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
 
 Don’t want to pay money for a photo editing software such as Photoshop?
@@ -212,6 +226,13 @@ Don’t want to pay money for a photo editing software such as Photoshop?
 You can use an online service called [Canva](https://www.canva.com/)or download [GIMP](https://www.gimp.org/), an open-source photo editor much like Photoshop, but far less powerful. These will help you get the job done as you are starting out.
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Publishing With Attention to Optimization
 
@@ -251,6 +272,13 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
@@ -274,12 +302,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-dissecting-youtubes-selection-of-trending-video-responses/"><u>[New] In 2024, Dissecting YouTube's Selection of Trending Video Responses</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-instantaneous-viewership-metering/"><u>[Updated] 2024 Approved Instantaneous Viewership Metering</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-enhancing-your-content-with-effortlessly-added-youtube-subtitles/"><u>[Updated] In 2024, Enhancing Your Content with Effortlessly Added YouTube Subtitles</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-power-players-in-flight-the-drone-heavylifting-leaders/"><u>[Updated] Power Players in Flight The Drone Heavylifting Leaders</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-quickshot-ff-utilities-for-2024/"><u>[Updated] QuickShot FF Utilities for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-react-and-relate-harness-the-power-of-alternate-perspectives-for-compelling-youtube-vids-2-pov-method-for-2024/"><u>[Updated] React and Relate - Harness the Power of Alternate Perspectives for Compelling YouTube Vids (2 POV Method) for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-taking-screenshots-of-pc-games-6-ways/"><u>[Updated] Taking Screenshots of PC Games [6 Ways]</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-instagram-stories-unseen-aspects-revealed/"><u>2024 Approved Instagram Stories Unseen Aspects Revealed</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/beyond-fun-and-games-deciphering-the-deep-meanings-in-emojis/"><u>Beyond Fun & Games Deciphering the Deep Meanings in Emojis</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-an-easy-to-use-youtube-subscription-tagline/"><u>Crafting an Easy-to-Use YouTube Subscription Tagline</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/evaluating-the-advantages-and-disadvantages-of-using-webex-for-virtual-conferences/"><u>Evaluating the Advantages & Disadvantages of Using Webex for Virtual Conferences</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-mastering-reversal-a-guide-to-rewinding-your-youtube-sequence/"><u>In 2024, Mastering Reversal A Guide to Rewinding Your YouTube Sequence</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-script-to-screen-your-guide-to-youtube-storytelling/"><u>In 2024, Script to Screen Your Guide to YouTube Storytelling</u></a></li>
+<li><a href="https://win11.techidaily.com/instant-guide-forcibly-disable-windows-11-print-devices/"><u>Instant Guide: Forcibly Disable Windows 11 Print Devices</u></a></li>
+<li><a href="https://facebook.techidaily.com/securely-swapping-outdated-login-credentials-for-facebook/"><u>Securely Swapping Outdated Login Credentials for Facebook</u></a></li>
+</ul></div>
 

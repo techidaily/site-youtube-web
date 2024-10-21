@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Channel Up  The Essential Guide to Computer & Mobile Video Upload\""
-date: 2024-09-12T19:06:58.761Z
-updated: 2024-09-16T19:59:10.338Z
+date: 2024-10-14T10:38:01.815Z
+updated: 2024-10-20T18:29:06.632Z
 tags:
   - ai video
   - ai youtube
@@ -87,6 +87,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -95,11 +102,25 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
 
 #### Step 2: Add Details
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
@@ -118,10 +139,10 @@ Please note you will not see the **Create a Short** option if you are outsides o
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123735/7443" target="_top" id="2123735">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123735" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123735/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
@@ -139,13 +160,6 @@ On the next window, use the **Music** and **Text** buttons from the bottom-left 
 On the **Add details** window, enter a name for the video along with the **#Shorts** tag in the **Create a title** field, tap **Select audience** to select the target audience, and tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -174,5 +188,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-best-free-cloud-based-video-editing-tools/"><u>[New] 2024 Approved The Best Free, Cloud-Based Video Editing Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ontrolling-comment-visibility-on-youtube-videos/"><u>[New] Controlling Comment Visibility on YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/arning-expertise-short-video-revenue-boosting-for-2024/"><u>[New] Earning Expertise Short Video Revenue Boosting for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/asterclass-in-length-management-youtube-vids-for-2024/"><u>[New] Masterclass in Length Management YouTube Vids for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outubes-foe-a-guide-to-the-top-5-editing-rivals-for-2024/"><u>[New] YouTube's Foe? A Guide to the Top 5 Editing Rivals for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-from-front-to-back-the-instagram-art-of-flipping-visuals-with-ease-for-2024/"><u>[Updated] From Front to Back The Instagram Art of Flipping Visuals with Ease for 2024</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/2024-approved-elevate-your-smartphone-shots-best-camera-accessories-for-filmmakers/"><u>2024 Approved Elevate Your Smartphone Shots Best Camera Accessories for Filmmakers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/2024-approved-youtubes-latest-payment-regulations/"><u>2024 Approved YouTube's Latest Payment Regulations</u></a></li>
+<li><a href="https://win-able.techidaily.com/1723004897983-adobe-launch-malfunction-solve-the-error-code-0xc0000022-problem-today/"><u>Adobe Launch Malfunction - Solve the Error Code 0xC0000022 Problem Today!</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/asus-vg245h-a-top-tier-choice-for-enhanced-console-gaming-performance/"><u>Asus VG245H: A Top-Tier Choice for Enhanced Console Gaming Performance</u></a></li>
+<li><a href="https://win-answers.techidaily.com/bluestacks-crashes-resolved-with-these-5-straightforward-fixes/"><u>BlueStacks Crashes Resolved with These 5 Straightforward Fixes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/e-magic-download-premium-soundscapes-now-for-2024/"><u>Create Magic Download Premium Soundscapes Now for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/t-access-to-streams-how-to-download-youtube-videos-to-your-ios-device-for-2024/"><u>Direct Access to Streams How to Download YouTube Videos to Your iOS Device for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/easy-tutorial-for-activating-icloud-on-apple-iphone-14-pro-safe-and-legal-by-drfone-ios/"><u>Easy Tutorial for Activating iCloud on Apple iPhone 14 Pro Safe and Legal</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-how-to-live-without-the-temptation-of-youtube-shorts/"><u>In 2024, How To Live Without the Temptation of YouTube Shorts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-huawei-p60-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Huawei P60 to iPod | Dr.fone</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/lenovo-thinkpad-obtain-the-latest-safely-verified-drivers-here-guaranteed/"><u>Lenovo ThinkPad - Obtain the Latest, Safely Verified Drivers Here [Guaranteed]</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/revolutionizing-interview-preparation-with-ai-chatgpt/"><u>Revolutionizing Interview Preparation with AI: ChatGPT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ssential-how-to-sharing-videos-from-youtube-on-instagram-for-2024/"><u>The Essential How-To Sharing Videos From YouTube on Instagram for 2024</u></a></li>
+</ul></div>
 

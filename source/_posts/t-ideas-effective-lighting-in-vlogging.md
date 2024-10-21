@@ -1,7 +1,7 @@
 ---
 title: "\"Bright Ideas  Effective Lighting in Vlogging\""
-date: 2024-10-12T20:48:56.799Z
-updated: 2024-10-15T21:13:48.577Z
+date: 2024-10-19T12:00:01.066Z
+updated: 2024-10-21T02:27:44.348Z
 tags:
   - ai video
   - ai youtube
@@ -49,13 +49,26 @@ The **fill light** is less bright than the primary source of light and it is pla
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -85,10 +98,10 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557747/17382" target="_top" id="1557747">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557747" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557747/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -98,10 +111,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943648/22993" target="_top" id="1943648">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943648" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -109,13 +122,6 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,15 +144,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-how-to-use-chroma-keying-in-video-making-for-2024/"><u>[New] How to Use Chroma Keying in Video Making for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-maximizing-roi-setting-up-and-assessing-fb-instream-ads/"><u>[New] Maximizing ROI Setting Up & Assessing FB Instream Ads</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/tock-success-the-ultimate-list-of-channels/"><u>[New] Stock Success The Ultimate List of Channels</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-discovering-the-secret-to-engaging-content-with-aspect-ratios-in-youtube/"><u>[Updated] 2024 Approved Discovering the Secret to Engaging Content with ASPECT RATIOS in YOUTUBE</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-a-beginners-guide-to-elevating-auditory-experiences-on-youtube-for-2024/"><u>[Updated] A Beginner's Guide to Elevating Auditory Experiences on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-step-by-step-techniques-for-efficiently-timestamp-youtube-content/"><u>2024 Approved Step-by-Step Techniques for Efficiently Timestamp YouTube Content</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-where-to-buy-a-monetized-youtube-channel-a-complete-guide/"><u>2024 Approved Where to Buy a Monetized YouTube Channel A Complete Guide</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Motorola Moto G34 5G | Dr.fone</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/polish-your-portuguese-skills-utilize-these-6-study-methods/"><u>Polish Your Portuguese Skills: Utilize These 6 Study Methods</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/update-or-download-the-epson-stylus-nx420-drivers-for-seamless-windows-compatibility-7810/"><u>Update or Download the Epson Stylus NX420 Drivers for Seamless Windows Compatibility (7/8/10)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-cut-to-the-chase-techniques-for-tightening-youtube-content/"><u>[New] 2024 Approved Cut to the Chase Techniques for Tightening YouTube Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-flex-your-viewing-muscles-handling-multiple-youtube-videos/"><u>[New] 2024 Approved Flex Your Viewing Muscles Handling Multiple YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-growth-strategies-for-youtube-videos-6-effortless-approaches/"><u>[New] 2024 Approved Growth Strategies for YouTube Videos 6 Effortless Approaches</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-quick-start-to-clear-background-filming/"><u>[New] 2024 Approved Quick Start to Clear Background Filming</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-star-rated-apps-for-effortless-youtube-live-broadcast-from-iphone-and-android-for-2024/"><u>[New] 7 Star-Rated Apps for Effortless YouTube LIVE Broadcast From iPhone and Android for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-explore-advanced-techniques-making-a-difference-with-your-captivating-slow-motion-videos-and-photos-for-instagram-for-2024/"><u>[New] Explore Advanced Techniques Making a Difference with Your Captivating Slow-Motion Videos & Photos for Instagram for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-2023s-fb-url-vault-securely-access-8-free-downloads-online/"><u>[Updated] In 2024, 2023'S FB URL Vault Securely Access 8 Free Downloads Online</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/enhancing-cinematics-with-kinemasters-transition-magic/"><u>Enhancing Cinematics with Kinemaster's Transition Magic</u></a></li>
+<li><a href="https://win-unique.techidaily.com/fast-and-reliable-methods-for-writing-zeros-to-hddssd-complete-tutorial/"><u>Fast and Reliable Methods for Writing Zeros to HDD/SSD – Complete Tutorial</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-steps-in-youtube-tech-a-comprehensive-list-for-2024/"><u>First Steps in YouTube Tech A Comprehensive List for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-lava-agni-2-5g-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>How to Unlock Lava Agni 2 5G Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-oppo-reno-10-proplus-5g-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Oppo Reno 10 Pro+ 5G Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-saving-youtube-videos-as-screen-captures-today-completely-free-for-2024/"><u>Start Saving YouTube Videos as Screen Captures Today - Completely Free for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/top-6-reasons-for-forming-an-exclusive-fb-fanbase/"><u>Top 6 Reasons for Forming an Exclusive FB Fanbase</u></a></li>
+<li><a href="https://win-best.techidaily.com/transformar-wmv-para-wav-online-sem-custo-com-a-ferramenta-do-movavi/"><u>Transformar WMV Para WAV Online Sem Custo Com a Ferramenta Do Movavi</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/1728494380816-windows-11windows-7/"><u>Windows 11から安全にWindows 7へのリカバリ - データ損失無しで</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Upload Made Easy  Your Device-Based Guide for YouTube Shorts\""
-date: 2024-09-14T20:02:38.141Z
-updated: 2024-09-17T03:00:20.779Z
+date: 2024-10-17T12:00:27.360Z
+updated: 2024-10-21T05:39:42.503Z
 tags:
   - ai video
   - ai youtube
@@ -101,11 +101,25 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
 #### Step 3: Upload the Video
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
 
@@ -116,13 +130,6 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -140,20 +147,27 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -174,5 +188,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-able.techidaily.com/fixed-overcoming-crusader-kings-3-shutdowns-and-restarts-on-your-computer/"><u>[FIXED] Overcoming Crusader Kings 3 Shutdowns and Restarts on Your Computer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nverse-viewing-in-youtube-original-ideas-for-rewinders/"><u>[New] Inverse Viewing in YouTube Original Ideas for Rewinders</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unlock-the-secret-to-pop-in-audio-on-social-video-shares/"><u>[New] Unlock the Secret to Pop-In Audio on Social Video Shares</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-efficient-revenue-streams-the-guide-to-making-money-from-youtube-mobile-for-2024/"><u>[Updated] Efficient Revenue Streams The Guide to Making Money From YouTube Mobile for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-monitor-top-youtube-videos-select-rank-trackers-guide-for-2024/"><u>[Updated] Monitor Top YouTube Videos - Select Rank Trackers Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-proven-techniques-to-enhance-subscriber-count-with-effective-channel-branding/"><u>[Updated] Proven Techniques to Enhance Subscriber Count with Effective Channel Branding</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-ultimate-blueprint-for-branding-success-on-snapchat/"><u>[Updated] The Ultimate Blueprint for Branding Success on SnapChat</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-studio-editors-pathway-to-professional-filmmaking-for-2024/"><u>[Updated] YouTube Studio Editor's Pathway to Professional Filmmaking for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-15-indispentic-tools-to-launch-your-youtube-career/"><u>2024 Approved 15 Indispentic Tools to Launch Your YouTube Career</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mastering-tv-broadcasts-repeating-youtube-videos-effortlessly/"><u>2024 Approved Mastering TV Broadcasts Repeating YouTube Videos Effortlessly</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/broadcasting-to-the-big-screen-watching-fb-videos-on-tv-in-2024/"><u>Broadcasting to the Big Screen Watching FB Videos on TV, In 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/effective-solutions-to-rectify-arduino-uno-driver-problems-in-windows/"><u>Effective Solutions to Rectify Arduino Uno Driver Problems in Windows</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-masterful-way-to-add-a-hyperlink-to-enhance-your-tiktok-profile/"><u>In 2024, Masterful Way to Add a Hyperlink to Enhance Your TikTok Profile</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rating-youtube-media-into-instagram-experience/"><u>Integrating YouTube Media Into Instagram Experience</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/iphone-is-disabled-here-is-the-way-to-unlock-disabled-apple-iphone-6-plus-by-drfone-ios/"><u>iPhone Is Disabled? Here Is The Way To Unlock Disabled Apple iPhone 6 Plus</u></a></li>
+<li><a href="https://win11.techidaily.com/solving-mbs-service-connection-failures-on-windows-11/"><u>Solving MB's Service Connection Failures on Windows 11</u></a></li>
+<li><a href="https://some-skills.techidaily.com/ultimate-collection-top-free-ae-template-packs-for-2024/"><u>Ultimate Collection Top Free AE Template Packs for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Unveiling the Mystery of Proper Lighting in YouTube Vids"
-date: 2024-10-10T19:44:41.834Z
-updated: 2024-10-15T16:04:01.635Z
+date: 2024-10-16T19:46:29.332Z
+updated: 2024-10-21T10:26:31.996Z
 tags:
   - ai video
   - ai youtube
@@ -52,26 +52,13 @@ Window lighting for me was especially difficult to work with because I live in a
 
 ![  YouTube Video Lighting ](https://images.wondershare.com/filmora/article-images/window-lighting-comparison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Home Lighting
@@ -79,6 +66,13 @@ Above are two freeze frames from one of Daniel's past window-lit vlogs. Although
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
 
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
@@ -91,10 +85,10 @@ Ceiling lights are also typically situated in the center of a room in order to l
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1. Light Control
@@ -121,18 +115,18 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -157,22 +151,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-budget-pc-screen-capture-apps/"><u>[New] 2024 Approved Budget PC Screen Capture Apps</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-leaders-in-education-top-15-sci-yt-innovators/"><u>[New] 2024 Approved Leaders in Education Top 15 Sci-YT Innovators</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-youtube-cover-pics-made-easy-top-5-free-downloader-lists/"><u>[New] 2024 Approved YouTube Cover Pics Made Easy – Top 5 Free Downloader Lists</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-capture-create-curate-mobiles-in-action-for-youtube-thumbnails/"><u>[New] In 2024, Capture, Create, Curate Mobiles in Action for YouTube Thumbnails</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-instagram-slideshow-feature/"><u>[New] In 2024, Instagram Slideshow Feature</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nsight-into-why-certain-youtube-comments-are-showcased-for-2024/"><u>[New] Insight Into Why Certain YouTube Comments Are Showcased for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-transformative-versat-cookies-creative-edition/"><u>[New] Transformative Versat Cookies Creative Edition</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-a-technophiles-manual-on-keeping-a-digital-log-of-live-tv/"><u>[Updated] 2024 Approved A Technophile's Manual on Keeping a Digital Log of Live TV</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-guide-to-youtubes-latest-income-strategies/"><u>[Updated] 2024 Approved Guide to YouTube's Latest Income Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-ultimate-movie-watchlists-streamlining-screen-time/"><u>[Updated] Ultimate Movie Watchlists Streamlining Screen Time</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-oppo-find-x7-ultra-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Oppo Find X7 Ultra without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/tects-crafting-fantasy-realms-for-marvel-for-2024/"><u>Architects Crafting Fantasy Realms for Marvel for 2024</u></a></li>
-<li><a href="https://howto.techidaily.com/calls-on-poco-c55-go-straight-to-voicemail-12-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Calls on Poco C55 Go Straight to Voicemail? 12 Fixes | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/uide-zero-cost-youtube-intros-and-template-usage-for-2024/"><u>DIY Guide Zero Cost YouTube Intros & Template Usage for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/metaai-revolutionizing-conversational-intelligence/"><u>MetaAI: Revolutionizing Conversational Intelligence</u></a></li>
-<li><a href="https://games-able.techidaily.com/outwit-ny-times-influence-with-these-top-8-tactics/"><u>Outwit NY Times Influence with These Top 8 Tactics</u></a></li>
-<li><a href="https://techidaily.com/two-methods-for-formatting-drives-in-ubuntu-a-comprehensive-guide/"><u>Two Methods for Formatting Drives in Ubuntu: A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-broadcast-perfection-recommended-tech-and-apps-for-youtubers/"><u>[New] 2024 Approved Broadcast Perfection Recommended Tech and Apps for YouTubers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-strategic-podcast-drop-dates/"><u>[New] In 2024, Strategic Podcast Drop Dates</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eaders-in-virtual-marvel-universe-creation/"><u>[New] Leaders in Virtual Marvel Universe Creation</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-transform-your-content-simple-steps-to-change-numbers-on-tiktok-for-2024/"><u>[New] Transform Your Content Simple Steps to Change Numbers on TikTok for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-engaging-video-credits-the-best-fonts-for-thumbnails/"><u>[Updated] 2024 Approved Engaging Video Credits The Best Fonts for Thumbnails</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-streammasters-obs-edition/"><u>[Updated] In 2024, StreamMasters OBS Edition</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-unveiling-top-rated-video-recorders-for-windows/"><u>[Updated] In 2024, Unveiling Top-Rated Video Recorders for Windows</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-simplifying-complexities-in-youtube-shorts/"><u>[Updated] Simplifying Complexities in YouTube Shorts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-streamline-your-channels-customized-end-screen-templates/"><u>[Updated] Streamline Your Channels Customized End Screen Templates</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/harness-the-power-of-video-for-enhanced-facebook-traffic/"><u>Harness the Power of Video for Enhanced Facebook Traffic</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-cost-effective-techniques-for-youtube-intro-creation/"><u>In 2024, Cost-Effective Techniques for YouTube Intro Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-elevate-video-production-the-audio-edition-on-youtube/"><u>In 2024, Elevate Video Production The Audio Edition on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/um-screen-reporter-the-ultimate-youtubers-friend-for-2024/"><u>Premium Screen Reporter The Ultimate YouTuber's Friend for 2024</u></a></li>
+<li><a href="https://win-blog.techidaily.com/troubleshooting-steps-why-cant-you-start-modern-warfare-in-2e24/"><u>Troubleshooting Steps: Why Can't You Start Modern Warfare in 2E24?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/ultimate-2023-timeline-turning-srt-into-txt-swiftly-for-2024/"><u>Ultimate 2023 Timeline Turning SRT Into TXT Swiftly for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/what-to-expect-from-the-new-google-pixel-buds-pro-cups-price-predictions-and-release-details-uncovered/"><u>What to Expect From the New Google Pixel Buds Pro Cups: Price Predictions and Release Details Uncovered</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/bes-twist-rearranging-queue-from-end-to-beginning/"><u>YouTube's Twist Rearranging Queue From End to Beginning</u></a></li>
 </ul></div>
 

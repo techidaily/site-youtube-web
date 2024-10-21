@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Leading Luminaries of Livestreaming Success"
-date: 2024-09-16T02:24:22.074Z
-updated: 2024-09-16T22:46:45.244Z
+date: 2024-10-18T22:55:03.977Z
+updated: 2024-10-21T11:45:54.854Z
 tags:
   - ai video
   - ai youtube
@@ -75,15 +75,22 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139114/17108" target="_top" id="2139114">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139114" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139114/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ###  4\.  Smosh
@@ -91,10 +98,10 @@ Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countrie
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132161/7443" target="_top" id="2132161">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132161" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132161/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
@@ -107,13 +114,6 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
 At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 million downloads in the first week. His videos are mostly in Spanish which somewhat limits his audience, but it is safe to say the Fernanfloo channel is among the most popular channels in the Latin American countries since most of his audience comes from Bolivia, Peru, and Ecuador.
@@ -121,6 +121,13 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
  For tips on becoming YouTube famous like the creators above, [click here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
@@ -147,5 +154,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/mbracing-constructive-feedback-ignoring-the-rest/"><u>[New] Embracing Constructive Feedback, Ignoring the Rest</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-fundamentals-of-copywriting-for-engaging-fb-campaigns-for-2024/"><u>[New] Fundamentals of Copywriting for Engaging FB Campaigns for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-into-every-detailed-detail-expert-strategies-to-record-immersive-sims-4-adventures/"><u>[New] In 2024, Into Every Detailed Detail Expert Strategies to Record Immersive Sims 4 Adventures</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-price-tag-of-a-million-viewed-youtube-video/"><u>[New] In 2024, The Price Tag of a Million-Viewed YouTube Video</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/evolutionizing-channel-presence-the-secret-of-higher-subscriber-numbers/"><u>[New] Revolutionizing Channel Presence The Secret of Higher Subscriber Numbers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-the-cutting-edge-recording-sounds-in-the-mac-era-for-2024/"><u>[New] The Cutting Edge Recording Sounds in the Mac Era for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-roadmap-to-establishing-your-unique-flair-for-2024/"><u>[New] The Roadmap to Establishing Your Unique Flair for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-unveiling-the-secrets-of-lut-customization-in-premiere/"><u>[Updated] In 2024, Unveiling the Secrets of LUT Customization in Premiere</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/a-comprehensive-guide-to-repairing-haldll-errors-in-windows-xp-systems/"><u>A Comprehensive Guide to Repairing Hal.dll Errors in Windows XP Systems</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-motorola-moto-g84-5g-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Motorola Moto G84 5G Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/how-efficient-is-recuva-for-file-restoration-a-thorough-examination-and-user-ratings/"><u>How Efficient Is Recuva for File Restoration? - A Thorough Examination and User Ratings</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-11-best-pokemon-go-spoofers-for-gps-spoofing-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, 11 Best Pokemon Go Spoofers for GPS Spoofing on Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-subscription-wins-unlock-monetization-benefits/"><u>In 2024, Subscription Wins Unlock Monetization Benefits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ar-payouts-for-youtube-content-makers/"><u>Regular Payouts for YouTube Content Makers?</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/revolutionize-your-year-with-unlimited-lifetime-access-to-mondly-premium-at-no-cost/"><u>Revolutionize Your Year with Unlimited Lifetime Access to Mondly Premium at No Cost</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-checklist-of-key-elements-in-tagging-a-video-for-2024/"><u>The Ultimate Checklist of Key Elements in Tagging a Video for 2024</u></a></li>
+</ul></div>
 

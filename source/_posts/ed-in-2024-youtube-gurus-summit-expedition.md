@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, YouTube Gurus Summit Expedition"
-date: 2024-09-09T16:45:56.302Z
-updated: 2024-09-17T00:16:14.455Z
+date: 2024-10-13T20:54:56.121Z
+updated: 2024-10-21T01:30:53.084Z
 tags:
   - ai video
   - ai youtube
@@ -68,6 +68,13 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
@@ -81,16 +88,10 @@ To help them relax after long days at the summit, YouTube provided creators with
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
@@ -104,10 +105,10 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115929/19272" target="_top" id="2115929">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115929" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115929/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
@@ -119,10 +120,10 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -146,5 +147,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/anish-youtube-shorts-forever-with-ease-for-2024/"><u>[New] Banish YouTube Shorts Forever with Ease for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/lash-video-insights-guide-for-2024/"><u>[New] Flash Video Insights Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rom-barely-known-to-famous-elevate-your-viewership-on-youtube/"><u>[New] From Barely Known to Famous Elevate Your Viewership on Youtube</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-ideal-cards-for-ultra-hd-content-creation/"><u>[New] Ideal Cards for Ultra-HD Content Creation</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-crafting-captivating-conversations-mastering-zooms-filter-features/"><u>[New] In 2024, Crafting Captivating Conversations Mastering Zoom's Filter Features</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/remier-asmr-vloggers-you-cant-miss/"><u>[New] Premier ASMR Vloggers You Can't Miss</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-essential-templates-and-makers-insights-for-end-credits/"><u>[Updated] 2024 Approved Essential Templates & Makers' Insights for End Credits</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-snapshot-spectaculars-an-experts-review-of-recorders/"><u>[Updated] 2024 Approved Snapshot Spectaculars An Expert's Review of Recorders</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-7-key-tools-to-convert-youtube-videos-easily/"><u>[Updated] In 2024, 7 Key Tools to Convert YouTube Videos Easily</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-optimizing-online-identity-through-yt-profile-refinement/"><u>[Updated] In 2024, Optimizing Online Identity Through YT Profile Refinement</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-tackling-teal-turmoil-eliminate-green-screen-glitches-mac-edition/"><u>2024 Approved Tackling Teal Turmoil Eliminate Green Screen Glitches (Mac Edition)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/adopting-powerpoints-advanced-speech-to-text-functionality-for-dynamic-slide-shows-for-2024/"><u>Adopting PowerPoint’s Advanced Speech-to-Text Functionality for Dynamic Slide Shows for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-ultimate-companion-for-your-vlogging-journey-top-12-cameras/"><u>In 2024, The Ultimate Companion for Your Vlogging Journey - Top 12 Cameras</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/second-language-acquisition-strategies-english-focus/"><u>Second Language Acquisition Strategies: English Focus</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-reviews-cutting-edge-insights/"><u>Tom's Tech Reviews: Cutting-Edge Insights</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-the-pathway-to-immaculate-audio-integration-in-video-production/"><u>Updated The Pathway to Immaculate Audio Integration in Video Production</u></a></li>
+<li><a href="https://techidaily.com/useful-ways-that-can-help-to-effectively-recover-deleted-files-from-edge-40-neo-by-fonelab-android-recover-data/"><u>Useful ways that can help to effectively recover deleted files from Edge 40 Neo</u></a></li>
+</ul></div>
 

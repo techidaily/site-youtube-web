@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting the Perfect Schedule for Jobs & YouTube"
-date: 2024-10-13T21:31:23.178Z
-updated: 2024-10-15T16:23:05.722Z
+date: 2024-10-13T16:21:04.977Z
+updated: 2024-10-20T19:29:58.353Z
 tags:
   - ai video
   - ai youtube
@@ -52,15 +52,22 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657395/16446" target="_top" id="1657395">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657395" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657395/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 3. Check the weather forecast in advance
 
@@ -70,31 +77,11 @@ When starting a YouTube channel, many YouTubers like myself don’t have the mon
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 5. Be creative! Create audios (audio-only videos)
 
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
 
@@ -104,13 +91,20 @@ Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -134,20 +128,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-elevate-your-content-top-8-no-cost-video-editing-software/"><u>[New] In 2024, Elevate Your Content Top 8 No-Cost Video Editing Software</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-ultimate-how-to-for-your-youtube-music-collection-for-2024/"><u>[New] The Ultimate How-To for Your YouTube Music Collection for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nveiling-frames-5-effective-charge-free-youtube-techniques/"><u>[New] Unveiling Frames 5 Effective, Charge-Free YouTube Techniques</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-10-best-intro-maker-apps-for-iphone-and-android-for-2024/"><u>[Updated] 10 Best Intro Maker Apps for iPhone and Android for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-decoding-youtubes-top-mp3-conversion-apps-for-2024/"><u>[Updated] Decoding YouTube's Top MP3 Conversion Apps for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-5-best-dvd-creators-on-mac-os/"><u>[Updated] In 2024, 5 Best DVD Creators on Mac OS</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-crafting-engaging-youtube-end-credits/"><u>[Updated] In 2024, Crafting Engaging YouTube End Credits</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-recording-skype-calls-with-ease-for-mac-and-pc-users/"><u>[Updated] In 2024, Recording Skype Calls with Ease for Mac and PC Users</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-ultimate-list-top-free-screen-recorder-tools-for-easy-capture/"><u>[Updated] In 2024, Ultimate List Top Free Screen Recorder Tools for Easy Capture</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-ai-powered-frame-refactoring-suite/"><u>2024 Approved AI-Powered Frame Refactoring Suite</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-extract-your-favorites-best-playlist-tools-reviewed-and-rated/"><u>2024 Approved Extract Your Favorites Best Playlist Tools Reviewed and Rated</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-masterful-strategies-for-saving-lol-rounds/"><u>2024 Approved Masterful Strategies for Saving LOL Rounds</u></a></li>
-<li><a href="https://fake-location.techidaily.com/apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>Apply These Techniques to Improve How to Detect Fake GPS Location On Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://discover-able.techidaily.com/discover-the-ultimate-collection-free-hd-music-video-downloads-top-picks/"><u>Discover the Ultimate Collection: Free, HD Music Video Downloads (Top Picks)</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-the-best-8-vpn-hardware-devices-reviewed-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>In 2024, The Best 8 VPN Hardware Devices Reviewed On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-navigate-to-sites-where-you-can-procure-sponsorships-on-youtube/"><u>[New] 2024 Approved Navigate to Sites Where You Can Procure Sponsorships on Youtube</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-the-strategic-pathway-to-podcast-popularity-with-effective-seo-techniques/"><u>[New] 2024 Approved The Strategic Pathway to Podcast Popularity with Effective SEO Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-compilation-of-top-7-android-adblocking-apps/"><u>[New] 2024 Approved The Ultimate Compilation of Top 7 Android AdBlocking Apps</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-how-to-clear-the-clutter-blurring-backgrounds-for-engaging-yt/"><u>[Updated] How to Clear the Clutter Blurring Backgrounds for Engaging YT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-turning-videos-into-dollars-the-ultimate-mobile-focused-youtubers-manual-for-2e24/"><u>[Updated] In 2024, Turning Videos Into Dollars The Ultimate Mobile-Focused YouTuber's Manual for 2E24</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-best-youtube-shorts-video-editing-apps-for-ios-and-android/"><u>2024 Approved Best YouTube Shorts Video Editing Apps for iOS and Android</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/a79-5g-support-forgotten-screen-lock-by-drfone-android-unlock-android-unlock/"><u>A79 5G support - Forgotten screen lock.</u></a></li>
+<li><a href="https://win-alternatives.techidaily.com/embracing-the-hybrid-work-revolution-microsoft-unveils-innovative-office-essentials-zdnet-insights/"><u>Embracing the Hybrid Work Revolution: Microsoft Unveils Innovative Office Essentials - ZDNet Insights</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hardware-expertise-by-tom-comprehensive-analysis-and-advice/"><u>Hardware Expertise by Tom: Comprehensive Analysis & Advice</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-essential-3d-toolkit-creating-engaging-video-beginnings/"><u>In 2024, Essential 3D Toolkit Creating Engaging Video Beginnings</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/into-the-future-jaunt-vrs-potential-explored-for-2024/"><u>Into the Future Jaunt VR's Potential Explored for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-online-stop-motion-animation-studios-top-5-free-and-paid-options/"><u>New In 2024, Online Stop Motion Animation Studios Top 5 Free and Paid Options</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-intricacies-behind-facebooks-policy-to-support-multi-profiles-per-user-account/"><u>The Intricacies Behind Facebook's Policy to Support Multi-Profiles per User Account</u></a></li>
 </ul></div>
 

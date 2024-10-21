@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Constructing YouTube Video Content That Resonates with Viewers"
-date: 2024-09-15T19:16:03.817Z
-updated: 2024-09-16T20:28:55.241Z
+date: 2024-10-16T03:37:03.876Z
+updated: 2024-10-20T18:19:16.898Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,13 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
@@ -56,26 +63,32 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
+  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Just keep writing
@@ -117,16 +130,10 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139107/17108" target="_top" id="2139107">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139107" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139107/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -150,5 +157,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-info.techidaily.com/new-analyzing-aurora-hdr-quality/"><u>[New] Analyzing Aurora HDR Quality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nspecting-dialogues-in-youtube-vids-for-2024/"><u>[New] Inspecting Dialogues in YouTube Vids for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-content-distribution-showdown-vimeo-vs-youtubes-and-dailymotions/"><u>[Updated] In 2024, Content Distribution Showdown Vimeo vs YouTubes and DailyMotions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-fixed-shorts-no-more-hidden-content/"><u>[Updated] In 2024, Fixed Shorts - No More Hidden Content</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-tailoring-your-video-content-for-wide-platform-distribution/"><u>[Updated] Tailoring Your Video Content for Wide Platform Distribution</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-love-in-full-bloom-top-7-premium-marriage-films-from-youtube-and-vimeo/"><u>2024 Approved Love in Full Bloom Top 7 Premium Marriage Films From YouTube and Vimeo</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mastery-in-motion-transform-youtube-videos-into-expressive-gifs/"><u>2024 Approved Mastery in Motion Transform YouTube Videos Into Expressive GIFs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-optimizing-channels-with-tubebuddy-expertise/"><u>2024 Approved Optimizing Channels with TubeBuddy Expertise</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024-approved-unlock-animoji-secrets-on-iphone-x-a-step-by-step-guide/"><u>2024 Approved Unlock Animoji Secrets on iPhone X - A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/zing-youtube-rankings-what-drives-top-placement/"><u>Analyzing YouTube Rankings What Drives Top Placement?</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/deciding-factors-for-investing-in-an-ultra-smart-tv/"><u>Deciding Factors for Investing in an Ultra-Smart TV</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/elevate-audio-visual-sync-with-caption-addition-in-wmp/"><u>Elevate Audio-Visual Sync with Caption Addition in WMP</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hits-to-strikes-expert-youtube-studio-editing-strategies-for-2024/"><u>From Hits to Strikes Expert YouTube Studio Editing Strategies for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-honor-play-7t-to-other-android-devices-using-bluetooth-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Honor Play 7T to Other Android Devices Using Bluetooth? | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-oneplus-nord-n30-5g-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On OnePlus Nord N30 5G? | Dr.fone</u></a></li>
+</ul></div>
 

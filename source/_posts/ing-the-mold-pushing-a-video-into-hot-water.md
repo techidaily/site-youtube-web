@@ -1,7 +1,7 @@
 ---
 title: "\"Breaking the Mold  Pushing a Video Into Hot Water\""
-date: 2024-10-09T18:44:49.832Z
-updated: 2024-10-15T18:31:32.774Z
+date: 2024-10-18T10:01:36.894Z
+updated: 2024-10-21T06:30:25.168Z
 tags:
   - ai video
   - ai youtube
@@ -55,13 +55,6 @@ As a smaller creator, you will not be successful if you only aim to do videos th
 
 **![find your niche](https://images.wondershare.com/filmora/article-images/niche-find-your-niche.jpg)**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118305/7443" target="_top" id="2118305">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118305" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118305/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Taking on trending topics shouldn’t mean taking on topics you aren’t actually interested in or don’t care about. Every genre on YouTube has its own trends, and you will often know about them just by virtue of watching other channels in your genre and talking to people who are interested in the same things as you. For example, if you’re a Gamer and your friends are also Gamers then you probably already know what Gamers are currently interested in.
 
 If you do need help determining trends, here are 2 ways to do it:
@@ -73,35 +66,55 @@ If you do need help determining trends, here are 2 ways to do it:
 
 **![think-in-divergent-way](https://images.wondershare.com/filmora/article-images/think-in-divergent-way.jpg)**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Being trendy doesn’t mean you can’t be original. If you know what’s popular in your genre then that will enable you to ask yourself ‘what’s on-trend, but not being covered yet?’.
 
 For example, if you know that relationship videos – topics like ‘how do you know a guy likes you?’ – are doing well then you can think about what other aspects of dating people might be interested in that don’t have many videos on them yet. If you’re one of the first to tackle something that’s on-trend you have a much better chance of getting that number 1 search engine ranking, and higher ranked videos always get more views.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **4\. Success Doesn't Mean Making a Viral Video**
 
 **![viral-video](https://images.wondershare.com/filmora/article-images/viral-video.png)**
+
+<!-- affiliate ads begin -->
+<span id="1977006">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 There’s a common misconception that in order to grow your channel you need to make your videos go viral. The truth is that having one or two viral videos probably won’t help you much. People don’t subscribe to one video, they subscribe for consistently good content.
 
 It’s much better to have 10 videos on a popular topic that are doing alright than it is to have that one big viral hit. Those 10 videos will consistently bring in new viewers to your channel who are more likely to subscribe because they can see you have other content they’re interested in.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **5\. The Subscriber Snowball Effect**
 
 **![snowball-effect](https://images.wondershare.com/filmora/article-images/snowball-effect.jpg)**
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 When you make multiple videos around a trending topic, they’re more likely to come up as ‘related’ to each other than if you only cover the topic in one video. If someone enjoys one of your videos on that topic and can see there’s another right there in the related videos, there’s a good chance they’ll click on it.
 
@@ -114,13 +127,6 @@ Finding the trend is integral for YouTube channel growth. A user-friendly video 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -143,21 +149,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-optimal-stabilization-for-mirrorless-with-gimbals/"><u>[New] 2024 Approved Optimal Stabilization for Mirrorless with Gimbals</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-from-live-to-digital-preserving-your-skype-talks/"><u>[New] From Live to Digital Preserving Your Skype Talks</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-streaming-made-simple-convert-and-broadcast-mp3-songs-online/"><u>[New] In 2024, Streaming Made Simple Convert and Broadcast MP3 Songs Online</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/o-money-down-mics-the-frugal-filmmakers-list/"><u>[New] No-Money-Down Mics The Frugal Filmmaker's List</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ncovering-your-individual-playlist-sanctuary-on-youtube-for-2024/"><u>[New] Uncovering Your Individual Playlist Sanctuary on Youtube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-legal-landscapes-understanding-youtube-and-cc-divergences-for-2024/"><u>[Updated] Legal Landscapes Understanding YouTube & CC Divergences for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-ultimate-guide-to-using-look-up-tables-luts-in-photoshop/"><u>[Updated] The Ultimate Guide to Using Look-Up Tables (LUTs) in Photoshop</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-youtube-monetization-changes-500-subscribers-now-eligible-for-2024/"><u>[Updated] YouTube Monetization Changes 500 Subscribers Now Eligible for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/1719295110946-get-a-free-self-hosted-gptclone-with-gpt4all/"><u>Get a Free, Self-Hosted GPTClone with GPT4All</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-against-gravity-innovative-ways-to-rewind-youtube-content-for-2024/"><u>Going Against Gravity Innovative Ways to Rewind YouTube Content for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-fix-the-soft-bricked-realme-c53-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Realme C53? | Dr.fone</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/if-you-observe-low-ctrs-consider-optimizing-title-tags-meta-descriptions-and-content-with-more-relevant-keywords-or-value-driven-phrases-that-could-entice-a67/"><u>If You Observe Low CTRs, Consider Optimizing Title Tags, Meta Descriptions, and Content with More Relevant Keywords or Value-Driven Phrases that Could Entice a User to Click Through.</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-xiaomi-redmi-note-12-proplus-5g-online-without-jailbreak-by-drfone-android/"><u>In 2024, How to Unlock SIM Card on Xiaomi Redmi Note 12 Pro+ 5G online without jailbreak</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/the-10-best-tools-to-bypass-icloud-activation-lock-from-iphone-15-pro-you-should-try-out-by-drfone-ios/"><u>The 10 Best Tools to Bypass iCloud Activation Lock From iPhone 15 Pro You Should Try Out</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/athway-to-crafting-a-viral-video-introduction-for-2024/"><u>The Pathway to Crafting a Viral Video Introduction for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-asus-rog-phone-7-ultimate-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Asus ROG Phone 7 Ultimate IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-crafting-gifs-like-a-pro-industry-leaders-tools/"><u>[New] 2024 Approved Crafting GIFs Like a Pro Industry Leaders' Tools</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-from-panoramas-to-pages-uploading-wide-angle-content-online/"><u>[New] 2024 Approved From Panoramas to Pages Uploading Wide Angle Content Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-stream-titling-service/"><u>[New] 2024 Approved Stream Titling Service</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-combat-vr-motion-sickness-a-guide/"><u>[New] Combat VR Motion Sickness A Guide</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/rasing-extra-borders-for-smooth-youtube-playback-for-2024/"><u>[New] Erasing Extra Borders for Smooth YouTube Playback for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-beginners-guide-to-camera-lenses-in-filmmaking-and-vlogging/"><u>[New] In 2024, The Beginner's Guide to Camera Lenses in Filmmaking & Vlogging</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-lenovo-screen-recording-a-quick-guide-for-2024/"><u>[Updated] Lenovo Screen Recording A Quick Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-source-stock-images-directly-from-trusted-4-youtube-vids/"><u>2024 Approved Source Stock Images Directly From Trusted 4 Youtube Vids</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/convert-videos-with-ease-on-your-mac-try-the-macx-mkv-transcoding-tool-for-no-cost/"><u>Convert Videos with Ease on Your Mac – Try the MacX MKV Transcoding Tool for No Cost</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-early-bird-winners-youtubes-quick-favorites/"><u>In 2024, Early Bird Winners Youtube's Quick Favorites</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-transform-your-youtube-sign-up-rate-learn-anime-subscribe-buttons-in-filmora/"><u>In 2024, Transform Your YouTube Sign-Up Rate - Learn Anime Subscribe Buttons in Filmora</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/is-german-study-an-uphill-battle/"><u>Is German Study an Uphill Battle?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/live-stream-heroes-face-off-xsplit-vs-obs-showcase/"><u>Live Stream Heroes Face Off – XSplit Vs. OBS Showcase</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mobile-studio-kits-convenient-for-filmmakers-for-2024/"><u>Mobile Studio Kits Convenient for Filmmakers for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solving-common-problems-with-the-battlenet-app-for-windows-users/"><u>Solving Common Problems with the Battle.net App for Windows Users</u></a></li>
 </ul></div>
 

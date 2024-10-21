@@ -1,7 +1,7 @@
 ---
 title: "Navigating Vlogging Nuances with Confidence and Clarity"
-date: 2024-09-10T20:04:32.426Z
-updated: 2024-09-16T18:32:25.039Z
+date: 2024-10-16T23:24:28.797Z
+updated: 2024-10-20T22:16:24.123Z
 tags:
   - ai video
   - ai youtube
@@ -63,6 +63,13 @@ The ending needs to be justified even if there is a twist. Everything before tha
 
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **4\. Be Inviting**
 
 A common trait of successful vloggers is that they are welcoming. They share their passion and encourage others to join in. Vlogging is about being a guide. It doesn’t matter if you are leading a tour of your home or showing your viewer an interesting new skill, it is important for you to approach the whole process with open arms.
@@ -72,10 +79,10 @@ Unlike being invited to a party, there is no obligation when it comes to YouTube
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
@@ -90,6 +97,13 @@ Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UC
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098705/14409" target="_top" id="2098705">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098705" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098705/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **6\. Be Prepared**
 
 While you can pick up a camera and start vlogging on the fly, being prepared enables you to produce the best video possible. Take a few minutes before you hit record simply to outline the key points you want to talk about and how the video will end, ensuring that after filming you haven’t forgotten a crucial part.
@@ -99,6 +113,13 @@ Additionally, knowing what to say makes you a better host for your vlog. Watch y
 Good preparation includes having all your gear ready for filming when you need it. There is nothing worse than being set to shoot and running out of battery or memory.
 
 Take a look at [Ashley Nichole](https://www.youtube.com/channel/UC8GTe3Wn7dtWXf3B%5Fv5gm9w) in this vlog and notice that although she sounds spontaneous, it is also evident that she knows what she is going to talk about next.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **7\. Be Expressive**
 
@@ -134,21 +155,7 @@ If you want to find a video editing solution that empowers your imagination and 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -169,5 +176,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-capture.techidaily.com/1716069762496-new-2024-approved-huaweis-built-in-recorder-screen-capture-for-mate-and-p-series/"><u>[New] 2024 Approved Huawei's Built-In Recorder Screen Capture for Mate and P Series.</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/fficient-audience-growth-subscriber-sale-alert-for-2024/"><u>[New] Efficient Audience Growth Subscriber Sale Alert for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/inding-the-perfect-phrases-for-gamers-videos/"><u>[New] Finding the Perfect Phrases for Gamers' Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-video-gurus-playbook-smooth-transition-to-easy-youtube-cc-and-subtitles/"><u>[New] In 2024, The Video Guru's Playbook Smooth Transition to Easy YouTube CC & Subtitles</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-complete-guide-to-reversed-videos-on-instagram/"><u>[Updated] 2024 Approved The Complete Guide to Reversed Videos on Instagram</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-amplify-impact-through-effective-video-marketing-on-youtubes-top-5-moves/"><u>[Updated] In 2024, Amplify Impact Through Effective Video Marketing on YouTube's Top 5 Moves</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-perfect-ending-for-youtubers-best-practices-and-pro-files-for-2024/"><u>[Updated] Perfect Ending for YouTubers Best Practices and Pro Files for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/budget-friendly-lenovo-tab-m10-fhd-plus-2020-a-comprehensive-review-of-its-stunning-full-hd-display/"><u>Budget-Friendly Lenovo Tab M10 FHD Plus (2020): A Comprehensive Review of Its Stunning Full HD Display</u></a></li>
+<li><a href="https://facebook.techidaily.com/ensuring-group-inclusion-comprehensive-member-listing-tactics/"><u>Ensuring Group Inclusion: Comprehensive Member Listing Tactics</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-advice-why-isnt-my-shortcut-key-combo-shiftpluss-active-in-windows-solutions-for-win11win10-users/"><u>Expert Advice: Why Isn't My Shortcut Key Combo (Shift+S) Active in Windows? Solutions for Win11/Win10 Users</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-get-back-your-vanished-iphone-photos-a-guide-for-devices-6s-7-8-x-and-11/"><u>How to Get Back Your Vanished iPhone Photos: A Guide for Devices 6S, 7, 8, X & 11</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-navigating-youtube-rights-an-experts-handbook/"><u>In 2024, Navigating YouTube Rights An Expert's Handbook</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-prodigious-platform-professionals/"><u>In 2024, Prodigious Platform Professionals</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-professional-shooters-guide-to-stability/"><u>In 2024, Professional Shooters' Guide to Stability</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/mastering-the-art-of-photo-border-elimination-for-2024/"><u>Mastering the Art of Photo Border Elimination for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ntrepreneurs-pathway-to-profitable-vlogging/"><u>The Entrepreneur's Pathway to Profitable Vlogging</u></a></li>
+<li><a href="https://windows11.techidaily.com/wins-cmd-customize-to-reflect-your-style/"><u>Win's CMD: Customize to Reflect Your Style</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Unlock Free YouTube Intro/End Customization"
-date: 2024-09-14T23:29:22.361Z
-updated: 2024-09-21T18:14:06.879Z
+date: 2024-10-19T22:05:07.607Z
+updated: 2024-10-20T21:56:12.838Z
 tags:
   - ai video
   - ai youtube
@@ -82,6 +82,19 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -117,6 +130,13 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -136,12 +156,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/evolutionizing-video-sharing-alternatives-to-youtube-for-2024/"><u>[New] Revolutionizing Video Sharing Alternatives to YouTube for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-best-practices-in-winning-tv-recording-with-software/"><u>[Updated] 2024 Approved Best Practices in Winning TV Recording with Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-building-inspiring-lifestyle-content-for-viewers/"><u>[Updated] 2024 Approved Building Inspiring Lifestyle Content for Viewers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-rhythm-roundup-hot-music-for-todays-top-youtube-short-videos/"><u>[Updated] 2024 Approved Rhythm Roundup Hot Music for Today’s Top YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-creator-revenue-streams-amidst-the-world-of-youtube-shorts-for-2024/"><u>[Updated] Creator Revenue Streams Amidst the World of YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-master-class-in-live-streaming-your-pathway-to-successful-youtube-channels-via-wirecast/"><u>[Updated] Master Class in Live Streaming Your Pathway to Successful Youtube Channels via WireCast</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-pioneering-scripts-reflecting-diverse-genre-themes/"><u>2024 Approved Pioneering Scripts Reflecting Diverse Genre Themes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-streaming-made-simple-free-downloader-to-mp3s-now/"><u>2024 Approved Streaming Made Simple Free Downloader to MP3s Now!</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-evaluation-of-the-patriot-viper-vp4300-lite-ssd-with-4tb-capacity/"><u>Comprehensive Evaluation of the Patriot Viper VP4300 Lite SSD with 4TB Capacity</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/contrast-and-composition-theory-in-design-for-2024/"><u>Contrast and Composition Theory in Design for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/guide-overcoming-high-system-resource-consumption-from-windows-audio-device-integration/"><u>Guide: Overcoming High System Resource Consumption From Windows Audio Device Integration</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-13-pro-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 13 Pro Without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-use-allshare-cast-to-turn-on-screen-mirroring-on-huawei-nova-y71-drfone-by-drfone-android/"><u>How To Use Allshare Cast To Turn On Screen Mirroring On Huawei Nova Y71 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-from-raw-footage-to-highlight-hits/"><u>In 2024, From Raw Footage to Highlight Hits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eipad-cutting-edge-free-video-editing-tools-guide-for-2024/"><u>IPhone/iPad Cutting Edge Free Video Editing Tools Guide for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/tropico-eb-version-examination-dominating-a-serene-eden/"><u>Tropico Eb Version Examination: Dominating a Serene Eden</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/updating-your-kindles-dictionary-a-step-by-step-guide/"><u>Updating Your Kindle's Dictionary: A Step-by-Step Guide</u></a></li>
+</ul></div>
 

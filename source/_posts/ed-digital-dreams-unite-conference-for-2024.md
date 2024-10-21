@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Digital Dreams Unite Conference for 2024"
-date: 2024-09-11T16:44:31.827Z
-updated: 2024-09-17T04:07:44.627Z
+date: 2024-10-17T12:13:20.838Z
+updated: 2024-10-21T00:39:59.290Z
 tags:
   - ai video
   - ai youtube
@@ -64,13 +64,48 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
+
+## 4\. Branded slippers
+
+To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
+
+![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+_thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
 <span id="1424531">
@@ -83,21 +118,6 @@ S’well bottles are stainless steel beverage containers that keep drinks hot or
 	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
 <img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## 4\. Branded slippers
-
-To help them relax after long days at the summit, YouTube provided creators with YouTube-branded slippers. They look pretty comfy. Plus, now every time these YouTubers look down at their feet they’ll be reminded to go make some videos.
-
-![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
-
-_thinknoodles wearing his YouTube slippers._
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
@@ -117,13 +137,6 @@ Most creators here on Filmora are still trying to grow their channels, but one d
 Want to join the YouTube Creator Summit in the future? We all know that there is a long way to go, but we can start making good YouTube videos now. Remember to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) with the templates and effects to touch up your YouTube videos.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -146,5 +159,16 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-how-to-add-border-to-instagram-photos/"><u>[New] In 2024, How to Add Border to Instagram Photos?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ighten-up-your-timeline-youtube-video-trimming-techniques-for-2024/"><u>[New] Tighten Up Your Timeline YouTube Video Trimming Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-achieving-pristine-video-quality-on-youtube/"><u>[Updated] 2024 Approved Achieving Pristine Video Quality on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-novice-to-pro-mastering-the-art-of-youtube-shorts/"><u>[Updated] From Novice to Pro Mastering the Art of YouTube Shorts</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-backgroundannihilator-professional-erase-software/"><u>2024 Approved BackgroundAnnihilator Professional Erase Software</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-your-website-with-cookiebots-advanced-tracking-solutions/"><u>Enhance Your Website with Cookiebot's Advanced Tracking Solutions</u></a></li>
+<li><a href="https://facebook.techidaily.com/eradicate-every-single-facebook-notification/"><u>Eradicate Every Single Facebook Notification</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/navigate-the-world-of-electronics-toms-hardware-resource/"><u>Navigate the World of Electronics - Tom's Hardware Resource</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ng-up-a-creators-guide-to-major-content-partnerships/"><u>Scaling Up A Creator's Guide to Major Content Partnerships</u></a></li>
+</ul></div>
 
