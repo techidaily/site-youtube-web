@@ -1,7 +1,7 @@
 ---
 title: "In 2024, The Visionaries of Video Workshop"
-date: 2024-10-19T21:18:05.856Z
-updated: 2024-10-21T04:38:48.211Z
+date: 2024-10-25T23:45:52.259Z
+updated: 2024-10-26T17:39:36.356Z
 tags:
   - ai video
   - ai youtube
@@ -68,15 +68,22 @@ Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
+  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. S’well bottle
 
 S’well bottles are stainless steel beverage containers that keep drinks hot or cold. They retail for around $45\. YouTubers invited to the Creator Summit received ones with YouTube branding on them. A good water bottle is a convention/conference essential, so this was a very practical gift.
 
 <!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1657400/16446" target="_top" id="1657400">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657400" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657400/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Branded slippers
@@ -86,31 +93,24 @@ To help them relax after long days at the summit, YouTube provided creators with
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885943/19272" target="_top" id="1885943">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885943" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885943/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
 There were numerous custom pins available at different events at the summit. Aside from a complementary Brooklyn and 1 Hotel Brooklyn Bridge (the hotel the creators were staying at) pins, the creators did not receive these in their swag boxes – they had to collect them.
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 6\. Denim jacket
 
@@ -149,20 +149,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-shot-securement-keeping-cameras-still-on-arms-only/"><u>[New] In 2024, Shot Securement Keeping Cameras Still on Arms Only</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-transferring-tv-episodes-downloading-youtube-content-ios-style/"><u>[New] In 2024, Transferring TV Episodes Downloading YouTube Content iOS-Style</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/potlight-on-the-top-8-authentic-video-promotion-methods/"><u>[New] Spotlight on the Top 8 Authentic Video Promotion Methods</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ailored-free-offer-unlock-our-exclusive-youtube-banner-pack/"><u>[New] Tailored Free Offer - Unlock Our Exclusive YouTube Banner Pack</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-guide-to-swiftly-acquire-and-save-youtube-watch-lists/"><u>[Updated] Guide to Swiftly Acquire and Save YouTube Watch Lists</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-how-to-block-youtube-ads-on-chromefirefoxandroidiphone/"><u>[Updated] How to Block YouTube Ads on Chrome/Firefox/Android/iPhone</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-the-ultimate-6-mac-methods-for-recording-live-tv-shows-like-netflix/"><u>[Updated] In 2024, The Ultimate 6 Mac Methods for Recording Live TV Shows Like Netflix</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-the-science-behind-auto-hdr-and-cameras-ai-powered-shooting-modes-for-2024/"><u>[Updated] The Science Behind Auto HDR and Camera's AI-Powered Shooting Modes for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-essential-steps-to-implement-video-card-anchors-on-youtube/"><u>2024 Approved Essential Steps to Implement Video Card Anchors on YouTube</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-pulse-of-innovation-selecting-top-quality-dj-visual-downloads/"><u>2024 Approved Pulse of Innovation Selecting Top-Quality DJ Visual Downloads</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-honor-magic-6-pro-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Honor Magic 6 Pro to BlackBerry | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-a-marketers-manual-for-recognizing-fabricated-supporters/"><u>In 2024, A Marketer’s Manual for Recognizing Fabricated Supporters</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-exploring-best-pairing-practices-in-the-youtube-space/"><u>In 2024, Exploring Best Pairing Practices in the YouTube Space</u></a></li>
-<li><a href="https://win-able.techidaily.com/windows-10mov/"><u>Windows 10上でMOV形式の動画ファイルを組み立てる詳しいガイド</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723211219514-windows-11-touchpad-scroll-not-working-heres-how-to-fix-it/"><u>Windows 11 Touchpad Scroll Not Working? Here's How to Fix It</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/est-practices-for-designing-compelling-youtube-video-thumbnails-for-2024/"><u>[New] Best Practices for Designing Compelling YouTube Video Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hoosing-a-champion-dslr-or-mirrorless-camera-for-2024/"><u>[New] Choosing a Champion DSLR or Mirrorless Camera for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-fastforge-slowscene-videograph/"><u>[New] In 2024, FastForge SlowScene Videograph</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mooth-and-swift-designing-your-best-thumbnails-for-2024/"><u>[New] Smooth & Swift Designing Your Best Thumbnails for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-navigating-through-luts-for-improved-photography-techniques/"><u>[Updated] 2024 Approved Navigating Through LUTs for Improved Photography Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-shorter-path-cutting-video-duration-on-youtube/"><u>[Updated] 2024 Approved The Shorter Path Cutting Video Duration on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-streaming-success-choose-the-right-stabilizer-brand/"><u>[Updated] In 2024, Streaming Success Choose the Right Stabilizer Brand</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-easy-ways-to-add-music-to-imovie-from-youtube/"><u>2024 Approved Easy Ways to Add Music to iMovie From YouTube</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-speed-in-snapshots-auditory-recorded/"><u>2024 Approved Speed in Snapshots Auditory Recorded</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-the-magic-boundary-fading-into-myth/"><u>AI: The Magic Boundary Fading Into Myth</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-windows-pink-screen-errors/"><u>Eliminating Windows Pink Screen Errors</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722976806013-fast-and-easy-ft232r-usb-to-serial-converter-drivers-get-them-now/"><u>Fast & Easy FT232R USB to Serial Converter Drivers - Get Them Now!</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-iphone-15-plus-passcode-easily-video-inside-by-drfone-ios/"><u>How to Bypass iPhone 15 Plus Passcode Easily Video Inside</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-fix-auto-lock-greyed-out-on-iphone-6-plus-by-drfone-ios/"><u>How To Fix Auto Lock Greyed Out on iPhone 6 Plus</u></a></li>
+<li><a href="https://extra-information.techidaily.com/htc-vive-review-the-most-immersive-vr-headset/"><u>HTC Vive Review – The Most Immersive VR Headset</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-navigating-through-the-top-10-historical-content-hubs/"><u>In 2024, Navigating Through the Top 10 Historical Content Hubs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-youtubes-best-love-stories-perfectly-captured-weddings/"><u>In 2024, YouTube's Best Love Stories Perfectly Captured Weddings</u></a></li>
 </ul></div>
 

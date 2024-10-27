@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Engaging YouTube Thumbnails  A Step-by-Step Guide for 2024\""
-date: 2024-10-15T02:06:33.934Z
-updated: 2024-10-21T03:34:38.959Z
+date: 2024-10-23T21:17:21.595Z
+updated: 2024-10-27T03:18:28.675Z
 tags:
   - ai video
   - ai youtube
@@ -48,10 +48,10 @@ Here are 5 easy tips for creating thumbnails that get views.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
@@ -63,10 +63,23 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943750/22993" target="_top" id="1943750">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943750" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043638/7443" target="_top" id="2043638">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043638" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943750/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043638/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -80,13 +93,6 @@ Also, if somebody recognizes you in your thumbnail from a previous video of your
 Anybody can take a screenshot of themselves in their video and use it as a thumbnail. To make your thumbnails look polished, consider using small images (like emojis or hearts) to stand out. This will add color and personality to your thumbnail.
 
 Make sure the images you choose are relevant to the topic of your video.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 4\. Make Your Text Huge
 
@@ -107,10 +113,10 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -134,19 +140,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/omparing-free-and-premium-youtube-experiences-whats-best/"><u>[New] Comparing Free and Premium YouTube Experiences What's Best?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ssential-youtube-equipment-for-starting-your-channel-what-do-you-really-need-in-2024/"><u>[New] Essential YouTube Equipment For Starting Your Channel - What Do You Really Need, In 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-expansive-movement-assessment-2023/"><u>[New] Expansive Movement Assessment 2023</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ltimate-gear-guide-for-streaming-sensations-for-2024/"><u>[New] Ultimate Gear Guide for Streaming Sensations for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-tasteful-tactics-elevating-culinary-channel-monikers/"><u>[Updated] In 2024, Tasteful Tactics Elevating Culinary Channel Monikers</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-free-frameworks-amplify-your-youtube-vision/"><u>2024 Approved Free Frameworks Amplify Your YouTube Vision</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-unleash-potential-best-gaming-content-to-elevate-your-channel/"><u>2024 Approved Unleash Potential Best Gaming Content to Elevate Your Channel</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/tlessly-embedding-visual-media-in-free-content-creation-for-2024/"><u>Effortlessly Embedding Visual Media in Free Content Creation for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/home-button-not-working-on-motorola-razr-40-ultra-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Motorola Razr 40 Ultra? Here Are Real Fixes | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-locked-vivo-y78-5g-phone-by-drfone-android/"><u>How to Reset a Locked Vivo Y78 5G Phone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-demystifying-youtube-shorts-for-total-beginners/"><u>In 2024, Demystifying YouTube Shorts for Total Beginners</u></a></li>
-<li><a href="https://review-topics.techidaily.com/oppo-data-recovery-recover-lost-data-from-oppo-by-fonelab-android-recover-data/"><u>Oppo Data Recovery – recover lost data from Oppo</u></a></li>
-<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-x50iplus-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on X50i+</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/various-methods-to-transfer-pictures-from-apple-iphone-15-to-pc-drfone-by-drfone-transfer-from-ios/"><u>Various Methods to Transfer Pictures from Apple iPhone 15 to PC | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-top-budget-friendly-android-video-callers/"><u>[New] 2024 Approved Top Budget-Friendly Android Video Callers</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-android-screen-capture-made-easy-free-for-2024/"><u>[New] Android Screen Capture Made Easy, Free for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-flash-video-insights-guide/"><u>[New] In 2024, Flash Video Insights Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-crafting-the-perfect-end-screen-youtube-template-guidebook/"><u>[Updated] 2024 Approved Crafting the Perfect End Screen - YouTube Template Guidebook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-maximizing-impact-with-every-second-in-a-youtube-short/"><u>[Updated] Maximizing Impact with Every Second in a YouTube Short</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-smart-strategies-for-entrepreneurial-video-marketing/"><u>2024 Approved SMART Strategies for Entrepreneurial Video Marketing</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-honor-100-pro-by-drfone-android/"><u>Complete Review & Guide to Techeligible FRP Bypass and More For Honor 100 Pro</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-analysis-of-the-stylish-dell-alienware-aurora-r9-for-gamers/"><u>Comprehensive Analysis of the Stylish Dell Alienware Aurora R9 for Gamers</u></a></li>
+<li><a href="https://fox-that.techidaily.com/eight-effective-ways-to-restore-touchscreen-functionality-on-your-tablet/"><u>Eight Effective Ways to Restore Touchscreen Functionality on Your Tablet</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/integrated-learning-best-school-practices-using-ai-powered-chatgpt/"><u>Integrated Learning: Best School Practices Using AI-Powered ChatGPT</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-asus-rog-phone-7-ultimate-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/top-10-screen-recording-devices-for-enterprise-use/"><u>Top 10 Screen Recording Devices for Enterprise Use</u></a></li>
 </ul></div>
 

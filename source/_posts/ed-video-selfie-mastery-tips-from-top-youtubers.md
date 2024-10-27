@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Video Selfie Mastery  Tips From Top YouTubers\""
-date: 2024-09-12T03:09:27.579Z
-updated: 2024-09-16T17:55:16.921Z
+date: 2024-10-22T07:44:44.617Z
+updated: 2024-10-26T23:09:17.555Z
 tags:
   - ai video
   - ai youtube
@@ -58,13 +58,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -80,10 +73,10 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -93,6 +86,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -110,11 +110,25 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -137,5 +151,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-guide-to-equipment-selection-for-youtube-creators/"><u>[New] In 2024, Guide to Equipment Selection for YouTube Creators</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-quicktime-stall-capture-help/"><u>[New] In 2024, QuickTime Stall Capture Help</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-instagram-streamlining-the-process-of-image-addition/"><u>[New] Instagram Streamlining the Process of Image Addition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/obile-apps-for-top-notch-introduction-videos-on-iosandroid-for-2024/"><u>[New] Mobile Apps for Top-Notch Introduction Videos on iOS/Android for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/couring-for-meaningful-youtube-discussions-for-2024/"><u>[New] Scouring for Meaningful YouTube Discussions for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unlocking-revenue-harnessing-video-ad-dollars-on-youtube/"><u>[Updated] 2024 Approved Unlocking Revenue Harnessing Video Ad Dollars on YouTube</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-how-to-seamlessly-incorporate-video-game-banners-for-2024/"><u>[Updated] How to Seamlessly Incorporate Video Game Banners for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-the-perfect-tweet-mastering-the-art-of-video-upload/"><u>[Updated] In 2024, The Perfect Tweet Mastering the Art of Video Upload</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-transforming-cityscapes-into-sustainable-havens-of-life/"><u>[Updated] Transforming Cityscapes Into Sustainable Havens of Life</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-worldwide-top-earners-in-the-streaming-sphere/"><u>2024 Approved Worldwide Top Earners in the Streaming Sphere</u></a></li>
+<li><a href="https://driver-download.techidaily.com/download-dell-latitude-e6420-drivers-instantly-step-by-step-guide/"><u>Download Dell Latitude E6420 Drivers Instantly - Step by Step Guide</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-9-best-free-android-monitoring-apps-to-monitor-phone-remotely-for-your-xiaomi-redmi-note-12r-drfone-by-drfone-virtual/"><u>In 2024, 9 Best Free Android Monitoring Apps to Monitor Phone Remotely For your Xiaomi Redmi Note 12R | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-fixed-youtubes-missing-minute-media/"><u>In 2024, Fixed YouTube's Missing Minute Media</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/reliable-pet-nutrition-with-the-smart-easy-to-use-petsafe-automatic-feeder/"><u>Reliable Pet Nutrition with the Smart, Easy-to-Use PetSafe Automatic Feeder</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/step-by-step-solutions-for-eliminating-persistent-images-on-your-screens/"><u>Step-by-Step Solutions for Eliminating Persistent Images on Your Screens</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/three-ways-to-sim-unlock-tecno-spark-10-4g-by-drfone-android/"><u>Three Ways to Sim Unlock Tecno Spark 10 4G</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/for-effortless-eradication-of-unwanted-youtube-discussions-for-2024/"><u>Tips for Effortless Eradication of Unwanted YouTube Discussions for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/trouble-with-iphone-13-mini-swipe-up-try-these-11-solutions-drfone-by-drfone-ios/"><u>Trouble with iPhone 13 mini Swipe-Up? Try These 11 Solutions | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/daily-diary-staying-fresh-and-avoiding-common-mistakes/"><u>Your Daily Diary Staying Fresh & Avoiding Common Mistakes</u></a></li>
+</ul></div>
 

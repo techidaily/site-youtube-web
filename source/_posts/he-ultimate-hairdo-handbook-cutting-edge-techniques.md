@@ -1,7 +1,7 @@
 ---
 title: "\"[New] The Ultimate Hairdo Handbook  Cutting-Edge Techniques\""
-date: 2024-10-18T10:12:01.052Z
-updated: 2024-10-20T18:43:29.699Z
+date: 2024-10-22T19:07:42.224Z
+updated: 2024-10-27T04:33:24.169Z
 tags:
   - ai video
   - ai youtube
@@ -121,13 +121,6 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -165,6 +158,13 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
@@ -172,20 +172,19 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Lighting for Beauty**
 
@@ -223,13 +222,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -249,10 +241,10 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
@@ -282,6 +274,13 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -293,10 +292,10 @@ Before you start recording your makeup tutorial there are a few things you shoul
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – Recording**
@@ -307,6 +306,13 @@ Here are some things to keep in mind while you record your makeup tutorial:
 If you’re using autofocus, you can hold products up to the screen and wait for it to kick in. If you’re not using autofocus, just hold them up next to you for a moment. You can also shoot separate closeups of each product and cut them into your main tutorial video.
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – After Shooting**
 
@@ -345,21 +351,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-artisanaiphotostudio-seamless-image-magic-for-2024/"><u>[New] ArtisanAiPhotoStudio Seamless Image Magic for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ssessing-your-video-streaming-needs-to-subscribe-or-not-to-subscribe-in-2024/"><u>[New] Assessing Your Video Streaming Needs To Subscribe or Not to Subscribe, In 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-mastery-in-media-manipulation-ttml-and-xml-for-superior-srt-outputs/"><u>[New] Mastery in Media Manipulation TTML & XML for Superior SRT Outputs</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-100plus-gaming-channel-names-for-every-gamer-filmora-for-2024/"><u>[Updated] 100+ Gaming Channel Names for Every Gamer - Filmora for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-elite-women-gaming-leaders-top-10-on-yt/"><u>[Updated] Elite Women Gaming Leaders Top 10 On YT</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-essential-techniques-for-insta-photo-cover-highlights-for-2024/"><u>[Updated] Essential Techniques for Insta Photo Cover Highlights for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-discovering-the-most-trusted-mac-snipers/"><u>2024 Approved Discovering the Most Trusted Mac Snipers</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-harmonizing-chapters-the-secrets-to-seamless-inshot-edits/"><u>2024 Approved Harmonizing Chapters The Secrets to Seamless Inshot Edits</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-invigorating-channel-content-best-video-concepts-to-inspire-viewers/"><u>2024 Approved Invigorating Channel Content Best Video Concepts to Inspire Viewers</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/hone-your-talks-expert-insights-into-google-meet-chats/"><u>Hone Your Talks Expert Insights Into Google Meet Chats</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-a-guide-to-free-you-from-youtubes-extra-bar-width/"><u>In 2024, A Guide to Free You From YouTube's Extra Bar Width</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-elevating-your-look-expert-tutorials-for-everyone/"><u>In 2024, Elevating Your Look Expert Tutorials for Everyone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-streamline-access-6-leading-free-and-on-demand-youtube-short-downloader-tools/"><u>In 2024, Streamline Access 6 Leading Free & On-Demand YouTube Short Downloader Tools</u></a></li>
-<li><a href="https://win-dash.techidaily.com/keep-your-scansnap-s1300i-running-smoothly-fresh-driver-software-awaits-you-here/"><u>Keep Your ScanSnap S1300i Running Smoothly: Fresh Driver Software Awaits You Here</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/secrets-to-buying-and-downloading-ebooks-on-your-ios-device-with-books-app/"><u>Secrets to Buying and Downloading eBooks on Your iOS Device with Books App</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ring-thumbnails-for-increased-video-engagement-on-youtube-for-2024/"><u>Tailoring Thumbnails for Increased Video Engagement on YouTube for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-superior-suggestions-prime-platforms-for-grabbing-snapalert-rhythms/"><u>[Updated] 2024 Approved Superior Suggestions Prime Platforms for Grabbing SnapAlert Rhythms</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-beware-the-risk-in-fake-followers-on-youtube-for-2024/"><u>[Updated] Beware The Risk in Fake Followers on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-access-unlimited-mcb-theme-images/"><u>[Updated] In 2024, Access Unlimited MCB Theme Images</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-does-youtube-offer-regular-viewers-money/"><u>[Updated] In 2024, Does YouTube Offer Regular Viewers Money?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-disconnected-sounds-to-cohesive-scenes-with-audacity/"><u>2024 Approved From Disconnected Sounds to Cohesive Scenes with Audacity</u></a></li>
+<li><a href="https://howto.techidaily.com/9-quick-fixes-to-unfortunately-touchwiz-has-stopped-of-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Quick Fixes to Unfortunately TouchWiz has stopped Of Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/easy-tutorial-on-how-to-refresh-samsung-phone-usb-drivers/"><u>Easy Tutorial on How to Refresh Samsung Phone USB Drivers</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/how-to-thoroughly-wipe-iphone-data-securely-via-stellar-for-windows-and-mac-users/"><u>How to Thoroughly Wipe iPhone Data Securely via Stellar - For Windows & Mac Users</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Vivo X100 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ling-aspect-ratios-your-pathway-to-youtube-excellence/"><u>Unveiling Aspect Ratios Your Pathway to YouTube Excellence</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-remove-faces-from-photos-and-videos-the-best-10-free-apps-for-anonymization-for-2024/"><u>Updated Remove Faces From Photos and Videos The Best 10 Free Apps for Anonymization for 2024</u></a></li>
 </ul></div>
 

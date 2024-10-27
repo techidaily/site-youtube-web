@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Activating or Deactivating User Feedback on Videos"
-date: 2024-10-16T22:16:41.841Z
-updated: 2024-10-21T02:37:24.510Z
+date: 2024-10-19T19:22:12.235Z
+updated: 2024-10-27T01:03:37.160Z
 tags:
   - ai video
   - ai youtube
@@ -116,19 +116,19 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
@@ -148,10 +148,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -169,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -196,22 +196,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/iscover-top-6-short-video-download-sites-free/"><u>[New] Discover Top 6 Short Video Download Sites (FREE)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ow-to-find-your-comments-on-youtube-for-2024/"><u>[New] How to Find Your Comments on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-how-to-blur-background-of-your-youtube-video/"><u>[New] In 2024, How to Blur Background of Your YouTube Video</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-limitless-design-gratuitous-premiere-pro-templates/"><u>[New] In 2024, Limitless Design Gratuitous Premiere Pro Templates</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/roven-strategies-for-successful-youtube-shorts/"><u>[New] Proven Strategies for Successful YouTube Shorts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-ultimate-guide-to-editing-videos-directly-on-youtube-with-sony-vegas-for-2024/"><u>[New] The Ultimate Guide to Editing Videos Directly on YouTube with Sony Vegas for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ime-traveling-through-history-students-top-youtubes-to-watch-for-2024/"><u>[New] Time Traveling Through History Students' Top YouTubes To Watch for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-mastering-youtubes-vista-an-in-depth-tutorial-on-video-submissions-for-2024/"><u>[Updated] Mastering YouTube's Vista An In-Depth Tutorial on Video Submissions for 2024</u></a></li>
-<li><a href="https://win-guides.techidaily.com/1728498322423-windows-11/"><u>回避する Windows 11 バックアップエラー:耐久性と信頼性向上のヒント</u></a></li>
-<li><a href="https://app-tips.techidaily.com/discover-the-ultimate-10-alternatives-to-app-lock-on-android-devices/"><u>Discover the Ultimate 10 Alternatives to App Lock on Android Devices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ver-websites-your-gateway-to-youtube-branded-content/"><u>Discover Websites Your Gateway to YouTube Branded Content</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/discovering-novel-audio-solutions-with-lesser-known-brand-aria/"><u>Discovering Novel Audio Solutions with Lesser-Known Brand Aria</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-meizu-21-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Meizu 21 Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://fox-info.techidaily.com/in-2024-diy-360-videos-using-your-smartphone/"><u>In 2024, DIY 360 Videos Using Your Smartphone</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-edit-video-metadata-like-a-pro-top-8-mac-software/"><u>New In 2024, Edit Video Metadata Like a Pro Top 8 Mac Software</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/time-bending-techniques-in-final-cut-pro-x/"><u>Time-Bending Techniques in Final Cut Pro X</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/updated-in-2024-confused-about-which-gopro-should-you-use-this-article-introduces-and-provides-a-detailed-overview-of-the-best-gopro-for-youtubers-you-can-f/"><u>Updated In 2024, Confused About Which GoPro Should You Use? This Article Introduces and Provides a Detailed Overview of the Best GoPro for YouTubers You Can Find in the Market for Vlogging</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-optimize-content-delivery-on-instagram-with-these-top-8-tools/"><u>[New] 2024 Approved Optimize Content Delivery on Instagram with These Top 8 Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hannel-your-creativity-convert-youtube-clips-into-dynamic-gifs-for-2024/"><u>[New] Channel Your Creativity Convert YouTube Clips Into Dynamic Gifs for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-accelerate-your-arts-journey-with-these-7-nft-converters/"><u>[New] In 2024, Accelerate Your Art's Journey with These 7 NFT Converters</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/trategic-setup-youtube-gaming-banners-made-easy/"><u>[New] Strategic Setup YouTube Gaming Banners Made Easy</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/t-thumbnail-mastery-guide-to-your-videos-best-images-for-2024/"><u>[New] YT Thumbnail Mastery Guide to Your Video's Best Images for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-exploring-the-disparities-between-youtube-and-dailymention/"><u>[Updated] Exploring the Disparities Between YouTube and DailyMention</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-expert-strategies-for-decoding-instagram-metrics-and-trends/"><u>[Updated] In 2024, Expert Strategies for Decoding Instagram Metrics and Trends</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-monetizing-success-a-guide-to-purchasing-youtube-content/"><u>[Updated] In 2024, Monetizing Success A Guide to Purchasing YouTube Content</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/2024top11/"><u>2024年に抜き出た無料ローコスト動画編集ツールTOP11</u></a></li>
+<li><a href="https://win11.techidaily.com/eradicating-page-rendering-problems-in-windows-store/"><u>Eradicating Page Rendering Problems in Windows Store</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-innovating-human-interface-a-guide-to-hand-perception/"><u>In 2024, Innovating Human Interface A Guide to Hand Perception</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-realme-12plus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on Realme 12+ 5G? | Dr.fone</u></a></li>
 </ul></div>
 

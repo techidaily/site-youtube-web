@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Master Video Creation  Understanding the Role of Camera Lenses in Vlogging for 2024\""
-date: 2024-09-15T16:59:30.927Z
-updated: 2024-09-17T02:57:15.611Z
+date: 2024-10-22T04:37:24.927Z
+updated: 2024-10-26T18:05:27.636Z
 tags:
   - ai video
   - ai youtube
@@ -89,6 +89,13 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139118/17108" target="_top" id="2139118">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139118" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139118/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 ### Focal Length Equivalency Table
@@ -107,39 +114,38 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123466/16836" target="_top" id="2123466">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123466" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123466/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
 
 But do you even need a fast lens?
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
 
@@ -154,6 +160,13 @@ But do you even need a fast lens?
 * More expensive
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Optical Image Stabilization
 
@@ -188,5 +201,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-listenguide-review/"><u>[New] 2024 Approved ListenGuide Review</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-quick-start-saving-videos-of-your-switch-experiences/"><u>[New] 2024 Approved Quick Start Saving Videos of Your Switch Experiences</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-4k-visual-excellence-selecting-between-screen-types-for-2024/"><u>[New] 4K Visual Excellence Selecting Between Screen Types for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/roadcast-brilliance-with-cost-effective-templates/"><u>[New] Broadcast Brilliance with Cost-Effective Templates</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-beauty-vlogs-from-basics-to-brilliance-launching-a-youtube-channel/"><u>[New] In 2024, Beauty Vlogs From Basics to Brilliance Launching a YouTube Channel</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ecure-song-transfers-to-youtube-channel/"><u>[New] Secure Song Transfers to Youtube Channel</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-free-software-for-turning-videos-into-files-for-2024/"><u>[New] Top Free Software for Turning Videos Into Files for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-wave-goodbye-to-costs-with-our-50-free-banners-offer/"><u>[Updated] 2024 Approved Wave Goodbye to Costs with Our 50 Free Banners Offer</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-enjoy-youtube-on-iphoneipad-with-the-leading-ios-fb-video-downloader/"><u>[Updated] Enjoy YouTube on iPhone/iPad with the Leading iOS FB Video Downloader</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-superior-microphones-for-livestreaming/"><u>[Updated] Superior Microphones for Livestreaming</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unleash-creativity-top-free-video-opener-tools-for-2024/"><u>[Updated] Unleash Creativity Top Free Video Opener Tools for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/2024-approved-reimagining-user-engagement-top-10-video-editors-outside-vimeo/"><u>2024 Approved Reimagining User Engagement Top 10 Video Editors Outside Vimeo</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-rookie-riches-economical-channels-for-monetization/"><u>2024 Approved Rookie Riches Economical Channels for Monetization</u></a></li>
+<li><a href="https://games-able.techidaily.com/facing-the-fire-my-gpus-cry-for-help/"><u>Facing the Fire: My GPU's Cry for Help</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/free-and-fabulous-10-public-domain-image-websites-for-2024/"><u>Free and Fabulous 10 Public Domain Image Websites for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-from-apple-iphone-8-by-drfone-ios/"><u>How to Fix Locked Apple ID from Apple iPhone 8</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-creating-a-lasting-impression-the-ultimate-youtube-live-thumbnail-guide/"><u>In 2024, Creating a Lasting Impression The Ultimate YouTube Live Thumbnail Guide</u></a></li>
+</ul></div>
 

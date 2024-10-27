@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] How to Transform Your Youtube Vids  A Guide to Softened Screens\""
-date: 2024-10-19T12:31:36.891Z
-updated: 2024-10-21T03:49:37.849Z
+date: 2024-10-22T03:29:49.352Z
+updated: 2024-10-27T03:21:48.431Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,13 @@ To get a shallow depth of field, make sure your aperture is wide. Do this by set
 
 Creating a bokeh effect is mostly the same, except that it works best when your subject/depth of field is very close to the camera, and you have a light source off in the background. Zoom Lenses do not usually have wide enough apertures to create bokeh backgrounds.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Blur Video Background in Post-Production with [Wondershare Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 If you need to blur the video background after shooting, you can use some video editing software to add the bokeh effect or the tilt-off effect in post-production. Here, I will show you how to do that in Filmora.
@@ -72,10 +79,10 @@ If you need to blur the video background after shooting, you can use some video 
 Filmora is one of the most widely used video editing software among YouTubers. Its user-friendly interface and tutorial guide enables green-hands to start video editing quickly. Besides, you can find many free filters, effects, and elements pre-programmed, so you can use them directly without looking for presets and templates somewhere else.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Add Bokeh Filter to Video in Filmora
@@ -89,10 +96,10 @@ Note: you should select **Included** to see all bokeh effects pre-programmed in 
 Double click the bokeh effect to preview the result, and if you find the bokeh effect fits the video, just drop it to the track above the video. And the bokeh filter or overlay will be applied to the video automatically.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Use Tilt-Shift Circle/Linear Effect to Blur Video Background
@@ -107,13 +114,6 @@ Here, I will select the **Tilt-Shift Circle** effect and drop it to the track ab
 
 ![ Filmora Tilt-Shift Circle effect](https://images.wondershare.com/filmora/article-images/apply-tilt-shift-circle-effect.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 You see, the video background is blurred, and the people are highlighted. Now it's your turn to download the Filmora video editor and try it yourself.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -121,16 +121,10 @@ You see, the video background is blurred, and the people are highlighted. Now it
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -154,14 +148,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-comparing-streams-vimeo-versus-youtube/"><u>[New] In 2024, Comparing Streams Vimeo Versus YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/everaging-seo-for-youtube-popularity-a-budget-guide/"><u>[New] Leveraging SEO for YouTube Popularity A Budget Guide</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-private-chronicles-in-snapchat-an-essential-guide/"><u>[New] Private Chronicles in Snapchat An Essential Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-sound-engineering-tips-to-elevate-your-video-content-for-2024/"><u>[Updated] Sound Engineering Tips to Elevate Your Video Content for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-curls-and-contours-creating-a-personalized-beauty-channel/"><u>Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ultimate-collection-best-zero-price-photo-editing-software/"><u>In 2024, The Ultimate Collection Best Zero-Price Photo Editing Software</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/las-6-metodos-mas-efectivos-para-conversion-de-video-a-formato-mp4-en-una-mac/"><u>Las 6 Métodos Más Efectivos Para Conversión De Video a Formato MP4 en Una Mac</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-inside-scoop-on-twitters-latest-functionality-updates-and-linus-tech-tips-controversy/"><u>The Inside Scoop on Twitter's Latest Functionality Updates & Linus Tech Tips Controversy</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/the-ultimate-guide-to-winning-with-facebook-videos-for-2024/"><u>The Ultimate Guide to Winning with Facebook Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aptivating-audiences-on-a-shoestring-budget-youtube-shorts-success-tips/"><u>[New] Captivating Audiences on a Shoestring Budget – YouTube Shorts Success Tips</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-in-2024-the-art-of-virtual-visualization-in-digital-streaming-platforms/"><u>[New] In 2024, The Art of Virtual Visualization in Digital Streaming Platforms</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-12-step-youtube-seo-guide-for-beginners-who-want-more-views-for-2024/"><u>[New] The 12-Step YouTube SEO Guide for Beginners Who Want More Views for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-2024-approved-high-definition-webcams-top-5-combined-visual-and-audio/"><u>[Updated] 2024 Approved High-Definition Webcams Top 5 - Combined Visual & Audio</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-precision-play-mastering-steams-switch-controllers/"><u>[Updated] In 2024, Precision Play Mastering Steam's Switch Controllers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ultimate-guide-to-validating-your-yt-channels-earnings/"><u>[Updated] In 2024, The Ultimate Guide to Validating Your YT Channel's Earnings</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-insights-into-premier-video-communication-tools-on-devices-for-2024/"><u>[Updated] Insights Into Premier Video Communication Tools on Devices for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-superior-3d-tools-for-animated-designers-for-2024/"><u>[Updated] Superior 3D Tools for Animated Designers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-fresh-vlog-discussion-ideas-each-day/"><u>2024 Approved Fresh Vlog Discussion Ideas Each Day</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-ultimate-guide-to-the-top-5-youtube-link-reducers/"><u>2024 Approved The Ultimate Guide to the Top 5 YouTube Link Reducers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/visual-virtuoso-capturing-emotion-in-harmony-for-2024/"><u>Audiovisual Virtuoso Capturing Emotion in Harmony for 2024</u></a></li>
+<li><a href="https://win-special.techidaily.com/congratulations-on-installing-mirilliss-innovative-action-tool/"><u>Congratulations on Installing MirilliS's Innovative Action Tool!</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-poco-c50-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Poco C50 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-comparison-game-youtube-against-dailymention/"><u>In 2024, The Comparison Game YouTube Against DailyMention</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tart-your-youtube-journey-with-the-best-tools-for-2024/"><u>Kickstart Your YouTube Journey with the Best Tools for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/tackle-interruptexception-in-win11-blue-screen/"><u>Tackle INTERRUPT_EXCEPTION in Win11 Blue Screen</u></a></li>
+<li><a href="https://extra-information.techidaily.com/transition-tactics-for-a-hassle-free-macos-11-big-sur-upgrade/"><u>Transition Tactics for a Hassle-Free macOS 11 Big Sur Upgrade</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/two-ways-to-track-my-boyfriends-oneplus-ace-2-pro-without-him-knowing-drfone-by-drfone-virtual-android/"><u>Two Ways to Track My Boyfriends OnePlus Ace 2 Pro without Him Knowing | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/naries-of-interactive-marvel-worlds-for-2024/"><u>Visionaries of Interactive Marvel Worlds for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Building Sustainable Cities  Innovation in Environmental Design\""
-date: 2024-10-18T08:49:56.768Z
-updated: 2024-10-21T05:35:03.592Z
+date: 2024-10-25T16:54:21.641Z
+updated: 2024-10-26T23:54:47.941Z
 tags:
   - ai video
   - ai youtube
@@ -73,15 +73,22 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
 
 ![Find My Channel ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Activate the "Customize the layout of your channel" option by entering the Setting button on the right corner of your Subscribe icon.
 
 ![Customize the layout of your channel](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Click on "About."
@@ -92,13 +99,6 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
 
 ![Edit YouTube Channel Description ](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** In the newer YouTube version, click the option "CUSTOMIZE CHANNEL" and then you can change your channel description by clicking the About Tab.
 
 * Write the description that you want to show up when people visit your YouTube channel. It is not enough that you write just any sentence. Make sure that it is sweet and simple. Be as concise and informative as possible. Use simple words, yet make sure that they are powerful and can stir the visitor to make a favorable action. Also, see to it that it makes use of the right keywords that are related to your channel.
@@ -106,37 +106,30 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
 
 ![Edit YouTube Channel Description - Preview](https://images.wondershare.com/filmora/article-images/edit-youtube-channel-desc-5.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  In sum, adding a YouTube channel description does not need to be a complicated process. Just follow the tips mentioned above and make sure to pay attention to crafting the right message. It must be keyword-optimized and must captivate attention of your visitors.
 
  **Check this video to know how to optimize YouTube SEO:**
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### Bonus: Tips for YouTube Video Description
 
  Here we have also found out some useful tips for YouTube video description:
 
 ![YouTube description ](https://images.wondershare.com/filmora/article-images/youtube-description.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2047346/19272" target="_top" id="2047346">
-  <img src="//a.impactradius-go.com/display-ad/19272-2047346" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047346/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 1. Take full advantage of the First Line
 
@@ -149,6 +142,13 @@ thumbnail: https://thmb.techidaily.com/0d3d204f3859dff7eef251abf3745730eecca4103
  It is highly recommended to add additional relevant content to the video description to help audience to get to know you better. You can add a brief summary of the video content or the transcript of the video here. Normally, you can add anything that is worth mentioning such as the equipment or software that you are using to make the video.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -171,20 +171,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-friendly.techidaily.com/new-in-2024-navigating-the-world-of-digital-filters-for-optimal-video-quality/"><u>[New] In 2024, Navigating the World of Digital Filters for Optimal Video Quality</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/astering-video-visibility-settings-on-youtube-for-2024/"><u>[New] Mastering Video Visibility Settings on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nveiling-the-hidden-pathways-to-earning-on-youtube-for-2024/"><u>[New] Unveiling the Hidden Pathways to Earning on YouTube for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-top-10-tips-for-excellent-xbox-game-playbacks/"><u>[Updated] 2024 Approved Top 10 Tips for Excellent Xbox Game Playbacks</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-dismantling-youtube-ranks-factors-and-their-effects/"><u>[Updated] Dismantling YouTube Ranks Factors and Their Effects</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/updated-efficient-time-markers-in-youtube-videos-desktopmobile-edition/"><u>[Updated] Efficient Time Markers in YouTube Videos (Desktop/Mobile Edition)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-pre-production-meets-post-production-premiere-and-youtube/"><u>[Updated] Pre-Production Meets Post-Production Premiere and YouTube</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/updated-speak-now-act-for-free-via-technology/"><u>[Updated] Speak Now, Act for Free via Technology</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-crafting-cool-youtube-previews-in-imovie-easily/"><u>2024 Approved Crafting Cool YouTube Previews in iMovie Easily</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-facebook-and-the-evolution-of-short-form-videos-a-2023-perspective/"><u>2024 Approved Facebook and the Evolution of Short-Form Videos A 2023 Perspective</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ate-youtube-with-these-strategic-freefire-video-hashtags/"><u>Dominate YouTube with These Strategic FreeFire Video Hashtags</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/easy-steps-to-recover-deleted-videos-from-htc-u23-pro-by-fonelab-android-recover-video/"><u>Easy steps to recover deleted videos from HTC U23 Pro</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-how-to-change-your-voice-in-free-fire-game-free-solution-included/"><u>In 2024, How to Change Your Voice in Free Fire Game? [Free Solution Included]</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/al-options-high-performance-laptops-for-videographers-for-2024/"><u>Optimal Options High-Performance Laptops for Videographers for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ferring-tv-episodes-downloading-youtube-content-ios-style-for-2024/"><u>Transferring TV Episodes Downloading YouTube Content iOS-Style for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mart-spending-strategies-on-youtube-vids/"><u>[New] Smart Spending Strategies on YouTube Vids</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-taking-control-your-comprehensive-yt-studio-manual/"><u>[Updated] 2024 Approved Taking Control Your Comprehensive YT Studio Manual</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-25-smart-and-proven-tactics-to-get-your-youtube-channel-noticed/"><u>[Updated] In 2024, 25 Smart & Proven Tactics to Get Your YouTube Channel Noticed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-essential-breakdown-for-wm6-setup/"><u>[Updated] In 2024, Essential Breakdown for WM6 Setup</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-smirk-spectacle-catching-the-funniest-twitter-talents/"><u>2024 Approved Smirk Spectacle Catching the Funniest Twitter Talents</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/call-of-duty-bokw-pc-audio-fixes-step-by-step-solutions-to-restore-sound/"><u>Call of Duty BOKW PC Audio Fixes: Step-by-Step Solutions to Restore Sound</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-earnings-for-content-producers-on-short-form-platform/"><u>Decoding Earnings for Content Producers on Short-Form Platform</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/fixing-corsair-hs35-microphone-issues-in-windows-a-step-by-step-guide/"><u>Fixing Corsair HS35 Microphone Issues in Windows: A Step-by-Step Guide</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/insta-photo-carousel-magic/"><u>Insta-Photo Carousel Magic</u></a></li>
 </ul></div>
 

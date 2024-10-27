@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Thrifty Approaches to YouTube Video Card Production"
-date: 2024-09-11T04:31:56.479Z
-updated: 2024-09-12T04:31:56.479Z
+date: 2024-10-21T05:13:32.871Z
+updated: 2024-10-27T08:35:03.364Z
 tags:
   - ai video
   - ai youtube
@@ -40,27 +40,10 @@ thumbnail: https://thmb.techidaily.com/d0ab1cb7b8b22999ef087a383ed3db769492e1f7d
 
 [How To Make an End Card](#how-to)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part1: Intros
 
@@ -90,26 +73,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -119,25 +82,12 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1880927/19272" target="_top" id="1880927">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880927" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880927/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 2: End Cards
 
@@ -174,19 +124,12 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Shanoon Cox
 
@@ -194,14 +137,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -210,12 +150,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-stopcapture-screen-freeze-assist/"><u>[New] 2024 Approved StopCapture Screen Freeze Assist</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rom-barely-seen-to-highly-engaged-the-journey-of-youtube-short-success/"><u>[New] From Barely Seen to Highly Engaged The Journey of YouTube Short Success</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/caling-up-with-sourav-joshi-youtube-earnings-strategy-for-2024/"><u>[New] Scaling Up with Sourav Joshi YouTube Earnings Strategy for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-keeping-score-with-your-xbox-one-screenshots/"><u>[Updated] 2024 Approved Keeping Score with Your Xbox One Screenshots</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-earn-while-playing-games-online/"><u>[Updated] In 2024, Earn While Playing Games Online</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-lighten-your-load-with-laughs-fb-detainment-chuckle-highlighters/"><u>2024 Approved Lighten Your Load with Laughs FB Detainment Chuckle Highlighters</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-youtube-thumbnail-mastery-size-and-ratio-tactics/"><u>2024 Approved Youtube Thumbnail Mastery Size & Ratio Tactics</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/boosting-views-through-imaginative-video-thumbnails-for-2024/"><u>Boosting Views Through Imaginative Video Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ce-visibility-top-9-thumbnail-design-tools-for-creators/"><u>Enhance Visibility Top 9 Thumbnail Design Tools for Creators</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-update-or-downgrade-iphone-6-plus-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade iPhone 6 Plus Without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-how-to-transfer-from-apple-iphone-12-mini-to-samsung-galaxy-s20-drfone-by-drfone-transfer-from-ios/"><u>In 2024, How to Transfer from Apple iPhone 12 mini to Samsung Galaxy S20? | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-the-art-of-virtual-environments-in-cinema/"><u>In 2024, The Art of Virtual Environments in Cinema</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iples-of-crafting-compelling-youtube-introduction-vids-for-2024/"><u>Principles of Crafting Compelling YouTube Introduction Vids for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aven-guide-top-3-non-youtube-video-portals/"><u>The Haven Guide Top 3 Non-Youtube Video Portals</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ree-software-for-turning-videos-into-files-for-2024/"><u>Top Free Software for Turning Videos Into Files for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/top-tier-80s-visual-tricks-for-elevated-editing-for-2024/"><u>Top-Tier 80S Visual Tricks for Elevated Editing for 2024</u></a></li>
+</ul></div>
 

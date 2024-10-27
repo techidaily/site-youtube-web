@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Advanced Filmmaking Techniques  Selecting Top-Notch Lenses\""
-date: 2024-10-14T17:21:09.863Z
-updated: 2024-10-20T22:40:24.713Z
+date: 2024-10-20T04:09:13.844Z
+updated: 2024-10-27T00:17:03.073Z
 tags:
   - ai video
   - ai youtube
@@ -40,10 +40,10 @@ We have explained the differences between Fixed lens and Zoom lens and advantage
 Before we get into the recommendations here is a little background information on lenses in general:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037359/7443" target="_top" id="2037359">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037359" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037359/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
@@ -65,10 +65,10 @@ F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more informa
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
@@ -133,10 +133,10 @@ Recording **moving objects** from a distance requires you to have a lens that al
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
-  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
@@ -152,10 +152,10 @@ If you are using a 4k camera to shoot your YouTube video, check out [best camera
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -179,18 +179,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-crafting-time-lapses-with-your-ipad-easefully/"><u>[New] 2024 Approved Crafting Time-Lapses with Your iPad Easefully</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-shine-brightly-youtubes-17-must-have-illumination/"><u>[New] 2024 Approved Shine Brightly! YouTube's #17 Must-Have Illumination</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-demystifying-video-profit-on-youtube/"><u>[New] In 2024, Demystifying Video Profit on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/rending-tactics-select-keywords-that-ignite-social-media-traffic/"><u>[New] Trending Tactics Select Keywords That Ignite Social Media Traffic</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ding-tools-for-crafting-superior-video-titles-and-tags-for-2024/"><u>5 Leading Tools for Crafting Superior Video Titles and Tags for 2024</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/6-methods-for-switching-from-apple-iphone-14-plus-to-samsung-drfone-by-drfone-transfer-from-ios/"><u>6 Methods for Switching from Apple iPhone 14 Plus to Samsung | Dr.fone</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/best-and-most-successful-oscar-winning-movies-ever-ranked/"><u>Best and Most Successful Oscar-Winning Movies Ever Ranked</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/boosting-creativity-and-content-quality-a-guide-on-leveraging-chatgpt/"><u>Boosting Creativity & Content Quality: A Guide on Leveraging ChatGPT</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/downloading-samfw-frp-tool-30-for-oppo-reno-9a-by-drfone-android/"><u>Downloading SamFw FRP Tool 3.0 for Oppo Reno 9A</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-smb-video-marketing-success-factors/"><u>In 2024, SMB Video Marketing Success Factors</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/linguistic-breakthroughs-with-mondly-identifying-top-10-key-advantages/"><u>Linguistic Breakthroughs with Mondly - Identifying Top 10 Key Advantages</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-the-on-screen-keyboard-in-windows-11-toggle-on-and-off-guide/"><u>Mastering the On-Screen Keyboard in Windows 11 - Toggle On & Off Guide</u></a></li>
-<li><a href="https://win-dash.techidaily.com/speed-boost-now-download-and-setup-guide-for-intels-latest-iris-plus-graphics-driver-640/"><u>Speed Boost Now: Download & Setup Guide for Intel's Latest Iris Plus Graphics Driver 640</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-use-of-analytics/"><u>[New] 2024 Approved Use of Analytics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-tasty-talent-a-filmmakers-recipe-for-success/"><u>[Updated] 2024 Approved Tasty Talent A Filmmaker's Recipe for Success</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-capture-gifs-like-pro-on-any-mac-for-2024/"><u>[Updated] Capture GIFs Like Pro on Any Mac for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-choosing-the-right-fps-30-or-60-which-is-better/"><u>[Updated] Choosing the Right FPS 30 or 60, Which Is Better?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-how-to-use-gopro-for-time-lapse-shooting/"><u>[Updated] How to Use GoPro for Time-Lapse Shooting</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-virtually-profitable-gaming-channels/"><u>[Updated] In 2024, Virtually Profitable Gaming Channels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-protect-your-data-while-turning-youtube-to-mp3-3-steps/"><u>[Updated] Protect Your Data While Turning YouTube to MP3 - 3 Steps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-update-your-shorts-are-visible-again/"><u>[Updated] YouTube Update - Your Shorts Are Visible Again</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/debrouille-toi-avec-les-fichiers-dysfonctionnants-dans-lhistorique-sous-windows-11-solutions-probantes-4-strategies/"><u>Débrouille-Toi Avec Les Fichiers Dysfonctionnants Dans L'historique Sous Windows 11 : Solutions Probantes [4 Stratégies]</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-realme-c67-4g-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Realme C67 4G | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-google-frp-lock-on-google-by-drfone-android-unlock-remove-google-frp/"><u>Remove Google FRP lock on Google</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/streamlined-simplicity-ayts-quick-ways-to-blur-background-for-2024/"><u>Streamlined Simplicity AYT's Quick Ways to Blur Background for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ower-of-branding-in-video-ranks-and-traffic/"><u>The Power of Branding in Video Ranks and Traffic</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-value-cameras-s-shooting/"><u>Top Value Cameras 'S Shooting</u></a></li>
 </ul></div>
 

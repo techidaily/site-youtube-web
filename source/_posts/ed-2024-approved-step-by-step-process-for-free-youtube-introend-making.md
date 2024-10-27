@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step Process for Free YouTube Intro/End Making\""
-date: 2024-09-11T04:28:54.699Z
-updated: 2024-09-12T04:28:54.699Z
+date: 2024-10-21T02:17:52.942Z
+updated: 2024-10-27T01:50:42.341Z
 tags:
   - ai video
   - ai youtube
@@ -40,27 +40,10 @@ thumbnail: https://thmb.techidaily.com/7ac27936311540a3f6119be289d1db9f62edf4aff
 
 [How To Make an End Card](#how-to)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Part1: Intros
 
@@ -90,20 +73,6 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -113,19 +82,12 @@ You can create a simple intro card in **Filmora**.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 2: End Cards
 
@@ -162,19 +124,12 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918714/19272" target="_top" id="1918714">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918714" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918714/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Shanoon Cox
 
@@ -182,14 +137,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -198,12 +150,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/levating-your-content-powerful-tags-to-watch-out-for/"><u>[New] Elevating Your Content Powerful Tags to Watch Out For</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ro-level-7-dslrs-that-transform-your-digital-storytelling-for-2024/"><u>[New] Pro-Level 7 DSLRs That Transform Your Digital Storytelling for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-decoding-the-advanced-features-of-nikon-d7500/"><u>[Updated] Decoding the Advanced Features of Nikon D7500</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-turn-your-tactical-talks-into-a-thriving-youtube-trade/"><u>[Updated] In 2024, Turn Your Tactical Talks Into a Thriving YouTube Trade</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-master-screen-capture-detailed-tutorial-walkthrough-for-2024/"><u>[Updated] Master Screen Capture Detailed Tutorial Walkthrough for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-to-dailymotion-transferring-videos-seamlessly/"><u>[Updated] YouTube to Dailymotion Transferring Videos Seamlessly</u></a></li>
+<li><a href="https://win11.techidaily.com/combat-strategy-for-fixing-update-errors-in-windows-0xc1900101/"><u>Combat Strategy for Fixing Update Errors in Windows (0xC1900101)</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/here-are-some-reliable-ways-to-get-pokemon-go-friend-codes-for-poco-f5-pro-5g-drfone-by-drfone-virtual-android/"><u>Here Are Some Reliable Ways to Get Pokemon Go Friend Codes For Poco F5 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-unlock-physical-and-spiritual-potential-the-best-yoga-vlogs-out-there/"><u>In 2024, Unlock Physical & Spiritual Potential The Best Yoga Vlogs Out There</u></a></li>
+<li><a href="https://change-location.techidaily.com/latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Vivo V30 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/start-off-right-top-gear-for-aspiring-gopro-users-for-2024/"><u>Start Off Right Top Gear for Aspiring GoPro Users for 2024</u></a></li>
+</ul></div>
 

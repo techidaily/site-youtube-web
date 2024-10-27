@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, A Novice's Pathway to Writing YouTube Video Plans"
-date: 2024-10-14T23:06:55.121Z
-updated: 2024-10-20T18:43:00.727Z
+date: 2024-10-23T06:49:42.868Z
+updated: 2024-10-26T22:41:52.498Z
 tags:
   - ai video
   - ai youtube
@@ -44,9 +44,23 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972684/19272" target="_top" id="1972684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
@@ -60,23 +74,9 @@ Now that you're ready to sit down and write, here's what you do:
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
-<!-- affiliate ads begin -->
-<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1584040/17916" target="_top" id="1584040">
-  <img src="//a.impactradius-go.com/display-ad/17916-1584040" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1584040/17916" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Just keep writing
 
@@ -105,10 +105,10 @@ While you are scripting and focusing on the information you want to deliver, it�
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## After Writing your YouTube Video Script
@@ -118,10 +118,10 @@ After writing the script, the next step is to invite a trusted friend or family 
 These are the tips to keep in mind when considering how to write a script for a YouTube video.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118312/7443" target="_top" id="2118312">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118312" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118312/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Add Subtitles to Your YouTube Video with Wondershare Filmora
@@ -153,21 +153,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-banish-soundless-tweets-live-the-sounds/"><u>[New] Banish Soundless Tweets Live the Sounds</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/new-beneath-the-wave-expert-strategies-for-filming-with-gopro-below-water/"><u>[New] Beneath the Wave Expert Strategies for Filming with GoPro Below Water</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-high-revenue-streaming-star-across-the-globe/"><u>[New] In 2024, High Revenue Streaming Star Across the Globe</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/implify-tv-broadcasts-introducing-youtube-content-loops/"><u>[New] Simplify TV Broadcasts Introducing YouTube Content Loops</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-direct-download-destiny-ultimate-guide-to-mp3-makers/"><u>[Updated] Direct Download Destiny Ultimate Guide to Mp3 Makers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-your-ultimate-youtube-video-gear-top-rated-cameras-and-lenses/"><u>[Updated] In 2024, Your Ultimate YouTube Video Gear Top-Rated Cameras and Lenses</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-from-obscurity-to-fame-elevate-your-tiktok-unboxing-videos/"><u>2024 Approved From Obscurity to Fame Elevate Your TikTok Unboxing Videos</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-rapid-rise-on-insta-like-mastery-plus-video-impact/"><u>2024 Approved Rapid Rise on Insta - Like Mastery + Video Impact</u></a></li>
-<li><a href="https://win-exclusive.techidaily.com/easy-guide-how-to-implement-personalized-signatures-in-word-documents-across-devices/"><u>Easy Guide: How to Implement Personalized Signatures in Word Documents Across Devices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/re-these-seven-sources-for-youtube-sound-effects-for-2024/"><u>Explore These Seven Sources for YouTube Sound Effects for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-techniques-to-transfer-data-from-samsung-galaxy-m14-4g-to-iphone-15141312-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Techniques to Transfer Data from Samsung Galaxy M14 4G to iPhone 15/14/13/12 | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-change-samsung-galaxy-xcover-7-lock-screen-password-by-drfone-android/"><u>In 2024, How To Change Samsung Galaxy XCover 7 Lock Screen Password?</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-huawei-nova-y91-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Huawei Nova Y91? | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/in-depth-hardware-examinations-from-toms-technological-perspectives/"><u>In-Depth Hardware Examinations From Tom's Technological Perspectives</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ating-your-image-tips-for-crafting-irresistible-youtube-live-graphics-for-2024/"><u>Innovating Your Image Tips for Crafting Irresistible YouTube Live Graphics for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/watering-masters-culinary-youtube-experts/"><u>Mouthwatering Masters Culinary YouTube Experts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-3-beyond-youtube-innovative-videostreaming-communities/"><u>[Updated] 2024 Approved Top 3 Beyond Youtube Innovative Videostreaming Communities</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-elevate-your-content-top-10-must-use-hashtags-on-ig-for-2024/"><u>[Updated] Elevate Your Content Top 10 Must-Use Hashtags on IG for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/10-best-fake-gps-location-spoofers-for-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>10 Best Fake GPS Location Spoofers for Vivo X100 Pro | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1725286951922-windows-113264/"><u>如何從容易地免費取得Windows 11完整版本：32或64位元使用者的下載教學</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/airpod-woes-learn-how-to-effectively-reset-your-earbuds-and-restore-connection/"><u>AirPod Woes? Learn How to Effectively Reset Your Earbuds and Restore Connection</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/1722955975643-amd-radeon-rx-480-how-to-seamlessly-download-and-update-your-graphics-card-drivers/"><u>AMD Radeon RX 480 - How to Seamlessly Download & Update Your Graphics Card Drivers!</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/convert-subtitles-effortlessly-top-8-best-converters-from-sub-to-srt-format/"><u>Convert Subtitles Effortlessly - Top 8 Best Converters From SUB to SRT Format</u></a></li>
+<li><a href="https://change-location.techidaily.com/guide-how-to-unbrick-a-bricked-poco-m6-pro-5g-phone-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Guide How To Unbrick a Bricked Poco M6 Pro 5G Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ration-on-screen-top-youtube-themes-for-channels-prosperity/"><u>Inspiration on Screen Top YouTube Themes for Channels' Prosperity</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ating-through-best-youtube-extractors/"><u>Navigating Through Best YouTube Extractors</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-selection-for-captivating-youtube-content-starts/"><u>The Ultimate Selection for Captivating YouTube Content Starts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/top-iphone-models-optimized-for-gamers-a-comprehensive-review/"><u>Top iPhone Models Optimized for Gamers: A Comprehensive Review</u></a></li>
 </ul></div>
 

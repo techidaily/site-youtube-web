@@ -1,7 +1,7 @@
 ---
 title: "[New] Expert Advice on Selecting The Best Lenses For Filmmaking"
-date: 2024-10-19T04:21:41.137Z
-updated: 2024-10-21T12:32:12.651Z
+date: 2024-10-21T21:34:19.915Z
+updated: 2024-10-27T01:50:21.627Z
 tags:
   - ai video
   - ai youtube
@@ -62,16 +62,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
 <!-- affiliate ads begin -->
-<span id="1975562">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
@@ -96,6 +90,13 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915805/19272" target="_top" id="1915805">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915805" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915805/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -103,13 +104,6 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -127,15 +121,22 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
@@ -175,13 +176,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -203,20 +197,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-filmoras-top-10-for-seamless-image-transitions-for-2024/"><u>[New] Filmora's Top 10 for Seamless Image Transitions for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ear-up-essential-asmr-microphones-to-consider-for-2024/"><u>[New] Gear Up Essential ASMR Microphones to Consider for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-from-concepts-to-recordings-a-step-by-step-guide-for-podcast-writers/"><u>[New] In 2024, From Concepts to Recordings A Step-by-Step Guide for Podcast Writers</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-in-2024-pinnacle-of-image-capture-highlighting-the-best-10-4k-phone-cameras/"><u>[New] In 2024, Pinnacle of Image Capture Highlighting the Best 10 4K Phone Cameras</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/tep-into-the-future-youtubes-best-vr-experiences/"><u>[New] Step Into the Future YouTube's Best VR Experiences</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/trategies-to-dodge-content-advisory-strikes/"><u>[New] Strategies to Dodge Content Advisory Strikes</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-underappreciated-film-phenoms-of-this-year/"><u>[New] The Underappreciated Film Phenoms of This Year</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-a-compreayers-primer-to-navigating-the-online-copyright-labyrinth/"><u>[Updated] 2024 Approved A Compreayer's Primer to Navigating the Online Copyright Labyrinth</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/a-beginner-friendly-introduction-to-io-screen-recorder-for-2024/"><u>A Beginner-Friendly Introduction to IO Screen Recorder for 2024</u></a></li>
-<li><a href="https://win-tricks.techidaily.com/comprehensive-guide-to-countering-jigsaw-ransomware-threats-securetech-solutions/"><u>Comprehensive Guide to Countering Jigsaw Ransomware Threats - SecureTech Solutions</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/exploring-luxury-in-everyday-use-the-michael-kors-access-gen-5e-mkgo-wallet-revealed/"><u>Exploring Luxury in Everyday Use: The Michael Kors Access Gen 5E (MKGO) Wallet Revealed</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-xiaomi-redmi-note-13-pro-5g-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to Xiaomi Redmi Note 13 Pro 5G Get Deleted photos Back with Ease and Safety?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-download-premium-video-covers-free-fast-and-easy/"><u>In 2024, Download Premium Video Covers - Free, Fast & Easy</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/insightful-reviews-from-vllo-users/"><u>Insightful Reviews From VLLO Users</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/ranked-9-iphone-applications-to-add-watermarks-on-photos/"><u>Ranked 9 iPhone Applications to Add Watermarks on Photos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-mobile-asmr-tools-essential-downloads-for-2024/"><u>[New] Top Mobile ASMR Tools Essential Downloads for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-grasping-youtube-seo-a-guide-to-keyword-discovery/"><u>[Updated] 2024 Approved Grasping YouTube SEO A Guide to Keyword Discovery</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-no-money-just-screen-time-how-to-record-youtube/"><u>[Updated] 2024 Approved No Money, Just Screen Time How To Record YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-to-manage-youtube-video-comments-for-enhanced-privacy/"><u>[Updated] How to Manage YouTube Video Comments for Enhanced Privacy</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-internal-device-recorder-to-capture-screens-on-mate-1020-and-p-series-phones-p2010/"><u>[Updated] In 2024, Internal Device Recorder to Capture Screens on Mate 10/20 & P Series Phones (P20/10)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-unleash-your-seo-potential-explore-the-most-effective-7-free-video-tags-extractors/"><u>2024 Approved Unleash Your SEO Potential Explore the Most Effective 7 Free Video Tags Extractors</u></a></li>
+<li><a href="https://blog-min.techidaily.com/54sh5oub6lk756plusa6yye5bel5yw377ya56e76act5b2x54mh57sa6yye5zmo57ea5lik5oplusq5yplusw/"><u>無招費節錄工具：移頓影片紀錄器線上提取</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-upgrade-or-downgrade-iphone-se-2020-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Upgrade or Downgrade iPhone SE (2020) Without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-a-comprehensible-guide-to-authoritative-testimonial-films/"><u>In 2024, A Comprehensible Guide to Authoritative Testimonial Films</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-communicating-with-authority-power-words-in-marketing/"><u>In 2024, Communicating with Authority Power Words in Marketing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-enhancing-quality-without-the-mic-a-practical-guide/"><u>In 2024, Enhancing Quality without the Mic A Practical Guide</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/rapidly-reconnecting-to-your-printer/"><u>Rapidly Reconnecting to Your Printer</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/subtlety-matters-fading-out-sounds-in-logic-pro/"><u>Subtlety Matters Fading Out Sounds in Logic Pro</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/for-effortless-eradication-of-unwanted-youtube-discussions/"><u>Tips for Effortless Eradication of Unwanted YouTube Discussions</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/video-capture-crusade-obs-vs-shadowcast-for-2024/"><u>Video Capture Crusade OBS Vs ShadowCast for 2024</u></a></li>
 </ul></div>
 

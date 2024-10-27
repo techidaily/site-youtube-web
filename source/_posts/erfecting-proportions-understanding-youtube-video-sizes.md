@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Perfecting Proportions  Understanding YouTube Video Sizes\""
-date: 2024-10-16T17:52:06.443Z
-updated: 2024-10-20T22:46:31.438Z
+date: 2024-10-23T06:42:58.387Z
+updated: 2024-10-27T08:44:57.283Z
 tags:
   - ai video
   - ai youtube
@@ -71,13 +71,6 @@ The world is moving swiftly, and with day passing, people want to complete their
 
 ![youtube shorts ratio](https://images.wondershare.com/filmora/article-images/2021/youtube-shorts-ratio.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily follows Vertical format. Following are the requirement for YouTube Shorts Ratio:
 
 **Aspect Ratio:** Vertical format standard ratio is 9:16 (That fill up the entire screen vertically)
@@ -87,6 +80,13 @@ Here also comes the concept of YouTube Shorts Ratio as YouTube Videos primarily 
 **Note:** There is also provision for square videos with a 1:1 ratio for YouTube Shorts. But that results in extra white or black padding at the top and bottom areas.
 
 Other possible YouTube Shorts ratios are 4:5, 2:3, 1:2.
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3 Aspect Ratios for YouTube Ads
 
@@ -105,10 +105,10 @@ Sponsor Card Ads Ratio: 1:1
 True View Discovery Ads Ratio: 16:9 or 4:3
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100538/7443" target="_top" id="2100538">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4 Think More about YouTube Aspect Ratio
@@ -120,10 +120,10 @@ Are you puzzled?
 ![how to set aspect ratio](https://images.wondershare.com/filmora/article-images/2021/how-to-set-aspect-ratio.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Yeah! Wait, there is the solution. Edit the aspect ratio of your video before uploading it under the YouTube Platform. For that purpose, there is one option named [Wondershae Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) That is used to provide you with the Aspect ratio editing and modification option.
@@ -142,22 +142,16 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![wondershare filmora](https://images.wondershare.com/filmora/article-images/2021/filmora-video.png)
 
-<!-- affiliate ads begin -->
-<span id="1982596">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 There is another option also, after launching the software, upload your project video. Then, under Project settings, change and set the required aspect ratio.
 
 ![filmora project settings](https://images.wondershare.com/filmora/article-images/2021/filmora-project-settings.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Simple isn't it. Yes, the process is quite simple. You can easily change YouTube Video size dimensions without any hassle using Wondershare Filmora editor and that quickly. So, get up and record some interesting YouTube videos or Shorts, mix them up with colors, spicy talk, and change the aspect ratio with ease. You are ready to rock the world of YouTube videos with these simple steps, the right approach that most YouTube Videomakers follow worldwide.
 
@@ -182,22 +176,24 @@ Aspect ratio is simply the width to the height ratio for the screen. But it hold
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/igital-content-contenders-compare-and-contrast-vimeo-youtube-plus-dailymotion-for-2024/"><u>[New] Digital Content Contenders Compare & Contrast Vimeo, YouTube + Dailymotion for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-harnessing-the-benefits-with-creative-commons-licenses/"><u>[New] In 2024, Harnessing the Benefits with Creative Commons Licenses</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-leaders-engineering-digital-marvel-realms/"><u>[New] In 2024, Leaders Engineering Digital Marvel Realms</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-a-comprehensive-tutorial-for-transforming-vids-into-dollars-for-2024/"><u>[Updated] A Comprehensive Tutorial for Transforming Vids Into Dollars for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-game-optimized-screens-for-ps5-xbox-series-x-gamers-for-2024/"><u>[Updated] Game-Optimized Screens for PS5, Xbox Series X Gamers for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-prime-freefire-content-creation-on-youtube/"><u>[Updated] In 2024, Prime FreeFire Content Creation on YouTube</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/approved-expert-endorsed-asmr-microphones-unveiled/"><u>2024 Approved Expert-Endorsed ASMR Microphones Unveiled</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-mastering-playback-pivot-a-step-by-step-yt-guide/"><u>2024 Approved Mastering Playback Pivot A Step-by-Step YT Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-distinctive-video-stream-names-tips-for-filmora-users/"><u>Crafting Distinctive Video Stream Names Tips for Filmora Users</u></a></li>
-<li><a href="https://techidaily.com/expert-analysis-jackery-powerbank-with-integrated-ac-output-a-comprehensive-review/"><u>Expert Analysis: Jackery PowerBank with Integrated AC Output - A Comprehensive Review</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-celestial-warriors-unite-release-date/"><u>In 2024, Celestial Warriors Unite! Release Date</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-the-most-effective-ways-to-bypass-apple-iphone-11-activation-lock-by-drfone-ios/"><u>In 2024, The Most Effective Ways to Bypass Apple iPhone 11 Activation Lock</u></a></li>
-<li><a href="https://voice-adjusting.techidaily.com/new-2024-approved-the-ultimate-guide-to-audio-based-text-extraction-techniques/"><u>New 2024 Approved The Ultimate Guide to Audio-Based Text Extraction Techniques</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/quick-easy-shifts-adjust-imagesvideos-smartly/"><u>Quick, Easy Shifts Adjust Images/Videos Smartly</u></a></li>
-<li><a href="https://fox-place.techidaily.com/rescuing-your-lost-pdf-documents-a-guide-for-recovery-from-permanent-deletion/"><u>Rescuing Your Lost PDF Documents: A Guide for Recovery From Permanent Deletion</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ackward-button-chronicles-youtubes-video-reversal/"><u>The Backward Button Chronicles YouTube's Video Reversal</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/omplete-handbook-to-excellent-youtube-audio-production/"><u>The Complete Handbook to Excellent YouTube Audio Production</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/desktop-and-mobile-solutions-how-to-rotate-videos-for-instagram-for-2024/"><u>[Desktop & Mobile Solutions] How to Rotate Videos for Instagram for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-guides-on-creating-cost-free-youtube-beginnings-and-conclusions/"><u>[New] In 2024, Guides on Creating Cost-Free YouTube Beginnings & Conclusions</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-in-2024-top-servers-for-romance-discord-edition/"><u>[New] In 2024, Top Servers for Romance Discord Edition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-shorts-guide-what-is-it-and-how-to-make-shorts-video-for-2024/"><u>[New] YouTube Shorts Guide What Is It and How To Make Shorts Video for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-boosting-exposure-posting-youtube-content-on-facebook-effectively/"><u>[Updated] 2024 Approved Boosting Exposure Posting YouTube Content on Facebook Effectively</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-streamline-your-content-with-these-4-instagram-looping-hacks/"><u>[Updated] 2024 Approved Streamline Your Content with These 4 Instagram Looping Hacks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-ingredients-to-inspiration-cooking-videos/"><u>[Updated] From Ingredients to Inspiration Cooking Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-transformative-beauty-tutorials-for-everyone/"><u>[Updated] In 2024, Transformative Beauty Tutorials for Everyone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unlocking-clarity-fix-black-screens-on-youtube/"><u>[Updated] Unlocking Clarity Fix Black Screens on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-epic-entertainment-a-rundown-of-hilarious-youtuber-hits/"><u>2024 Approved Epic Entertainment A Rundown of Hilarious YouTuber Hits</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/3-ways-to-export-contacts-from-apple-iphone-12-pro-to-excel-csv-and-vcard-easily-drfone-by-drfone-transfer-from-ios/"><u>3 Ways to Export Contacts from Apple iPhone 12 Pro to Excel CSV & vCard Easily | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/8-free-video-conferencing-software-for-windows-and-mac-for-2024/"><u>8 Free Video Conferencing Software for Windows and Mac for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-itel-p55-5g-frp-bypass-by-drfone-android/"><u>About Itel P55 5G FRP Bypass</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ai-and-the-art-of-prompt-engineering-job-stability-outlook/"><u>AI and the Art of Prompt Engineering: Job Stability Outlook</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/correcting-failed-video-delivery-on-mobile-platforms-social-network-apps-for-2024/"><u>Correcting Failed Video Delivery on Mobile Platform's Social Network Apps for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/traction-in-the-algorithm-the-insiders-manual-for-featured-channels-for-2024/"><u>Gain Traction in the Algorithm The Insider's Manual for Featured Channels for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-streamers-picks-top-5-noise-canceling-headsets/"><u>In 2024, Streamer's Picks Top 5 Noise-Canceling Headsets</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-clip-to-cinema-the-simple-way-to-create-stunning-movies-from-any-video-for-2024/"><u>New Clip to Cinema The Simple Way to Create Stunning Movies From Any Video for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-creative-potential-using-microsofts-ai-image-tool-for-distinctive-visuals/"><u>Unlocking Creative Potential: Using Microsoft's AI Image Tool for Distinctive Visuals</u></a></li>
 </ul></div>
 

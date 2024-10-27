@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY Tips for Affordable YouTube Intro/End Videos"
-date: 2024-10-19T05:08:14.151Z
-updated: 2024-10-21T10:49:03.786Z
+date: 2024-10-19T17:04:15.873Z
+updated: 2024-10-27T02:33:10.920Z
 tags:
   - ai video
   - ai youtube
@@ -83,16 +83,10 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<span id="1983573">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983573.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983573">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983573.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983573%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983573/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -131,10 +125,10 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -158,19 +152,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-mastering-video-rankings-on-youtube-essential-seo-techniques-unveiled/"><u>[New] In 2024, Mastering Video Rankings on YouTube Essential SEO Techniques Unveiled</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-the-art-of-dual-careers-youtuber-and-full-time-employee/"><u>[New] In 2024, The Art of Dual Careers YouTuber & Full-Time Employee</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/treamline-your-site-including-youtube-playlists-directly/"><u>[New] Streamline Your Site Including YouTube Playlists Directly</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-best-cameras-to-amplify-your-yt-presence/"><u>[Updated] 2024 Approved Best Cameras to Amplify Your YT Presence</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-finalizing-your-video-with-a-bold-statement/"><u>[Updated] In 2024, Finalizing Your Video with a Bold Statement</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-adding-clear-timestamps-to-your-youtube-channels-live-streams/"><u>2024 Approved Adding Clear Timestamps to Your YouTube Channel's Live Streams</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/a-closer-look-at-sonys-game-changing-xbr-49x900f-the-49-smart-led-tv-unveiled/"><u>A Closer Look at Sony's Game-Changing XBR-49X900F – The 49 Smart LED TV Unveiled</u></a></li>
-<li><a href="https://driver-download.techidaily.com/free-and-easy-access-to-asus-atk0110-biosuefi-acpi-drivers-download-page/"><u>Free and Easy Access to ASUS ATK0110 BIOS/UEFI ACPI Drivers Download Page</u></a></li>
-<li><a href="https://android-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-on-lava-agni-2-5gwithwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock on Lava Agni 2 5Gwith/without a PC</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-honor-80-pro-straight-screen-edition-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Honor 80 Pro Straight Screen Edition to PC? | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/in-2024-frame-rate-showdown-evaluating-30fps-and-60fps-in-videography/"><u>In 2024, Frame Rate Showdown Evaluating 30Fps and 60Fps in Videography</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-premium-portables-laptops-to-supercharge-your-creative-work/"><u>In 2024, Premium Portables Laptops to Supercharge Your Creative Work</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/friendly-tv-setups-integrating-youtube-videos-for-2024/"><u>Loop-Friendly TV Setups Integrating YouTube Videos for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/the-art-of-interaction-in-online-google-meet-spaces/"><u>The Art of Interaction in Online Google Meet Spaces</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-20-best-free-and-paid-gif-software-options/"><u>[New] In 2024, The 20 Best Free and Paid GIF Software Options</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-access-your-favorites-anytime-the-leading-6-free-video-downloaders/"><u>[Updated] 2024 Approved Access Your Favorites Anytime The Leading 6 Free Video Downloaders</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-curating-the-perfect-mix-a-youtube-playlist-manual-for-2024/"><u>[Updated] Curating the Perfect Mix A Youtube Playlist Manual for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-fast-forward-features-unveiled-the-editors-guidebook/"><u>[Updated] Fast-Forward Features Unveiled The Editor's Guidebook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-elevating-slideshows-incorporate-youtube-videos/"><u>[Updated] In 2024, Elevating Slideshows Incorporate YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-mitigating-the-risk-of-youtube-sanctions/"><u>[Updated] In 2024, Mitigating the Risk of YouTube Sanctions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-understanding-youtubes-revenue-streams-for-creators/"><u>[Updated] Understanding YouTube's Revenue Streams for Creators</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-master-screen-grabbing-tech-list-1-8/"><u>2024 Approved Master Screen Grabbing Tech List #1-8</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/eliminate-lag-and-boost-frame-rates-essential-fixes-to-improve-war-thunder-gameplay-this-year/"><u>Eliminate Lag and Boost Frame Rates: Essential Fixes to Improve War Thunder Gameplay This Year!</u></a></li>
+<li><a href="https://games-able.techidaily.com/hot-deals-galore-playstations-midsummer-sale/"><u>Hot Deals Galore: PlayStation’s Midsummer Sale</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-capture-it-right-essential-camera-lenses-for-video-blogging/"><u>In 2024, Capture It Right Essential Camera Lenses for Video Blogging</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-latest-guide-how-to-bypass-honor-magic-5-frp-without-computer-by-drfone-android/"><u>In 2024, Latest Guide How To Bypass Honor Magic 5 FRP Without Computer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-youtube-thumbnail-crafting-simplified-macos-edition/"><u>In 2024, YouTube Thumbnail Crafting Simplified (macOS Edition)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/jaunt-vr-a-gateway-to-virtual-worlds-for-2024/"><u>Jaunt VR A Gateway to Virtual Worlds for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/lick-alternatives-indie-worthy-2023-releases-for-2024/"><u>Top Flick Alternatives Indie-Worthy 2023 Releases for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/unleashing-creative-stories-zoom-techniques-on-snapchat/"><u>Unleashing Creative Stories Zoom Techniques on Snapchat</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-2024-approved-the-ultimate-arsenal-of-audio-manipulation-software-for-professional-use/"><u>Updated 2024 Approved The Ultimate Arsenal of Audio Manipulation Software for Professional Use</u></a></li>
 </ul></div>
 

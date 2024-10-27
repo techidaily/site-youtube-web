@@ -1,7 +1,7 @@
 ---
 title: "[New] How to Stabilize Your Camera without Buying a Tripod?"
-date: 2024-10-19T17:03:07.337Z
-updated: 2024-10-21T11:15:59.620Z
+date: 2024-10-20T20:23:12.364Z
+updated: 2024-10-26T20:27:35.055Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
@@ -62,16 +62,16 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
@@ -94,19 +94,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<span id="1374820">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -114,6 +101,13 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -138,10 +132,10 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -165,21 +159,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-seamless-scratching-for-chrome-devices/"><u>[New] 2024 Approved Seamless Scratching for Chrome Devices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-the-ultimate-hash-list-boosting-youtube-views-to-6000plus/"><u>[New] In 2024, The Ultimate Hash List Boosting Youtube Views to $6,000+</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-logging-live-audio-on-the-go-a-user-friendly-manual/"><u>[New] Logging Live Audio On-the-Go A User-Friendly Manual</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/hriving-in-digital-realms-the-power-of-well-planned-backlinks/"><u>[New] Thriving in Digital Realms The Power of Well-Planned Backlinks</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nleash-your-youtube-channels-full-potential-with-profitable-trailers-for-2024/"><u>[New] Unleash Your YouTube Channels' Full Potential with Profitable Trailers for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-earning-through-eyes-the-actual-youtube-view-count-needed-for-2024/"><u>[Updated] Earning Through Eyes The Actual YouTube View Count Needed for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ling-challenge-brainstroming-7-humorous-youtube-videos/"><u>Chuckling Challenge Brainstroming 7 Humorous YouTube Videos</u></a></li>
-<li><a href="https://extra-information.techidaily.com/crafting-perfection-ios-and-androids-best-montage-aides/"><u>Crafting Perfection IOS & Android's Best Montage Aides</u></a></li>
-<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-motorola-moto-g13-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Motorola Moto G13 | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/ig-peak-performers-iphone-plus-androids-top-covers-app/"><u>IG Peak Performers IPhone + Android's Top Covers App</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-hands-on-instructions-for-iphone-content-syncing/"><u>In 2024, Hands-On Instructions for iPhone Content Syncing</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-maximize-visibility-and-views-on-youtube/"><u>In 2024, Maximize Visibility and Views on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-micro-videos-in-the-spotlight-who-wins-youtube-shorts-or-tiktok/"><u>In 2024, Micro-Videos in the Spotlight Who Wins, YouTube Shorts or TikTok?</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/performance-and-price-review-of-caixuns-stunning-4k-android-tv-set-at-75-inches/"><u>Performance and Price Review of Caixun's Stunning 4K Android TV Set at 75 Inches</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/the-complete-blueprint-to-infuse-life-with-emojis-in-your-discord-statuses/"><u>The Complete Blueprint to Infuse Life with Emojis in Your Discord Statuses</u></a></li>
-<li><a href="https://some-skills.techidaily.com/tinting-truths-crafting-perfect-imagery-for-2024/"><u>Tinting Truths Crafting Perfect Imagery for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-path-to-professional-streaming-integrating-zoom-into-your-youtube-strategy/"><u>[New] The Path to Professional Streaming Integrating Zoom Into Your YouTube Strategy</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-10-visionary-beauticians-poised-success/"><u>[Updated] 2024 Approved 10 Visionary Beauticians Poised Success</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-a-guide-to-the-8-truly-effective-youtube-marketing-methods/"><u>[Updated] In 2024, A Guide to the 8 Truly Effective Youtube Marketing Methods</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-never-compromise-on-security-try-our-list-of-top-10-secure-free-video-calling-apps/"><u>[Updated] In 2024, Never Compromise on Security – Try Our List of Top 10 Secure, Free Video Calling Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-enhancing-user-interaction-with-well-sized-thumbnails/"><u>2024 Approved Enhancing User Interaction with Well-Sized Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-settled-silent-shorter-showcase-ended/"><u>2024 Approved Settled Silent Shorter Showcase Ended</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-top-100-earnest-creators-online/"><u>2024 Approved Top 100 Earnest Creators Online</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-update-insignia-bluetooth-adapter-drivers-on-windows-step-by-step-guide/"><u>Download & Update Insignia Bluetooth Adapter Drivers on Windows: Step-by-Step Guide</u></a></li>
+<li><a href="https://win-exclusive.techidaily.com/guida-rapida-per-riavere-indietro-i-file-che-non-trovi-su-windows-11/"><u>Guida Rapida per Riavere Indietro I File Che Non Trovi Su Windows 11</u></a></li>
+<li><a href="https://fox-that.techidaily.com/hot-device-dilemma-troubleshooting-overheating-in-apples-tech/"><u>Hot Device Dilemma: Troubleshooting Overheating in Apple's Tech</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-becoming-a-pro-in-video-game-broadcasts/"><u>In 2024, Becoming a Pro in Video Game Broadcasts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-craft-proficient-content-for-short-form-video-best-edits-reviewed/"><u>In 2024, Craft Proficient Content for Short-Form Video Best Edits Reviewed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-face-forward-influential-beauty-guides/"><u>In 2024, The Face Forward Influential Beauty Guides</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-lut-integration-in-obs-for-enhanced-visual-effects/"><u>Mastering LUT Integration in OBS for Enhanced Visual Effects</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722977386634-quick-and-easy-download-of-lenovo-ideapad-x230-drivers-get-them-now/"><u>Quick and Easy Download of Lenovo Ideapad X230 Drivers - Get Them Now</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/robomaster-s1-by-dji-a-delightful-blend-of-fun-battles-programming-skills-and-educational-play/"><u>RoboMaster S1 by DJI: A Delightful Blend of Fun Battles, Programming Skills & Educational Play</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-basics-of-picture-in-picture-in-ff/"><u>The Basics of Picture-in-Picture in FF</u></a></li>
 </ul></div>
 

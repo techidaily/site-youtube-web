@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Streamlining Video Features  YouTube Annotations Guide\""
-date: 2024-09-11T04:30:16.962Z
-updated: 2024-09-12T04:30:16.962Z
+date: 2024-10-22T02:13:23.737Z
+updated: 2024-10-27T05:30:39.824Z
 tags:
   - ai video
   - ai youtube
@@ -45,27 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115940/19272" target="_top" id="2115940">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115940" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115940/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## How to add YouTube Cards
 
@@ -75,44 +58,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -121,35 +70,14 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 * Apply changes and exit
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049383/7443" target="_top" id="2049383">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049383" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049383/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## How to add YouTube annotations
 
@@ -161,10 +89,30 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1936838">
+					<video width="374" height="48" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -204,19 +152,12 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Richard Bennett
 
@@ -224,14 +165,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -240,12 +178,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-tips.techidaily.com/updated-10-must-try-facial-editors-on-iphones-and-samsungs/"><u>[Updated] 10 Must-Try Facial Editors on iPhones and Samsungs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unlocking-video-potential-the-best-vlogging-cameras-ranked/"><u>[Updated] 2024 Approved Unlocking Video Potential The Best Vlogging Cameras Ranked</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-navigating-thumbnail-sizes-for-youtube-content-excellence/"><u>[Updated] In 2024, Navigating Thumbnail Sizes for YouTube Content Excellence</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-in-2024-top-10-fb-video-downloader-tools-firefox-compatible/"><u>[Updated] In 2024, Top 10 FB Video Downloader Tools, Firefox Compatible</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-serenity-through-stories-a-review-of-parent-driven-narrative-vids/"><u>[Updated] Serenity Through Stories A Review of Parent-Driven Narrative Vids</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-7-pulse-pounding-workouts-that-gain-traction-on-social-media/"><u>2024 Approved 7 Pulse-Pounding Workouts That Gain Traction on Social Media</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-breaking-into-twitter-live-your-strategy/"><u>2024 Approved Breaking Into Twitter Live Your Strategy</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-discovering-an-original-tiktok-identifier-code/"><u>2024 Approved Discovering an Original TikTok Identifier Code</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-essential-steps-to-add-custom-imagery-in-youtube-videos/"><u>2024 Approved Essential Steps to Add Custom Imagery in YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mastering-outro-techniques-for-videos/"><u>2024 Approved Mastering Outro Techniques for Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-tutorial-transforming-video-content-into-captivating-animated-gifs/"><u>2024 Approved Tutorial Transforming Video Content Into Captivating Animated GIFS</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-change-xiaomi-redmi-note-12-5g-lock-screen-password-by-drfone-android/"><u>How To Change Xiaomi Redmi Note 12 5G Lock Screen Password?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-designing-effective-video-previews-for-channels/"><u>In 2024, Designing Effective Video Previews for Channels</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-discover-review-and-compare-with-az-screenshotter/"><u>In 2024, Discover, Review & Compare with AZ Screenshotter</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/resolving-0x8007045d-fatal-exception-error-on-win-1011/"><u>Resolving 0X8007045D Fatal Exception Error on Win 10/11</u></a></li>
+<li><a href="https://fox-that.techidaily.com/ultimate-guide-activating-recovery-mode-on-your-ipad/"><u>Ultimate Guide: Activating Recovery Mode on Your iPad</u></a></li>
+</ul></div>
 
