@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, How To Activate or Deactivate Video Commenting in YouTube"
-date: 2024-10-19T16:45:37.333Z
-updated: 2024-10-27T02:32:08.872Z
+date: 2024-10-31T18:48:00.979Z
+updated: 2024-11-01T18:57:24.780Z
 tags:
   - ai video
   - ai youtube
@@ -96,10 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -123,13 +123,20 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -148,10 +155,10 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
@@ -167,13 +174,6 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -196,20 +196,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-capture.techidaily.com/new-enrich-video-narrative-with-slow-motion-on-iphone-for-2024/"><u>[New] Enrich Video Narrative with Slow Motion on iPhone for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-tutorial-transforming-video-content-into-captivating-animated-gifs/"><u>[New] In 2024, Tutorial Transforming Video Content Into Captivating Animated GIFS</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/astering-the-art-of-crafting-engaging-youtube-screen-closures-for-2024/"><u>[New] Mastering the Art of Crafting Engaging YouTube Screen Closures for 2024</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/he-youtubers-guide-to-picking-perfect-recording-tools/"><u>[New] The YouTuber's Guide to Picking Perfect Recording Tools</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-mastering-audio-and-visual-quality-in-youtube-videos/"><u>[Updated] 2024 Approved Mastering Audio & Visual Quality in YouTube Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-art-of-playback-anarchy-youtube-playlists-unordered-again/"><u>[Updated] 2024 Approved The Art of Playback Anarchy YouTube Playlists Unordered Again</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-breaking-boundaries-custom-font-use-in-after-effects-for-2024/"><u>[Updated] Breaking Boundaries Custom Font Use in After Effects for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-selecting-androids-best-youtube-video-extractors/"><u>[Updated] In 2024, Selecting Android's Best YouTube Video Extractors</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-innovative-features-of-the-latest-win11-release/"><u>[Updated] Innovative Features of the Latest Win11 Release</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-instant-inspiration-the-easy-guide-to-building-custom-youtube-music-mixes-webapp/"><u>[Updated] Instant Inspiration The Easy Guide to Building Custom YouTube Music Mixes (Web/App)</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/essential-10-boosters-for-multi-device-use-for-2024/"><u>Essential 10 Boosters for Multi-Device Use for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-honor-70-lite-5g-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Honor 70 Lite 5G</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-top-12-game-choices-for-the-ultimate-pc-clicking-journey/"><u>In 2024, Top 12 Game Choices for the Ultimate PC Clicking Journey</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ate-youtube-post-production-with-adobe-premiere-for-2024/"><u>Navigate YouTube Post-Production with Adobe Premiere for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/uniting-worlds-of-minecraft-bedrock-to-java-via-geysermc/"><u>Uniting Worlds of Minecraft: Bedrock to Java Via GeyserMC</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-seamlessly-integrating-device-screens-into-your-youtube-projects/"><u>[New] In 2024, Seamlessly Integrating Device Screens Into Your YouTube Projects</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-step-by-step-uploading-twitch-videos-to-youtube-platform/"><u>[New] Step-by-Step Uploading Twitch Videos to YouTube Platform</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-perfect-end-youtube-outro-essentials-and-top-creators/"><u>[New] The Perfect End YouTube Outro Essentials & Top Creators</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-10-best-youtube-to-gif-makers-how-to-create-gif-from-youtube-video/"><u>[Updated] 10 Best YouTube To GIF Makers How to Create GIF From YouTube Video?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-comparing-social-platforms-facebook-live-vs-youtube-live-and-twitter-periscope/"><u>[Updated] Comparing Social Platforms Facebook LIVE Vs. YouTube Live & Twitter Periscope</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-event-ensemble-curating-best-dj-templates/"><u>[Updated] Event Ensemble Curating Best DJ Templates</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-navigating-content-sharing-youtube-standards-vs-creative-commons/"><u>2024 Approved Navigating Content Sharing YouTube Standards Vs. Creative Commons</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-streamlining-live-gaming-footage-with-apps/"><u>2024 Approved Streamlining Live Gaming Footage with Apps</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-iphone-12-pro-max-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For iPhone 12 Pro Max Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-poco-c55-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Poco C55 Devices | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-vivo-x100-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Vivo X100 Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1043841-9780307828590-the-force-of-character/"><u>The Force of Character | Free Book</u></a></li>
 </ul></div>
 

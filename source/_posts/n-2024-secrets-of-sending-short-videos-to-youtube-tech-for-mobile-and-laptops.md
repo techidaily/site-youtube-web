@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Secrets of Sending Short Videos to YouTube - Tech for Mobile & Laptops\""
-date: 2024-10-22T18:11:00.846Z
-updated: 2024-10-26T16:58:37.360Z
+date: 2024-11-01T03:46:48.576Z
+updated: 2024-11-01T22:06:52.010Z
 tags:
   - ai video
   - ai youtube
@@ -87,6 +87,13 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 
 **Note:** The guidelines for creating and uploading short videos to YouTube remain the same, regardless of the platform or device you use.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Method 1: Upload an Existing Short Video
 
 **Note:** Make sure to have the target video on the smartphone and that you have downloaded, installed, and signed in to the YouTube app before proceeding.
@@ -96,10 +103,10 @@ The process of **uploading YouTube Shorts** from the mobile app is fairly simple
 ![Select a Video to Upload as Shorts](https://images.wondershare.com/filmora/article-images/select-shorts-videos-to-upload-on-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1175223/12108" target="_top" id="1175223">
-  <img src="//a.impactradius-go.com/display-ad/12108-1175223" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1175223/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Create**) icon from the bottom, tap **Create a Short** from the **Create** box that pops up from the bottom, tap **Upload** from the bottom-right corner of the next screen, and select and upload a short, 60 seconds video recorded in portrait orientation from your device’s storage to the app.
@@ -108,18 +115,18 @@ On your Android or iOS smartphone, launch the YouTube app, tap the **+** (**Crea
 
 ![add details to Shorts video](https://images.wondershare.com/filmora/article-images/add-details-to-youtube-shrots-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 On the next screen, tap **NEXT**, user the **Music** and **Text** icons at the bottom-left corner to add a background music and caption to the video respectively, and tap **NEXT** from the top-right corner. On the next screen, enter a name for the video in the **Title** field along with the **#Shorts** tag, and tap **Select audience** to choose your preferred audience.
 
 #### Step 3: Upload the Video
 
 Finally tap **UPLOAD** from the top-right corner to upload the short video on YouTube.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118319/7443" target="_top" id="2118319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 2: Record a Short Video and Upload
 
@@ -130,13 +137,6 @@ Previously, I have introduced [how to record and upload YouTube Shorts videos](h
 Please note you will not see the **Create a Short** option if you are outsides of India.
 
 ![ Record YouTube Shorts video](https://images.wondershare.com/filmora/article-images/record-create-youtube-short-video-mobile.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In the YouTube app, tap the **+** (**Add**) button and select **Create** **a Short**. Please note you will not see the **Create a Short** option if you are outsides of India.
 
@@ -154,18 +154,24 @@ On the **Add details** window, enter a name for the video along with the **#Shor
 
 **[![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)**
 
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Conclusion**
 
 Learning the process of **how to post short videos on YouTube** is fairly simple as long as you have the video recorded in the portrait orientation, it is up to 60 seconds long, and contains the ‘#Shorts’ tag (without quotes) in the title or description. The good thing is, if you don’t have access to the YouTube app on your smartphone, the method for **how to upload short video on YouTube** explained in the first section can be followed while using your desktop computer.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -190,22 +196,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-capture.techidaily.com/new-2024-approved-premium-eco-conscious-video-recorders-how-to-use/"><u>[New] 2024 Approved Premium Eco-Conscious Video Recorders How to Use</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-enhancing-visual-content-consumption-via-edges-pip/"><u>[New] Enhancing Visual Content Consumption via Edge’s PIP</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/n-2024-how-you-can-get-paid-for-videos/"><u>[New] In 2024, How You Can Get Paid for Videos</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-link-films-for-organized-youtube-display/"><u>[New] Link Films for Organized YouTube Display</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-find-hotspots-for-online-video-dialogue/"><u>[Updated] 2024 Approved Find Hotspots for Online Video Dialogue</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-ultimate-guide-to-closing-videos-effectively/"><u>[Updated] 2024 Approved The Ultimate Guide to Closing Videos Effectively</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-boost-your-search-rankings-expert-reviews-on-7-cost-effective-video-tags-extractors-for-2024/"><u>[Updated] Boost Your Search Rankings Expert Reviews on 7 Cost-Effective Video Tags Extractors for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-decoding-hashtags-role-in-elevating-your-youtube-gaming-experience-for-2024/"><u>[Updated] Decoding Hashtags' Role in Elevating Your YouTube Gaming Experience for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-essential-youtube-marketing-techniques-ranked-from-best-to-worst-for-2024/"><u>[Updated] Essential YouTube Marketing Techniques – Ranked From Best to Worst for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-from-novice-to-pro-how-to-evade-the-most-critical-8-mistakes-on-youtube/"><u>[Updated] In 2024, From Novice to Pro How to Evade the Most Critical 8 Mistakes on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-standard-youtube-vs-creative-commons-liberty-clauses/"><u>[Updated] Standard YouTube Vs. Creative Commons Liberty Clauses</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-gradual-volume-lessening-in-music-creation-garageband/"><u>2024 Approved Gradual Volume Lessening in Music Creation (Garageband)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-wisdom-waves-prime-ed-channels-online/"><u>2024 Approved Wisdom Waves Prime Ed Channels Online</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-binge-watch-with-flexibility-mastering-the-pip-functionality-in-netflix/"><u>In 2024, Binge-Watch With Flexibility Mastering the PIP Functionality in Netflix</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/in-2024-day-jobs-and-digital-passion-striking-a-balance/"><u>In 2024, Day Jobs & Digital Passion Striking a Balance</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-how-pgsharp-save-you-from-ban-while-spoofing-pokemon-go-on-samsung-galaxy-a05-drfone-by-drfone-virtual-android/"><u>In 2024, How PGSharp Save You from Ban While Spoofing Pokemon Go On Samsung Galaxy A05? | Dr.fone</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/in-2024-vital-top-6-business-focused-social-networking-places/"><u>In 2024, Vital Top 6 Business-Focused Social Networking Places</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-non-youtube-video-editing-discover-the-top-5-newcomers/"><u>[New] 2024 Approved Non-YouTube Video Editing Discover the Top 5 Newcomers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/our-freedom-awaits-explore-these-top-6-youtube-shortdowners-for-2024/"><u>[New] Your Freedom Awaits Explore These Top 6 YouTube Shortdowners for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-capturing-skype-chats-an-obs-guide/"><u>[Updated] 2024 Approved Capturing Skype Chats An OBS Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-craft-unforgettable-experiences-for-more-subscribers-with-these-6-tips-for-2024/"><u>[Updated] Craft Unforgettable Experiences for More Subscribers with These 6 Tips for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-discovering-synergistic-partnerships-on-youtube-platforms/"><u>[Updated] In 2024, Discovering Synergistic Partnerships on YouTube Platforms</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-ultimate-list-best-asmr-on-smartphones/"><u>[Updated] In 2024, Ultimate List Best ASMR on Smartphones</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unlocking-instagrams-hidden-gems-tailored-to-your-passions-for-2024/"><u>[Updated] Unlocking Instagram’s Hidden Gems Tailored to Your Passions for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-scaling-youtube-earnings-device-independent-studio-tactics/"><u>2024 Approved Scaling YouTube Earnings Device-Independent Studio Tactics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-power-of-stories-in-youtube-expansion/"><u>2024 Approved The Power of Stories in YouTube Expansion</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/decoding-auroras-advanced-photographic-capabilities/"><u>Decoding Aurora's Advanced Photographic Capabilities</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-turn-up-your-pexels-photo-game-for-2024/"><u>How to Turn Up Your Pexels Photo Game for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-apple-id-activation-lock-on-iphone-11-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID Activation Lock On iPhone 11?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/in-2024-vllevaluation-insight-into-app-quality/"><u>In 2024, VLLEvaluation Insight Into App Quality</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/leading-20-free-open-source-pubg-galleries/"><u>Leading 20 Free, Open Source PUBG Galleries</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/share-the-love-with-your-family-must-watch-films-on-amazon-prime-video-for-jul-2024/"><u>Share the Love with Your Family: Must-Watch Films on Amazon Prime Video for Jul' 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mlining-content-delivery-the-definitive-youtube-video-upload-guide/"><u>Streamlining Content Delivery The Definitive YouTube Video Upload Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/k-youtube-numbers-for-enhanced-performance-for-2024/"><u>Unlock YouTube Numbers for Enhanced Performance for 2024</u></a></li>
 </ul></div>
 

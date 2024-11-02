@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Visionary's Toolkit for Personalized Animation Techniques"
-date: 2024-10-25T21:08:30.156Z
-updated: 2024-10-27T06:46:52.746Z
+date: 2024-10-27T17:52:31.722Z
+updated: 2024-11-01T20:56:35.598Z
 tags:
   - ai video
   - ai youtube
@@ -56,10 +56,10 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -69,10 +69,10 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -80,10 +80,10 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111965/7443" target="_top" id="2111965">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111965" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044583/7443" target="_top" id="2044583">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044583" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111965/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044583/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -93,10 +93,10 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885999/19272" target="_top" id="1885999">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885999" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885999/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -120,18 +120,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/harting-a-course-through-websites-of-youtube-affiliates-for-2024/"><u>[New] Charting a Course Through Websites of YouTube Affiliates for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-dichotomy-of-youtube-rights-and-cc-licenses/"><u>[New] The Dichotomy of YouTube Rights and CC Licenses</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-transform-your-presence-advanced-tricks-for-live-video-graphics/"><u>[Updated] 2024 Approved Transform Your Presence Advanced Tricks for Live Video Graphics</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-content-creation-evolution-studio-vs-innovative-beta/"><u>[Updated] In 2024, Content Creation Evolution Studio Vs. Innovative Beta</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-preserve-your-pics-and-videos-top-15-tools-reviewed/"><u>[Updated] Preserve Your Pics & Videos Top 15 Tools Reviewed</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-revealing-the-top-six-where-to-grab-your-snack-videos-for-2024/"><u>[Updated] Revealing the Top Six Where to Grab Your Snack Videos for 2024</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-unlocking-youtubes-potential-for-visual-storytelling/"><u>[Updated] Unlocking YouTube's Potential for Visual Storytelling</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-from-sd-to-4k-superiority-a-look-inside-the-d500/"><u>2024 Approved From SD to 4K Superiority A Look Inside the D500</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-skyrocket-engagement-optimizing-videos-for-peak-views/"><u>2024 Approved Skyrocket Engagement Optimizing Videos for Peak Views</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-skyrocket-visibility-mastering-google-analytics-for-youtubers/"><u>2024 Approved Skyrocket Visibility Mastering Google Analytics for YouTubers</u></a></li>
-<li><a href="https://apple-account.techidaily.com/3-ways-of-how-to-get-someones-apple-id-off-iphone-8-plus-without-password-by-drfone-ios/"><u>3 Ways of How to Get Someones Apple ID Off iPhone 8 Plus without Password</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/upgrade-your-bluetooth-experience-download-broadcom-drivers-compatible-with-windows-1087/"><u>Upgrade Your Bluetooth Experience: Download Broadcom Drivers Compatible with Windows 10/8/7</u></a></li>
-<li><a href="https://win-web3.techidaily.com/zdnets-in-depth-analysis-of-the-keychron-q5-mechanical-keyboard-enhanced-features-justify-premium-cost/"><u>ZDNet's In-Depth Analysis of the Keychron Q5 Mechanical Keyboard: Enhanced Features Justify Premium Cost</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-economical-audience-expansion-buy-subscribers-not-time/"><u>[New] 2024 Approved Economical Audience Expansion Buy Subscribers, Not Time</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-mastering-the-monetized-space-a-buyers-primer/"><u>[New] 2024 Approved Mastering the Monetized Space A Buyer's Primer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/anking-top-10-budget-friendly-video-editing-apps/"><u>[New] Ranking Top 10 Budget-Friendly Video Editing Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-art-of-adding-emojis-to-youtube-comments/"><u>[Updated] In 2024, The Art of Adding Emojis to YouTube Comments</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-uncovering-the-intricacies-of-lgs-top-tier-4k-display/"><u>[Updated] Uncovering the Intricacies of LG's Top-Tier 4K Display</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/approved-instant-thumbnails-for-fortnite-gameplay/"><u>2024 Approved Instant Thumbnails for Fortnite Gameplay</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/crop-circles-the-essential-list-of-farming-games-for-2024/"><u>Crop Circles The Essential List of Farming Games for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-achieve-professional-level-audio-quality-on-youtube/"><u>How to Achieve Professional-Level Audio Quality on YouTube</u></a></li>
+<li><a href="https://facebook.techidaily.com/ideal-season-for-altering-fb-identity-snapshot/"><u>Ideal Season for Altering FB Identity Snapshot</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-apple-iphone-13-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your Apple iPhone 13 Apple ID on MacBook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-take-your-online-presence-to-new-heights-with-youtube-edits-in-sony-vegas/"><u>In 2024, Take Your Online Presence to New Heights with YouTube Edits in Sony Vegas</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/integrating-b-roll-effectively-without-distraction/"><u>Integrating B Roll Effectively Without Distraction</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/revitalizing-retired-recording-systems/"><u>Revitalizing Retired Recording Systems</u></a></li>
 </ul></div>
 

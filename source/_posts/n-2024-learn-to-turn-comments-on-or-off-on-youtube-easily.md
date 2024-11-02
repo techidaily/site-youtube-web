@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Learn to Turn Comments On or Off on YouTube Easily"
-date: 2024-09-11T04:28:13.662Z
-updated: 2024-09-12T04:28:13.662Z
+date: 2024-10-31T21:16:30.311Z
+updated: 2024-11-01T23:24:32.686Z
 tags:
   - ai video
   - ai youtube
@@ -30,13 +30,10 @@ As a brand, it is imperative to thoroughly read all the comments that your YouTu
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
 
-
 >  Disclaimer: This post includes affiliate links
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-
 
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
@@ -65,20 +62,6 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 #### 2\. Define Acceptable Comment Types
 
@@ -112,25 +95,12 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
@@ -152,41 +122,20 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136624/26400" target="_top" id="2136624">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136624" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136624/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## FAQs About YouTube Comments
 
@@ -204,19 +153,12 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
@@ -232,19 +174,12 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Liza Brown
 
@@ -252,14 +187,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -268,12 +200,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
-
-
-
-
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/est-voice-conversion-tools-for-vlogging-professionals/"><u>[New] Best Voice Conversion Tools for Vlogging Professionals</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ownload-youtube-playlists-without-hassle-our-guide-for-2024/"><u>[New] Download YouTube Playlists Without Hassle - Our Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-unifying-your-digital-storytelling-via-merged-youtube-media/"><u>[New] In 2024, Unifying Your Digital Storytelling via Merged YouTube Media</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aking-every-minute-count-youtube-length-reduction-techniques-for-2024/"><u>[New] Making Every Minute Count YouTube Length Reduction Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/remier-visionaries-in-multimedia-creation/"><u>[New] Premier Visionaries in Multimedia Creation</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-frame-your-life-with-iphones-top-10-photo-rules/"><u>[Updated] 2024 Approved Frame Your Life with iPhone's Top 10 Photo Rules</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-expert-tactics-for-designing-attention-grabbing-thumbnails/"><u>[Updated] Expert Tactics for Designing Attention-Grabbing Thumbnails</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-itop-review-necessary-for-quality-recordings/"><u>[Updated] In 2024, ITop Review Necessary for Quality Recordings?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-optimizing-profits-on-youtube-studio-for-all-device-users/"><u>[Updated] In 2024, Optimizing Profits on YouTube Studio for All-Device Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-professional-filmmakers-choices-17-best-lights-for-2024/"><u>[Updated] Professional Filmmakers' Choices #17 Best Lights for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-transform-your-streaming-enabling-av1-technology-in-youtube/"><u>[Updated] Transform Your Streaming Enabling AV1 Technology in YouTube</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/converting-stored-content-into-real-time-livestreams-on-social-media-for-2024/"><u>Converting Stored Content Into Real-Time Livestreams on Social Media for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/free-tools-and-websites-for-converting-wav-audio-to-mp3-on-pcmac-step-by-step-guide/"><u>Free Tools & Websites for Converting WAV Audio to MP3 on PC/Mac - Step-by-Step Guide</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-locked-apple-id-from-iphone-14-by-drfone-ios/"><u>How to Fix Locked Apple ID from iPhone 14</u></a></li>
+<li><a href="https://common-error.techidaily.com/1723211467650-how-to-get-your-astro-a40s-mic-up-and-running-again/"><u>How To Get Your Astro A40's Mic Up and Running Again</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-activation-lock-on-the-iphone-14-without-previous-owner-by-drfone-ios/"><u>How to Remove Activation Lock On the iPhone 14 Without Previous Owner?</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-unsubscribing-from-youtube-computer-and-mobile-techniques/"><u>In 2024, Unsubscribing From Youtube Computer & Mobile Techniques</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/pro-grade-mac-video-plus-audiophile-recorder/"><u>Pro-Grade Mac Video + Audiophile Recorder</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Lava Yuva 3 | Dr.fone</u></a></li>
+</ul></div>
 

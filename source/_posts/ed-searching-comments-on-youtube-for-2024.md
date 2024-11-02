@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Searching Comments on YouTube for 2024"
-date: 2024-10-24T21:00:14.894Z
-updated: 2024-10-27T03:06:06.889Z
+date: 2024-10-30T01:25:29.630Z
+updated: 2024-11-01T16:09:21.918Z
 tags:
   - ai video
   - ai youtube
@@ -66,13 +66,6 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -86,10 +79,16 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
@@ -118,6 +117,13 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135406/19272" target="_top" id="2135406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135406" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -125,10 +131,10 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118326/7443" target="_top" id="2118326">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118326" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118326/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
@@ -144,10 +150,10 @@ You can see all the comments you have posted in the Comment History in a few qui
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123509/26400" target="_top" id="2123509">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123509" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123509/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -194,18 +200,15 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/nfusing-vitality-into-text-an-animated-adventure-for-2024/"><u>[New] Infusing Vitality Into Text An Animated Adventure for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-cut-to-the-chase-efficient-screen-recording-methods-for-hp-users-for-2024/"><u>[Updated] Cut to the Chase Efficient Screen Recording Methods for HP Users for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-chilling-celebrations-beijings-winter-sports-spectacle/"><u>[Updated] In 2024, Chilling Celebrations Beijing's Winter Sports Spectacle</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unleash-youtube-dominance-a-comprehensive-guide-to-studio-success/"><u>[Updated] In 2024, Unleash YouTube Dominance A Comprehensive Guide to Studio Success</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-overcome-video-loading-failure-chrome/"><u>[Updated] Overcome Video Loading Failure Chrome</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-securely-and-swiftly-acquiring-your-youtube-watch-lists-for-2024/"><u>[Updated] Securely and Swiftly Acquiring Your YouTube Watch Lists for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-social-media-marketing-get-more-viewers-with-youtube/"><u>2024 Approved Social Media Marketing Get More Viewers with YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/tless-guide-to-share-your-videos-as-shorts-on-computers-and-phones/"><u>Effortless Guide to Share Your Videos as Shorts on Computers & Phones</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-are-location-permissions-life360-on-itel-a60-drfone-by-drfone-virtual-android/"><u>In 2024, What are Location Permissions Life360 On Itel A60? | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/navigate-the-world-of-person-finding-with-these-8-premier-engine-options/"><u>Navigate the World of Person Finding with These 8 Premier Engine Options</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/screen-capture-mastery-windows-edition-free-3-methods/"><u>Screen Capture Mastery Windows Edition (Free, 3 Methods)</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-best-small-camera-on-the-market-canon-sx530-reviewed/"><u>The Best Small Camera on the Market - Canon SX530 Reviewed</u></a></li>
-<li><a href="https://win-blog.techidaily.com/ultimate-guide-solving-battle-royale-blackout-in-fortnite-warzone-proven-strategies/"><u>Ultimate Guide: Solving Battle Royale Blackout in Fortnite (Warzone) – Proven Strategies</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-6-game-changing-tactics-to-increase-watch-time-and-reduce-churn-rate/"><u>[New] 2024 Approved 6 Game-Changing Tactics to Increase Watch Time and Reduce Churn Rate</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/14620035-new-2024-approved-transform-videos-with-easy-to-use-sound-effects/"><u>[New] 2024 Approved Transform Videos with Easy-to-Use Sound Effects!</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-ultra-creations-synopsis-studio-25-detailed-analysis-2023/"><u>[New] Ultra Creations Synopsis Studio 25 Detailed Analysis, 2023</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-step-formula-how-to-check-youtube-income-for-2024/"><u>[New][3-Step Formula] How To Check YouTube Income for 2024</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-accessible-alternatives-googles-simplicity-versus-samsungs-innovation/"><u>2024 Approved Accessible Alternatives Google's Simplicity Versus Samsung's Innovation</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-novice-film-capture-scrutiny-report/"><u>2024 Approved Novice Film Capture Scrutiny Report</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-honor-magic-5-lite-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed Guide on Faking Your Location in Mozilla Firefox On Honor Magic 5 Lite | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ng-youtube-snack-seekers-free-top-downloads/"><u>Leading YouTube Snack Seekers Free, Top Downloads</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/optimize-your-device-how-googles-compact-android-software-saves-energy-and-data/"><u>Optimize Your Device: How Google's Compact Android Software Saves Energy and Data</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rsal-youtube-guidelines-and-expectations/"><u>Universal YouTube Guidelines and Expectations</u></a></li>
 </ul></div>
 

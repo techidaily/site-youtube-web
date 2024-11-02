@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Personalized Video Setups  A Beginner's Guide to Selfies on YouTube\""
-date: 2024-10-19T23:14:03.412Z
-updated: 2024-10-27T03:23:41.901Z
+date: 2024-10-25T23:58:19.854Z
+updated: 2024-11-01T19:03:30.183Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,13 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![ Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
@@ -59,10 +66,10 @@ Objects and people that just make it into the sides of the frame will appear mor
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.  Medium Vlog Set-Up
@@ -80,10 +87,10 @@ You can see from how even the background and couch looks across the entire camer
 It appears that, to the right of deadmau5 (camera left), there is a key light and to his left (camera right) there may be a fill light for additional lighting. Behind the couch, there’s also a background uplight to create depth between the subject and the background. At the 1:30 mark of this trailer video, you can briefly see how the Masterclass camera crew set up their shot.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484910/16446" target="_top" id="1484910">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484910" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484910/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3.  Two Person Vlog Set-Up
@@ -93,6 +100,13 @@ If your talking-head shot has got to include two people, you can use a similar s
 If you look back at the 39-second mark of deadmau5’s Masterclass trailer, you can see that there’s a lot of space to the left and right of deadmau5\. Now imagine the same shot but with two people.
 
 With two people, though, you’ll want to set up your mic slightly differently. Rather than using a directional shotgun mic with a narrow area of sensitivity, you’ll want to use a directional mic with a wider area of sensitivity.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4.  Long Teleprompter Vlog Set-Up
 
@@ -116,21 +130,7 @@ To make a talking-head video more interesting, you can add some background music
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -153,22 +153,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-mastering-virtual-reality-with-top-bike-simulators/"><u>[New] In 2024, Mastering Virtual Reality with Top Bike Simulators</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-a-new-era-of-streaming-leading-voices-of-female-creators/"><u>[Updated] A New Era of Streaming Leading Voices of Female Creators</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-enhancing-viewership-maintaining-youtubes-creative-commons/"><u>[Updated] In 2024, Enhancing Viewership Maintaining YouTube's Creative Commons</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-optimization-peak-times-for-maximum-impact/"><u>[Updated] In 2024, YouTube Optimization Peak Times for Maximum Impact</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-tailoring-audio-in-youtube-video-editors-for-enhanced-content/"><u>[Updated] Tailoring Audio in YouTube Video Editors for Enhanced Content</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-unveiling-best-live-stream-tools-for-gamers/"><u>[Updated] Unveiling Best Live-Stream Tools for Gamers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-windows-movie-maker-tips-for-youtube-editing-excellence/"><u>[Updated] Windows Movie Maker Tips for YouTube Editing Excellence</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-winning-hearts-an-approach-to-encourage-sign-ups-for-2024/"><u>[Updated] Winning Hearts An Approach to Encourage Sign-Ups for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/1-swift-techniques-for-removing-empty-cells-in-microsoft-excel/"><u>1. Swift Techniques for Removing Empty Cells in Microsoft Excel</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-ultimate-non-popular-films-viewing-list/"><u>2024 Approved Ultimate Non-Popular Films Viewing List</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/budget-friendly-alternatives-to-premium-vr-headsets-for-2024/"><u>Budget-Friendly Alternatives to Premium VR Headsets for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/huawei-appgallery-now-features-mondly-services/"><u>Huawei AppGallery Now Features Mondly Services</u></a></li>
-<li><a href="https://win-dash.techidaily.com/improve-visual-performance-with-the-latest-intel-hd-graphics-er-driver-downloads/"><u>Improve Visual Performance with the Latest Intel HD Graphics Er Driver Downloads</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/e-visionaries-subscriber-play-button-triumphs/"><u>Online Visionaries Subscriber, Play Button Triumphs</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-common-setbacks-when-altering-windows-11-defaults/"><u>Overcoming Common Setbacks When Altering Windows 11 Defaults</u></a></li>
-<li><a href="https://some-skills.techidaily.com/the-essentials-of-simple-straightforward-hdr-techniques-for-2024/"><u>The Essentials of Simple, Straightforward HDR Techniques for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-insight-into-analyzing-youtube-view-counts-and-revenue/"><u>The Ultimate Insight Into Analyzing Youtube View Counts & Revenue</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rafting-youtube-entrance-videos-with-the-top-tools/"><u>[New] Crafting YouTube Entrance Videos with the Top Tools</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-harmonizing-youtube-content-a-guide-to-blending-files-for-2024/"><u>[New] Harmonizing YouTube Content A Guide to Blending Files for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-streamlining-access-to-subscriber-information/"><u>[Updated] 2024 Approved Streamlining Access to Subscriber Information</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-elevating-your-snapping-game-tips-for-uninterrupted-streaks/"><u>2024 Approved Elevating Your Snapping Game Tips for Uninterrupted Streaks</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-youtubes-prime-moments-celebrations-beyond-vidcon/"><u>2024 Approved Youtube's Prime Moments Celebrations Beyond VidCon</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/5-ways-to-transfer-files-to-your-computer-for-2024/"><u>5 Ways To Transfer Files To Your Computer for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Apple iPhone 11 Pro Max? | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/desktop-icons-disappeared-in-windows-10-solved/"><u>Desktop Icons Disappeared in Windows 10 [SOLVED]</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-forgot-locked-iphone-14-pro-password-learn-the-best-methods-to-unlock-drfone-by-drfone-ios/"><u>In 2024, Forgot Locked iPhone 14 Pro Password? Learn the Best Methods To Unlock | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-nokia-c32-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Nokia C32 to New Phone | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-video-selfie-mastery-tips-from-top-youtubers/"><u>In 2024, Video Selfie Mastery Tips From Top YouTubers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mastering-media-conversions-the-ultimate-list-of-easy-to-use-mp4-to-wav-converters/"><u>Mastering Media Conversions: The Ultimate List of Easy-to-Use MP4 to WAV Converters</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-tips-for-embedding-timestamps-into-youtube-videos/"><u>Quick Tips for Embedding Timestamps Into YouTube Videos</u></a></li>
 </ul></div>
 
