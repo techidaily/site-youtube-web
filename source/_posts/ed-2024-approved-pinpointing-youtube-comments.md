@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Pinpointing YouTube Comments\""
-date: 2024-10-25T19:51:29.452Z
-updated: 2024-11-01T21:48:36.386Z
+date: 2024-10-31T16:05:29.893Z
+updated: 2024-11-07T22:40:52.214Z
 tags:
   - ai video
   - ai youtube
@@ -66,13 +66,6 @@ Besides the comment search feature, the YouTube Studio also has some in-built se
 
 You can combine these additional filters to narrow your comments search for YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037335/7443" target="_top" id="2037335">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037335" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037335/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Using YCS – YouTube Comment Search Extension
 
 You can use the YouTube Comment Search browser extension supported by Google Chrome to help you search YouTube comments effortlessly. To use it, follow these steps below.
@@ -84,19 +77,6 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 5. Now type your keywords, press Enter, and YCS will show all comments having the keyword you typed.
 
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1982499">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982499.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982499">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982499.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982499%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982499/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: Using Comments Search for YouTube Extension
 
@@ -124,11 +104,25 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
 
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Use the Comment History feature to Search Comments?
 
@@ -140,13 +134,26 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
@@ -172,13 +179,6 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
-  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -200,19 +200,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/udget-friendly-webinar-strategies-for-youtube-for-2024/"><u>[New] Budget-Friendly Webinar Strategies for YouTube for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-screen-recording-made-simple-5-essential-strategies-for-minecraft-mac-for-2024/"><u>[New] Screen Recording Made Simple 5 Essential Strategies for Minecraft (Mac) for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-from-zero-to-youtube-creating-a-stellar-new-chanel-for-2024/"><u>[Updated] From Zero to YouTube Creating a Stellar New Chanel for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-harmonious-hub-choosing-the-best-free-apps-for-your-youtube-music-streams/"><u>[Updated] Harmonious Hub Choosing the Best Free Apps for Your YouTube Music Streams</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-smartphone-intro-maker-tools-choosing-the-right-one-for-2024/"><u>[Updated] Smartphone Intro Maker Tools Choosing the Right One for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/advancing-developer-productivity-and-endurance-with-github-copilot-a-zdnet-insight/"><u>Advancing Developer Productivity & Endurance with GitHub Copilot - A ZDNet Insight</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/chill-championships-highlighting-cold-climates-sports/"><u>Chill Championships Highlighting Cold Climates Sports</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/crafting-engaging-bio-stories-a-guide-to-stand-out-on-fb-for-2024/"><u>Crafting Engaging Bio Stories – A Guide to Stand Out on FB for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-soft-reset-vivo-v27e-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Vivo V27e phone? | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/inside-scoop-on-the-upcoming-google-pixel-fold-2-anticipated-costs-launch-timeline-and-latest-speculations/"><u>Inside Scoop on the Upcoming Google Pixel Fold 2 - Anticipated Costs, Launch Timeline & Latest Speculations!</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ry-text-magic-two-dynamic-techniques-explored-for-2024/"><u>Jittery Text Magic Two Dynamic Techniques Explored for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/reliable-strategy-to-infuse-direct-urls-in-tiktok-bio-for-2024/"><u>Reliable Strategy to Infuse Direct URLs in TikTok Bio for 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-the-issue-how-to-recover-from-a-binkw32dll-file-not-found/"><u>Resolving the Issue: How to Recover From a binkw32.dll File Not Found</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/cketing-numbers-a-guide-to-youtube-viewership-increase-for-2024/"><u>Skyrocketing Numbers A Guide to YouTube Viewership Increase for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-transforming-viewership-into-income-youtubes-advertising-guide/"><u>[New] In 2024, Transforming Viewership Into Income YouTube's Advertising Guide</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-sound-trailblazers-guide-kicking-off-with-fade-in-techniques/"><u>[New] The Sound Trailblazer’s Guide Kicking Off with Fade-In Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlock-easy-paths-for-exceptional-yt-thumbnails-for-2024/"><u>[New] Unlock Easy Paths for Exceptional YT Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/isionary-graphs-on-upcoming-23-trends/"><u>[New] Visionary Graphs on Upcoming '23 Trends</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ero-cost-frame-perfection-on-youtube-video-viewing/"><u>[New] Zero-Cost Frame Perfection on YouTube Video Viewing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-from-passive-viewers-to-earnings-youtubes-monetization-mastery/"><u>[Updated] 2024 Approved From Passive Viewers to Earnings YouTube's Monetization Mastery</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-revolutionize-content-consumption-uncover-the-best-6-free-and-online-platforms-for-short-film-downloads/"><u>[Updated] 2024 Approved Revolutionize Content Consumption Uncover the Best 6 Free & Online Platforms for Short Film Downloads</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-harnessing-ambiance-with-thoughtful-lighting/"><u>[Updated] In 2024, Harnessing Ambiance with Thoughtful Lighting</u></a></li>
+<li><a href="https://blog-min.techidaily.com/4-ways-to-transfer-music-from-vivo-v27-pro-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>4 Ways to Transfer Music from Vivo V27 Pro to iPhone | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/9-best-phone-monitoring-apps-for-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>9 Best Phone Monitoring Apps for Apple iPhone 13 Pro | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723009876197-discord-overlay-troubles-resolve-the-problem-now-in-minutes/"><u>Discord Overlay Troubles? Resolve the Problem Now in Minutes!</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ipogo-will-be-the-new-ispoofer-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, iPogo will be the new iSpoofer On Xiaomi 14 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://win-blog.techidaily.com/solving-the-detection-problem-top-six-tips-for-steam-virtual-reality-devices/"><u>Solving the Detection Problem: Top Six Tips for Steam Virtual Reality Devices</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-7-phone-number-locators-to-track-itel-a05s-location-drfone-by-drfone-virtual-android/"><u>Top 7 Phone Number Locators To Track Itel A05s Location | Dr.fone</u></a></li>
 </ul></div>
 

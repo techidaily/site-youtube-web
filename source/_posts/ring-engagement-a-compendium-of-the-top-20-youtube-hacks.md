@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering Engagement  A Compendium of the Top 20 YouTube Hacks\""
-date: 2024-09-11T04:21:28.944Z
-updated: 2024-09-12T04:21:28.944Z
+date: 2024-11-01T18:42:27.581Z
+updated: 2024-11-07T17:13:20.212Z
 tags:
   - ai video
   - ai youtube
@@ -28,20 +28,6 @@ YouTube, as one of the most popular free streaming video portals, the majority o
 
 With that said, the following two-columned tables give you detailed information on the shortcut keys and their respective functions, so you don’t have to grab the mouse every time you want to navigate through the YouTube videos, or do any such similar tasks.
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Amazing YouTube Keyboard Shortcuts You May Not Know
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
@@ -54,26 +40,6 @@ While watching a YouTube video, there might be instances when you want to pause 
 | ----------------- | -------------------------------------- |
 | 'K'               | Play and Pause (Works as a toggle key) |
 | 'Spacebar'        | Play and Pause (Works as a toggle key) |
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983553">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Category 2: Scrolling YouTube Videos Back and Forth
 
@@ -94,19 +60,12 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047351/19272" target="_top" id="2047351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047351" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Category 3: Manage Playback Speed
 
@@ -116,26 +75,6 @@ This category contains information on increasing or decreasing the playback spee
 | ---------------------- | ----------------------- |
 | 'SHIFT' + '.' (Period) | Increase playback speed |
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Category 4: Managing the Captions
 
@@ -159,20 +98,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121332/18498" target="_top" id="2121332">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121332" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121332/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -186,6 +111,13 @@ The shortcut keys given in this table enable you to switch between different scr
 Double press F/T/I on the keyboard will exit the full-screen/theater model/independent mode accordingly.
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Category 7: Viewing 360o/VR Videos
 
@@ -211,25 +143,12 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 **Conclusion**
 
@@ -241,20 +160,24 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -263,4 +186,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ow-to-transform-brainstorms-into-youtube-channel-names/"><u>[New] How To Transform Brainstorms Into YouTube Channel Names</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-revolutionize-your-facebook-presence-with-these-10-strategies/"><u>[New] Revolutionize Your Facebook Presence with These 10 Strategies</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-smooth-snapshot-mastery-eliminate-shakes/"><u>[Updated] 2024 Approved Smooth Snapshot Mastery - Eliminate Shakes</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-action-camera-mics-top-tier-selection-unveiled/"><u>[Updated] Action Camera Mics Top-Tier Selection Unveiled</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-detailed-guide-instastickers-your-pathway-to-musical-posting/"><u>[Updated] In 2024, Detailed Guide InstaStickers – Your Pathway to Musical Posting</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-uncovering-the-essence-of-obss-screen-capture-features/"><u>[Updated] In 2024, Uncovering the Essence of OBS's Screen Capture Features</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-incorporating-cards-and-annotations-in-youtube-content/"><u>[Updated] Incorporating Cards and Annotations in YouTube Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-leveraging-youtube-studio-across-devices/"><u>[Updated] Leveraging Youtube Studio Across Devices</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-setting-up-a-sports-channel-from-scratch-mac-style-for-2024/"><u>[Updated] Setting up a Sports Channel From Scratch, Mac-Style for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-fast-lanes-for-jumbled-youtube-playlist-arrangement/"><u>2024 Approved Fast Lanes for Jumbled YouTube Playlist Arrangement</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-how-to-share-a-private-youtube-video/"><u>2024 Approved How to Share a Private YouTube Video?</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-in-depth-methodology-for-adding-srt-in-mp4-files/"><u>2024 Approved In-Depth Methodology for Adding SRT in MP4 Files</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/discover-the-6-ultimate-no-cost-dvd-creation-tools-for-microsoft-operating-systems-windows-1087/"><u>Discover the 6 Ultimate No-Cost DVD Creation Tools for Microsoft Operating Systems (Windows 10/8/7)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/6-best-youtube-to-mp3-downloader-for-android-for-2024/"><u>FREE 6 Best YouTube to MP3 Downloader for Android for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/s-galaxy-a-thousand-stars-in-gaming/"><u>Gamers' Galaxy A Thousand Stars in Gaming</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-banish-coffee-stains-free-iphone-app-to-remove-red-eyes/"><u>In 2024, Banish Coffee Stains Free iPhone App to Remove Red Eyes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/up-to-date-with-youtube-community-guidelines/"><u>Keep Up-to-Date With YouTube Community Guidelines</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/e-recommendations-simple-profitable-youtube-purchases/"><u>Rookie Recommendations Simple, Profitable YouTube Purchases</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/the-ultimate-tutorial-on-easy-driver-updates-for-the-microsoft-sculpt-keyboard/"><u>The Ultimate Tutorial on Easy Driver Updates for the Microsoft Sculpt Keyboard</u></a></li>
+</ul></div>
 

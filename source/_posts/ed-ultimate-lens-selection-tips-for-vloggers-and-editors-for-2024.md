@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Ultimate Lens Selection Tips for Vloggers & Editors for 2024"
-date: 2024-10-31T20:18:09.576Z
-updated: 2024-11-02T01:01:40.699Z
+date: 2024-11-02T19:52:42.554Z
+updated: 2024-11-07T22:45:56.297Z
 tags:
   - ai video
   - ai youtube
@@ -62,10 +62,10 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043618/7443" target="_top" id="2043618">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043618" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043618/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
@@ -91,10 +91,16 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975648">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Crop Factor
@@ -121,10 +127,10 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
+  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Aperture
@@ -155,13 +161,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -175,6 +174,13 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948905/19272" target="_top" id="1948905">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948905" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948905/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -197,19 +203,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-accessible-video-ideas-the-simplest-10-concepts-everyone-can-learn-to-make/"><u>[New] 2024 Approved Accessible Video Ideas The Simplest 10 Concepts Everyone Can Learn to Make</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-elegant-aesthetics-mastering-youtubes-beauty-landscape/"><u>[New] 2024 Approved Elegant Aesthetics Mastering YouTube's Beauty Landscape</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-elevating-profits-via-celebrity-skincare-channels/"><u>[New] 2024 Approved Elevating Profits via Celebrity Skincare Channels</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-expert-choices-best-video-cards-for-youtubes-clearest-output/"><u>[New] 2024 Approved Expert Choices Best Video Cards for YouTube's Clearest Output</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-game-masters-and-youtube-earning-strategies-for-2024/"><u>[New] Game Masters & YouTube Earning Strategies for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-ideal-episodic-unveiling-schedule/"><u>[Updated] Ideal Episodic Unveiling Schedule</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-mobile-mastery-best-apps-for-photo-enhancing-features/"><u>[Updated] In 2024, Mobile Mastery Best Apps for Photo-Enhancing Features</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-streamlined-iphone-snapchat-linkage-for-photographs-and-memories-for-2024/"><u>[Updated] Streamlined iPhone-Snapchat Linkage for Photographs & Memories for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-bypass-android-lock-screen-using-emergency-call-on-itel-a60s-by-drfone-android/"><u>How to Bypass Android Lock Screen Using Emergency Call On Itel A60s?</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-key-10-windows-software-for-superior-tiktok-editing/"><u>In 2024, Key 10 Windows Software for Superior TikTok Editing</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-outdoor-gadgets-for-making-road-trip-videos/"><u>In 2024, Outdoor Gadgets for Making Road-Trip Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-ways-to-boost-your-video-watch-count-responsibly-for-2024/"><u>Legal Ways to Boost Your Video Watch Count Responsibly for 2024</u></a></li>
-<li><a href="https://driver-install.techidaily.com/mend-windows-11s-graphics-with-acer-software/"><u>Mend Windows 11'S Graphics with Acer Software</u></a></li>
-<li><a href="https://discover-forum.techidaily.com/resolvido-no-se-encuentra-el-ssd-con-la-herramienta-de-disco-kingston-en-windows-11/"><u>Resolvido: No Se Encuentra El SSD Con La Herramienta De Disco Kingston en Windows 11</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-youtube-shorts-ultimate-guide/"><u>[Updated] 2024 Approved YouTube Shorts Ultimate Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-footage-to-feature-making-youtube-thumbnails-mobile-for-2024/"><u>[Updated] From Footage to Feature Making YouTube Thumbnails (Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-immerse-in-unprecedented-reality-stories/"><u>[Updated] Immerse in Unprecedented Reality Stories</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-comprehensive-tips-ifunny-meme-download-and-use/"><u>[Updated] In 2024, Comprehensive Tips IFunny Meme Download & Use</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unraveling-the-mystery-of-phantoms-velocity-inversion/"><u>[Updated] Unraveling the Mystery of Phantom's Velocity Inversion</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-essential-youtube-beauty-guides-you-cant-miss/"><u>2024 Approved The Essential YouTube Beauty Guides You Can't Miss</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-get-the-most-recent-logiten-g403-driver-update-for-pcs/"><u>How to Get the Most Recent Logiten G403 Driver Update for PCs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-audience-choice-great-movies-not-on-the-main-list/"><u>In 2024, Audience Choice Great Movies Not on the Main List</u></a></li>
+<li><a href="https://fox-that.techidaily.com/resolving-the-sim-card-not-provided-issue-a-step-by-step-guide/"><u>Resolving the SIM Card Not Provided Issue: A Step-by-Step Guide</u></a></li>
+<li><a href="https://extra-information.techidaily.com/venture-beyond-reality-with-our-top-1-cookies-in-mobile-vr-technology/"><u>Venture Beyond Reality with Our Top 1 Cookies in Mobile VR Technology</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/what-does-jailbreaking-apple-iphone-7-plus-i-do-get-answers-here-by-drfone-ios/"><u>What Does Jailbreaking Apple iPhone 7 Plus i Do? Get Answers here</u></a></li>
 </ul></div>
 

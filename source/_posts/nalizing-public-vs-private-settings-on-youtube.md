@@ -1,7 +1,7 @@
 ---
 title: "Personalizing Public vs Private Settings on YouTube"
-date: 2024-10-29T19:10:07.802Z
-updated: 2024-11-01T23:53:31.753Z
+date: 2024-11-06T18:48:30.219Z
+updated: 2024-11-07T17:37:35.237Z
 tags:
   - ai video
   - ai youtube
@@ -75,13 +75,6 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997690/19272" target="_top" id="1997690">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997690" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997690/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -89,13 +82,20 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975836/19272" target="_top" id="1975836">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975836" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975836/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
@@ -104,10 +104,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111994/7443" target="_top" id="2111994">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111994" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/863035/11832" target="_top" id="863035">
+  <img src="//a.impactradius-go.com/display-ad/11832-863035" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111994/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/863035/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -119,10 +119,10 @@ thumbnail: https://thmb.techidaily.com/388b9b2fa822d07d170581d6fc602d4ca55180e6b
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -146,22 +146,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-exposed-the-hazards-of-fake-follower-purchases-on-youtube/"><u>[New] 2024 Approved Exposed The Hazards of Fake Follower Purchases on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-how-to-locate-your-youtube-fanbase/"><u>[New] 2024 Approved How to Locate Your YouTube Fanbase</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-key-dimensions-youtube-titles-and-images-that-work/"><u>[New] 2024 Approved Key Dimensions YouTube Titles & Images That Work</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-optimizing-hashtags-for-youtube-traffic-triplets/"><u>[New] 2024 Approved Optimizing Hashtags for YouTube Traffic Triplets</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-key-money-making-moves-for-youtube-rookies-for-2024/"><u>[New] 8 Key Money-Making Moves for YouTube Rookies for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-ideal-steps-for-silent-screen-imaging/"><u>[New] In 2024, Ideal Steps for Silent Screen Imaging</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-pictureweaver-pro-online-illustration-hub/"><u>[New] In 2024, PictureWeaver Pro Online Illustration Hub</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-expert-guide-to-earning-with-youtube/"><u>[New] In 2024, The Expert Guide to Earning with YouTube</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-zooms-playbook-for-precision-and-polished-youtube-conferences/"><u>[Updated] 2024 Approved Zoom's Playbook for Precision and Polished YouTube Conferences</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-your-ultimate-guide-to-mac-audio-capture-via-audacity/"><u>2024 Approved Your Ultimate Guide to Mac Audio Capture via Audacity</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-and-visual-summary-synthesizer/"><u>Aural and Visual Summary Synthesizer</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/dubai-2020-expo-pioneering-multilingual-education/"><u>Dubai 2020 Expo: Pioneering Multilingual Education</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-honor-magic-6-pro-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Honor Magic 6 Pro Without PUK Codes</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/new-in-2024-an-ultimate-guide-of-best-narrator-voice-generators/"><u>New In 2024, An Ultimate Guide of Best Narrator Voice Generators</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/step-by-step-guide-resetting-your-iphone-without-a-known-password/"><u>Step-by-Step Guide: Resetting Your iPhone Without a Known Password</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-rescaling-perfect-mac-pixels-with-youtube-for-2024/"><u>Swift Rescaling Perfect Mac Pixels with YouTube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/0-ios-and-android-beginner-video-makers/"><u>Top 10 iOS & Android Beginner Video-Makers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-xsplit-evaluation-direct-access-to-game-splits/"><u>[New] 2024 Approved XSplit Evaluation Direct Access to Game Splits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/77302481-new-2024-approved-your-life-your-legacy-youtube-videos-that-matter/"><u>[New] 2024 Approved Your Life, Your Legacy YouTube Videos That Matter.</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ccelerate-youtube-visibility-select-top-8-rank-watchers/"><u>[New] Accelerate YouTube Visibility - Select Top 8 Rank Watchers</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-getting-started-on-youtube-broadcasts-using-obs/"><u>[New] In 2024, Getting Started on YouTube Broadcasts Using OBS</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-mastering-audio-extraction-youtube-to-mp3-in-macos/"><u>[Updated] 2024 Approved Mastering Audio Extraction YouTube to MP3 in MacOS</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-youtubes-earnings-strategy-explored/"><u>[Updated] 2024 Approved YouTube's Earnings Strategy Explored</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-best-wedding-stories-online-youtube-plus-vimeos-selection-8/"><u>[Updated] In 2024, The Best Wedding Stories Online YouTube + Vimeo's Selection (8)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unlocking-youtubes-viewer-count-secret-weights/"><u>[Updated] In 2024, Unlocking YouTube's Viewer Count Secret Weights</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-mastering-effective-social-media-video-promos-for-2024/"><u>[Updated] Mastering Effective Social Media Video Promos for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-pro-tips-top-11-inexpensive-youtube-naming-tools/"><u>In 2024, Pro Tips Top 11 Inexpensive YouTube Naming Tools</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-snapshot-success-the-photographers-tale/"><u>In 2024, Snapshot Success The Photographer's Tale</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/restful-reelings-audiovisual-storytelling/"><u>Restful Reelings Audiovisual Storytelling</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-guide-to-strategic-tag-application-for-2024/"><u>The Ultimate Guide to Strategic Tag Application for 2024</u></a></li>
 </ul></div>
 

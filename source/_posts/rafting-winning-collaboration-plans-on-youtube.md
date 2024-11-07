@@ -1,7 +1,7 @@
 ---
 title: "[New] Crafting Winning Collaboration Plans on YouTube"
-date: 2024-10-25T18:49:24.748Z
-updated: 2024-11-02T03:44:00.528Z
+date: 2024-11-05T21:09:54.279Z
+updated: 2024-11-07T21:44:41.823Z
 tags:
   - ai video
   - ai youtube
@@ -68,13 +68,6 @@ People sub to Roberto for tech advice, for example, so it makes sense for him to
 
 If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Tips From YouTube Guru Nich Nimmin
 
 This is a collab video about collab videos! **[Nick Nimmin’s](https://www.youtube.com/channel/UCei6wyubYC1I1FwZ54LZFiA)** channel is all about YouTube, and Brandon’s channel **[OnePercentBetter](https://www.youtube.com/channel/UCRI6t05DNVlV0XhdI7hx%5Fiw)** has tons of cool self-development animations. It’s Brandon giving the tips in this video, and 3 of his best are:
@@ -90,6 +83,13 @@ When you’re approaching someone for the first time, don’t overwhelm them wit
 #### **3\. Have ideas.**
 
 Don’t make your potential partner do the work of pitching ideas to you. Be open to their ideas, but come up with 1 or 2 ideas of your own you can mention when you approach the creator you want to work with. People will be more likely to say ‘yes’ to a specific idea than to the idea of collaborating in general, if they don’t already know you.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151889/7443" target="_top" id="2151889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151889" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151889/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tips From Freelancer / Lifestyle Vlogger Amy Schmittauer
 
@@ -110,10 +110,10 @@ If you appeared in someone else’s video, you would probably appreciate it if t
  _Collab advice starts at around 2:10._
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
+  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
@@ -134,24 +134,30 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
 
  Do you have any of your advice on YouTube collaborations?
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Excellent YouTube Video Editor Always Save Your Time
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1521325/16446" target="_top" id="1521325">
+  <img src="//a.impactradius-go.com/display-ad/16446-1521325" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1521325/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -175,19 +181,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-achieving-top-quality-on-youtube-video-enhancement-fundamentals/"><u>[New] 2024 Approved Achieving Top Quality on YouTube Video Enhancement Fundamentals</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-conveniently-remove-downloaded-youtube-media-for-lightweight-devices/"><u>[New] 2024 Approved Conveniently Remove Downloaded YouTube Media for Lightweight Devices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-effortlessly-download-your-favorite-youtube-playlists/"><u>[New] 2024 Approved Effortlessly Download Your Favorite YouTube Playlists</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-the-art-of-instantaneous-deletion-of-youtube-discussions/"><u>[New] 2024 Approved Mastering the Art of Instantaneous Deletion of YouTube Discussions</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-professional-footage-integrating-watermarks-and-logos-into-yt-videos/"><u>[New] 2024 Approved Professional Footage Integrating Watermarks and Logos Into YT Videos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-decoding-the-perfection-of-hp-envy-27s-design/"><u>[New] In 2024, Decoding the Perfection of HP Envy 27'S Design</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-top-ten-mobile-sticker-adornment-apps-for-photos/"><u>[Updated] In 2024, Top Ten Mobile Sticker Adornment Apps for Photos</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-essential-recommendations-for-maximum-data-keep/"><u>2024 Approved Essential Recommendations for Maximum Data Keep</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-latest-hp-n840-g3-drivers-comprehensive-downloading-instructions/"><u>Get the Latest HP N840 G3 Drivers – Comprehensive Downloading Instructions</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/how-to-check-distance-and-radius-on-google-maps-for-your-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>How to Check Distance and Radius on Google Maps For your Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/inflatable-microphones-for-diverse-scenarios/"><u>Inflatable Microphones for Diverse Scenarios</u></a></li>
-<li><a href="https://fox-links.techidaily.com/jest-jar-your-best-free-meme-source/"><u>Jest Jar Your Best Free Meme Source</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-the-easy-ways-to-turn-your-watching-experience-on-youtube-into-a-screencast-without-money/"><u>Learn the Easy Ways to Turn Your Watching Experience on YouTube Into a Screencast Without Money</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolving-the-binkw32dll-file-not-found-mistake-a-step-by-step-guide/"><u>Resolving the binkw32.dll File Not Found Mistake: A Step-by-Step Guide</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-top-video-enhancements-in-obs-studio-edits/"><u>[New] 2024 Approved Top Video Enhancements in OBS Studio Edits</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-compact-powerful-and-stylish-8-top-5k-monitors-for-2024/"><u>[New] Compact, Powerful & Stylish #8 Top 5K Monitors for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ive-deep-into-dynamic-dialogue-dives/"><u>[New] Dive Deep Into Dynamic Dialogue Dives</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-experience-retro-gaming-glory-with-best-pc-ps1-emulation-software-for-2024/"><u>[New] Experience Retro Gaming Glory with Best PC PS1 Emulation Software for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-tier-free-video-editing-software-guide-for-iphoneipad-users-for-2024/"><u>[New] Top-Tier Free Video Editing Software Guide for iPhone/iPad Users for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-drone-fundamentals-an-overview-of-their-workings-for-2024/"><u>[Updated] Drone Fundamentals An Overview of Their Workings for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-professional-filmmaking-essentials-ideal-lenses-to-consider-for-2024/"><u>[Updated] Professional Filmmaking Essentials Ideal Lenses to Consider for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elevate-your-channels-popularity-with-12-key-growth-techniques/"><u>2024 Approved Elevate Your Channel's Popularity with 12 Key Growth Techniques</u></a></li>
+<li><a href="https://fake-location.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Samsung Galaxy A05s | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/common-problems-and-solutions-for-amazon-fire-tv-remotes/"><u>Common Problems and Solutions for Amazon Fire TV Remotes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/te-your-brand-explore-these-10-essential-youtube-creators-for-2024/"><u>Elevate Your Brand Explore These 10 Essential YouTube Creators for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-8-safe-and-effective-methods-to-unlock-your-apple-iphone-12-mini-without-a-passcode-by-drfone-ios/"><u>In 2024, 8 Safe and Effective Methods to Unlock Your Apple iPhone 12 mini Without a Passcode</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/in-2024-how-to-change-your-infinix-zero-5g-2023-turbo-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Infinix Zero 5G 2023 Turbo Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iques-for-efficiently-blending-flv-files-for-2024/"><u>Techniques for Efficiently Blending FLV Files for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ssential-manual-for-youtube-to-gif-conversion-online/"><u>The Essential Manual for YouTube-to-GIF Conversion Online</u></a></li>
 </ul></div>
 

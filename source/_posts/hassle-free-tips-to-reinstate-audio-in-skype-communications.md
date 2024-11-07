@@ -1,7 +1,7 @@
 ---
 title: Hassle-Free Tips to Reinstate Audio in Skype Communications
-date: 2024-10-28T20:05:46.337Z
-updated: 2024-11-02T03:39:24.361Z
+date: 2024-11-02T16:42:36.175Z
+updated: 2024-11-07T22:53:19.723Z
 tags:
   - win11
   - win10
@@ -45,14 +45,22 @@ thumbnail: https://thmb.techidaily.com/6606769b9bc0a3d1ddf4196efcbbf3ffe5de65576
 1. On your keyboard, press**the Windows logo key** and**R** at the same time to open the Run dialog. Type**control /name Microsoft.Sound** and press**Enter** to open**Windows sound settings** .  
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/2019-09-20_11-36-29-1.png)
 2. In the Windows audio settings window, navigate to**the Recording tab** , select the microphone you want to test and click**Configure** .  
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/2019-09-20_11-37-58.png)
 3. Click**Set up microphone** .  
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134501/19576" target="_top" id="2134501">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134501" border="0" alt="https://techidaily.com" width="640" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134501/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/2019-09-20_11-38-40.png)
@@ -60,14 +68,14 @@ thumbnail: https://thmb.techidaily.com/6606769b9bc0a3d1ddf4196efcbbf3ffe5de65576
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/2019-09-20_11-39-30.png)
 5. Follow the**Microphone Setup Wizard** to configure your microphone. Close the wizard when it completes.  
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/2019-09-20_11-40-26.png)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Step 2: Test your microphone
 
@@ -78,16 +86,10 @@ Follow the steps below to test your microphone in Windows audio settings:
 2. Navigate to**the Recording tab** . Select the microphone you’re going to test, then try speaking into your microphone to test if it works properly. If it is, you should see some green in the bar on the right. Click**OK** to close the window after testing.  
 
 <!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/2019-09-20_11-42-45.png)
@@ -95,13 +97,6 @@ Follow the steps below to test your microphone in Windows audio settings:
  If the microphone you’re going to test is not the default device for recording, you need to click**the Set Default button** to set it as the default device first.
 
 ---
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925468/19272" target="_top" id="1925468">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925468" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925468/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Method 2: Mic testing with the built-in Voice Recorder app
 
@@ -115,23 +110,23 @@ Follow the steps below to test your microphone in Windows audio settings:
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/2019-09-20_11-46-27.png)
 4. Click the recording file to replay it. If your microphone is fine, you should be able to hear your voice clearly.  
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![](https://images.drivereasy.com/wp-content/uploads/2019/05/2019-09-20_11-47-16.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ---
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Bonus tip: How to fix microphone not working on your computer?
 
@@ -175,21 +170,24 @@ Follow the steps below to test your microphone in Windows audio settings:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-5-second-stories-explained-well/"><u>[New] 2024 Approved 5-Second Stories Explained Well!</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-bargain-microphones-for-youtube-creators-starting-small/"><u>[New] 2024 Approved Bargain Microphones for YouTube Creators Starting Small</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-efficient-tagging-techniques-to-boost-your-youtube-traffic/"><u>[New] 2024 Approved Efficient Tagging Techniques to Boost Your Youtube Traffic</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-from-chaos-to-order-youtube-playlists-unveiled/"><u>[New] 2024 Approved From Chaos to Order YouTube Playlists Unveiled</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-youtube-tags-a-guide-to-identifying-top-picks/"><u>[New] 2024 Approved Mastering YouTube Tags A Guide to Identifying Top Picks</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-whispering-through-screens-a-private-story-journey/"><u>[New] 2024 Approved Whispering Through Screens A Private Story Journey</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-top-5-emulators-for-reviving-ps1-classics-on-pc/"><u>[Updated] 2024 Approved Top 5 Emulators for Reviving PS1 Classics on PC</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-amplify-your-voice-on-twitter-top-video-uploading-solutions/"><u>[Updated] Amplify Your Voice on Twitter Top Video Uploading Solutions</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/fire-up-the-connections-maintaining-long-lasting-streaks-for-2024/"><u>Fire Up the Connections Maintaining Long-Lasting Streaks for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-dimensions-for-youtube-thumbnail-attraction-for-2024/"><u>Ideal Dimensions for YouTube Thumbnail Attraction for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/illuminating-troubleshooting-techniques-for-the-mysterious-black-screen-of-windows-11/"><u>Illuminating Troubleshooting Techniques for the Mysterious Black Screen of Windows 11</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-samsung-galaxy-m34-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Samsung Galaxy M34 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/novice-necessities-your-first-steps-in-gopro-world/"><u>Novice Necessities - Your First Steps in GoPro World</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-points-revolutionize-your-youtube-angles-with-ease-for-2024/"><u>Pivot Points Revolutionize Your YouTube Angles with Ease for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/reimagining-your-images-effective-uses-of-the-background-eraser-in-adobe-photoshop/"><u>Reimagining Your Images Effective Uses of the Background Eraser in Adobe Photoshop</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-excessive-noise-in-playstation-4-consoles-tips-and-tricks/"><u>Resolving Excessive Noise in PlayStation 4 Consoles - Tips and Tricks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-income-investigation-the-streamlined-3-part-method-to-assess-your-youtube-income-levels/"><u>[New] In 2024, Income Investigation The Streamlined 3-Part Method to Assess Your YouTube Income Levels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-mastering-video-rankings-on-youtube-essential-seo-techniques-unveiled/"><u>[New] In 2024, Mastering Video Rankings on YouTube Essential SEO Techniques Unveiled</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-art-of-dual-careers-youtuber-and-full-time-employee/"><u>[New] In 2024, The Art of Dual Careers YouTuber & Full-Time Employee</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-mastering-the-art-of-clearing-youtubes-stored-videos/"><u>[New] Mastering the Art of Clearing YouTube's Stored Videos</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2023s-comprehensive-guide-to-ios-device-screen-capture-for-2024/"><u>[Updated] 2023'S Comprehensive Guide to iOS Device Screen Capture for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-best-cameras-to-amplify-your-yt-presence/"><u>[Updated] 2024 Approved Best Cameras to Amplify Your YT Presence</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-livestreaming-tools-evaluation-which-bets-on-performance/"><u>[Updated] 2024 Approved Livestreaming Tools Evaluation Which Bets on Performance?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-bite-sized-video-lessons-clearly-for-2024/"><u>[Updated] Bite-Sized Video Lessons, Clearly for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-finalizing-your-video-with-a-bold-statement/"><u>[Updated] In 2024, Finalizing Your Video with a Bold Statement</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-adding-clear-timestamps-to-your-youtube-channels-live-streams/"><u>2024 Approved Adding Clear Timestamps to Your YouTube Channel's Live Streams</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your iPhone 14 Pro Max</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/leveraging-spotifys-advertising-mechanisms-for-2024/"><u>Leveraging Spotify's Advertising Mechanisms for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/friendly-tv-setups-integrating-youtube-videos-for-2024/"><u>Loop-Friendly TV Setups Integrating YouTube Videos for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/mastering-video-storytelling-adding-narration-step-by-step-for-2024/"><u>Mastering Video Storytelling Adding Narration Step-by-Step for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/asts-wealth-estimated-net-worth/"><u>Mr. Beast's Wealth Estimated Net Worth</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/restored-clear-screen-view-on-dell-notebook-pcs/"><u>Restored Clear Screen View on Dell Notebook PCs</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/solving-absentee-mac-storage-drives-8-suggestions/"><u>Solving Absentee Mac Storage Drives – 8 Suggestions</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-updating-and-downloading-the-latest-version-of-the-intel-hd-graphics-5500-drivers/"><u>Step-by-Step Guide: Updating and Downloading the Latest Version of the Intel HD Graphics 5500 Drivers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ise-strategies-for-enhancing-yt-game-coverage-through-effective-hashing/"><u>Stepwise Strategies for Enhancing YT Game Coverage Through Effective Hashing</u></a></li>
 </ul></div>
 

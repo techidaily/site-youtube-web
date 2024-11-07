@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Ignite Conversations  Top 10 Creative Reaction Insights for Videos\""
-date: 2024-10-27T00:35:30.880Z
-updated: 2024-11-02T03:25:00.691Z
+date: 2024-11-04T22:38:45.987Z
+updated: 2024-11-07T16:06:30.468Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,19 @@ Previously we have demonstrated [how to create a YouTube reaction video with Fil
 
 The process of [making a YouTube video](https://tools.techidaily.com/wondershare/filmora/download/) starts with an idea and the idea you choose often determines how good that video is going to be. The fact that reaction videos are so popular on YouTube right now, makes the idea selection even more important because just one good idea may boost your number of followers significantly. Here are some of the best video reaction ideas you can use to comment on different topics.
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. React to music videos
 
 Music videos are among the most popular genres of videos on YouTube, which makes them perfect to react to. You can share your opinion about the musician, their latest work or the video’s visual aspects. Obtaining the copyrights to the music video you would like to comment on is very important, because you may be forced to delete your reaction video if you don’t.
@@ -56,10 +69,10 @@ Video games like Minecraft, Fortnite or Grand Theft Auto attract a lot of attent
 YouTubers that already have thousands of followers need to keep coming up with new ways to engage their audience. Encouraging the viewers of your videos to comment on them can be a valuable source of ideas for reaction videos. You can comment on the topics that were discussed in the comments and address particular questions your followers have asked you.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1925549/19272" target="_top" id="1925549">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925549" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925549/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Make a ‘Kids React To’ videos
@@ -74,26 +87,26 @@ Even though reacting to a reaction video sounds silly, it is anything but becaus
 
 Producing new content for your YouTube channel regularly is important for so many reasons, but recycling old material from time to time can allow you to reflect on the topics you already covered. In addition, you’ll remind your viewers of your old videos and give them the reason to watch them again. Opting to comment on the videos you made in the past can also help you avoid potential copyright complications.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Record reactions of elderly people
 
 It becomes increasingly difficult to keep up with the latest pop culture trends as we get older. That’s why elderly people often have trouble understanding the taste of younger generations. Recording their reactions to fashion choices young people make or the music they listen to can be hilarious, which makes it an excellent reaction video idea.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 8\. React to different challenges
 
 Over the course of the last decade, we’ve seen so many challenges go viral, as even the world’s most famous politicians took part in some of them. Challenge videos are not as popular as they used to be a few years ago, but they still amass thousands of views. Making funny reaction videos to different challenge videos may help you boost your number of followers, especially if you come up with witty remarks for each video you comment on.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151894/7443" target="_top" id="2151894">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151894" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151894/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. React to TV shows
@@ -109,13 +122,6 @@ Interested in Movie Trailer? You can now make it with some [best movie trailer m
 With these reaction video ideas in mind, you can practise it on YouTube, or TikTok. Check this article to find out [how to make a reaction video for TikTok](https://tools.techidaily.com/wondershare/filmora/download/) .
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Conclusion**
 
@@ -144,22 +150,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-techniques-to-avoid-blackout-issues-on-online-video-platform/"><u>[New] 2024 Approved Techniques to Avoid Blackout Issues on Online Video Platform</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-pros-playbook-for-top-10-music-videos-that-define-genres/"><u>[New] 2024 Approved The Pros' Playbook for Top 10 Music Videos That Define Genres</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-guide-to-8-mirrorless-cameras-for-vloggers/"><u>[New] 2024 Approved The Ultimate Guide to 8 Mirrorless Cameras for Vloggers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-guide-to-profiting-from-youtube-shorts-and-earning-potential/"><u>[New] 2024 Approved The Ultimate Guide to Profiting From Youtube Shorts & Earning Potential</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-list-of-5-youtube-competitor-editors/"><u>[New] 2024 Approved The Ultimate List of 5 YouTube Competitor Editors</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-top-8-youtube-images-that-captivate-and-convert-viewers/"><u>[New] 2024 Approved Top 8 YouTube Images That Captivate and Convert Viewers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unraveling-video-dimensions-a-complete-approach-for-yt-content/"><u>[New] 2024 Approved Unraveling Video Dimensions A Complete Approach for YT Content</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-decoding-the-top-rival-to-sharex/"><u>[New] In 2024, Decoding the Top Rival to ShareX</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-comedy-and-emotions-the-cutest-instagram-meme-groups-for-2024/"><u>[Updated] Comedy & Emotions The Cutest Instagram Meme Groups for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-game-enhancement-select-top-hdds-for-xbox/"><u>[Updated] Game Enhancement Select Top HDDs for Xbox</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-in-2024-achieving-flawless-fb-live-via-zoom-streaming/"><u>[Updated] In 2024, Achieving Flawless FB Live via Zoom Streaming</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-rise-above-the-noise-nine-strategies-for-instagram-prominence/"><u>[Updated] Rise Above the Noise Nine Strategies for Instagram Prominence</u></a></li>
-<li><a href="https://techidaily.com/1723808339414-cant-remember-the-password-for-gmail-try-these-fixes/"><u>Can't Remember the Password for Gmail? Try These Fixes</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-repair-alt-tab-not-working-glitch-on-your-computer/"><u>How to Repair 'Alt Tab Not Working' Glitch on Your Computer</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-4-ways-to-set-up-your-youtube-talking-head-shots/"><u>In 2024, 4 Ways To Set Up Your YouTube Talking-Head Shots</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-facebook-live-embedding-techniques-on-websites/"><u>In 2024, Mastering Facebook Live Embedding Techniques on Websites</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-transform-engagement-crafted-queries-for-personalized-ig-stories/"><u>In 2024, Transform Engagement Crafted Queries for Personalized IG Stories</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-the-blueprint-of-dynamic-dialogue-in-scripts/"><u>[New] 2024 Approved The Blueprint of Dynamic Dialogue in Scripts</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-transform-your-hauls-into-visual-stories/"><u>[New] 2024 Approved Transform Your Hauls Into Visual Stories</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-decoding-the-payment-structure-on-youtube/"><u>[New] In 2024, Decoding the Payment Structure on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-streaming-made-simple-free-downloader-to-mp3s-now/"><u>[New] In 2024, Streaming Made Simple Free Downloader to MP3s Now</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-step-by-step-strategies-for-successful-facebook-giving/"><u>[New] Step-by-Step Strategies for Successful Facebook Giving</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-unleashing-the-power-of-whiteboards-on-zoom-platforms-across-multiple-devices/"><u>2024 Approved Unleashing the Power of Whiteboards on Zoom Platforms Across Multiple Devices</u></a></li>
+<li><a href="https://techtrends.techidaily.com/assessing-zamzars-compliance-understanding-its-legality-and-privacy-measures/"><u>Assessing Zamzar's Compliance - Understanding Its Legality & Privacy Measures</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/t-director-of-visuals-and-music-for-2024/"><u>Expert Director of Visuals and Music for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-the-depths-of-asmr-content/"><u>Exploring the Depths of ASMR Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-amplify-your-content-two-approaches-to-skyrocket-traffic/"><u>In 2024, Amplify Your Content Two Approaches to Skyrocket Traffic</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-banner-bonanza-unlimited-50-free-youtube-designs/"><u>In 2024, Banner Bonanza Unlimited 50 FREE YouTube Designs</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/new-in-2024-transforming-lyrics-into-visual-masterpieces-using-adobe-ae/"><u>New In 2024, Transforming Lyrics Into Visual Masterpieces Using Adobe AE</u></a></li>
+<li><a href="https://games-able.techidaily.com/streamlining-game-footage-extraction-on-various-gpus/"><u>Streamlining Game Footage Extraction on Various GPUs</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/top-ranking-apple-watch-screen-guard-exclusive-review-of-the-ideal-picks-insights/"><u>Top-Ranking Apple Watch Screen Guard: Exclusive Review of the Ideal Picks - Insights</u></a></li>
 </ul></div>
 

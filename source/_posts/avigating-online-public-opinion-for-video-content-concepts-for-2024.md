@@ -1,7 +1,7 @@
 ---
 title: "[New] Navigating Online Public Opinion for Video Content Concepts for 2024"
-date: 2024-10-31T22:04:58.227Z
-updated: 2024-11-02T02:55:33.136Z
+date: 2024-11-03T22:37:18.242Z
+updated: 2024-11-07T21:22:51.700Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,13 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -91,22 +98,15 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144310/7443" target="_top" id="2144310">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144310" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144310/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
@@ -127,6 +127,13 @@ Although, when you do a comparison like this you should also go to YouTube and s
 
 ![YouTube search Filmora Keyword](https://images.wondershare.com/filmora/article-images/google-trends-youtube-keyword-search.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 _If my view of YouTube looks different from yours it’s because I’m using the [VidIQ plugin for Chrome](https://chrome.google.com/webstore/detail/vidiq-vision-for-youtube/pachckjkecffpdphbpmfolblodfkgbhl?hl=en). It’s free and it gives you all kinds of extra info about videos and channels._
 
 The second-highest ranked result is only 2 months old and isn’t from a huge channel. Although there is competition for this keyword, ranking for it is not impossible. It also helps that software reviews are a topic where people will always be looking for the latest information/newest videos.
@@ -137,27 +144,20 @@ One of the biggest benefits of identifying trends and making videos about them q
 
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -180,20 +180,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-step-up-your-video-game-expert-endorsed-cost-free-intro-creators/"><u>[New] 2024 Approved Step Up Your Video Game Expert-Endorsed, Cost-Free Intro Creators</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-strategic-insights-into-youtubes-adsense-earnings-by-thousand-viewers/"><u>[New] 2024 Approved Strategic Insights Into Youtube's AdSense Earnings by Thousand Viewers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-art-of-condensation-editing-youtube-video-durations/"><u>[New] 2024 Approved The Art of Condensation Editing YouTube Video Durations</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-checklist-for-constructing-your-youtube-musical-assortment/"><u>[New] 2024 Approved The Ultimate Checklist for Constructing Your YouTube Musical Assortment</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-guide-to-youtubes-best-music-responses/"><u>[New] 2024 Approved The Ultimate Guide to YouTube's Best Music Responses</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-uncharted-film-hits-of-2023/"><u>[New] 2024 Approved Uncharted Film Hits of 2023</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unveiling-the-process-of-identifying-youtube-audience/"><u>[New] 2024 Approved Unveiling the Process of Identifying YouTube Audience</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-crafting-dazzling-instagram-stories-with-multi-image-techniques/"><u>[Updated] In 2024, Crafting Dazzling Instagram Stories with Multi-Image Techniques</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-medical-and-health-facebook-ads-campaign-tips/"><u>[Updated] In 2024, Medical And Health Facebook Ads Campaign Tips</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-optimize-tiktok-interaction-learning-to-update-numbers/"><u>[Updated] Optimize TikTok Interaction Learning to Update Numbers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-premium-viewership-the-ultimate-youtube-wealth/"><u>2024 Approved Premium Viewership The Ultimate YouTube Wealth</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722977375282-get-the-newest-drivers-for-your-hp-elitebook-x360-103er-g2-now/"><u>Get the Newest Drivers for Your HP EliteBook X360 103Er G2 Now!</u></a></li>
-<li><a href="https://fox-http.techidaily.com/in-2024-bridging-reality-and-simulation/"><u>In 2024, Bridging Reality and Simulation</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/in-2024-crafting-content-that-captivates-a-guide-to-facebook-reels/"><u>In 2024, Crafting Content that Captivates A Guide to Facebook Reels</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/synaptics-drivers-for-windows-made-easy-free-download-and-update-options/"><u>Synaptics Drivers for Windows Made Easy – Free Download & Update Options!</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-visionsnap-tech-your-guide-to-the-best-of-2023/"><u>[New] 2024 Approved VisionSnap Tech – Your Guide to the Best of 2023</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-chasing-likes-and-loads-jake-pauls-youtube-ambition/"><u>[New] In 2024, Chasing Likes and Loads Jake Paul's YouTube Ambition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-mitigating-the-risk-of-youtube-sanctions/"><u>[New] In 2024, Mitigating the Risk of YouTube Sanctions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-videosnatch-quality-inspector/"><u>[New] VideoSnatch Quality Inspector</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-quick-tips-for-easy-youtube-thumbnail-acquisition-zero-price/"><u>[Updated] 2024 Approved Quick Tips for Easy YouTube Thumbnail Acquisition – Zero Price</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-vlogger-to-earnest-by-year-end-following-sourav-joshis-examples/"><u>[Updated] From Vlogger to Earnest by Year End - Following Sourav Joshi's Examples</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-honor-play-8t-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Honor Play 8T | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/chinas-economical-virtual-reality-options-for-2024/"><u>China's Economical Virtual Reality Options for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/easy-fixes-for-missing-bluetooth-in-windows-10-step-by-step-guide/"><u>Easy Fixes for Missing Bluetooth in Windows 10 – Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-edit-like-a-pro-with-any-of-these-top-7-free-options/"><u>In 2024, Edit Like a Pro with Any of These Top 7 Free Options</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-kickstarting-creativity-an-equipment-guide-for-beginners/"><u>In 2024, Kickstarting Creativity An Equipment Guide for Beginners</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-pro-audio-software-win-edition/"><u>In 2024, Pro Audio Software Win Edition</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/inside-toms-gadget-rundown-your-source-for-computer-components/"><u>Inside Tom's Gadget Rundown: Your Source for Computer Components</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/optimizacion-del-rendimiento-visual-a-traves-de-intelligent-frame-interpolation-aumento-fps-y-transiciones-sin-esfuerzo/"><u>Optimización Del Rendimiento Visual a Través De Intelligent Frame Interpolation - Aumento FPS Y Transiciones Sin Esfuerzo</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-tutorial-mastering-the-art-of-powerpoint-updates/"><u>Ultimate Tutorial: Mastering the Art of PowerPoint Updates</u></a></li>
 </ul></div>
 
