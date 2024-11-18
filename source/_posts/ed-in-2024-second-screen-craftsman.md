@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Second-Screen Craftsman\""
-date: 2024-11-01T22:27:31.296Z
-updated: 2024-11-07T20:38:57.612Z
+date: 2024-11-13T21:57:15.047Z
+updated: 2024-11-18T08:09:46.716Z
 tags:
   - ai video
   - ai youtube
@@ -99,141 +99,32 @@ Export
 
 Once you are done editing and happy with the outcome, select the Export button to start rendering the video. Here you can choose to publish it on YouTube or save it for other uses.
 
+## Part 3\. YouTube Clip Maker for Android and iPhone
+
+**KineMaster**
+
+It is a simple-to-use application that lets you create professional-quality videos in very short minutes. It enables you to edit pre-made videos or lets you make fresh ones by combining your video with several visual and sound effects. After you are done with the editing, you can save your video or share it out there.
+
+**Steps on How to Use Kinemater**
+
+Step 1:**Create**
+
+It lets you import videos, audio, and images from your device. After which you can cut, rearrange, and transition between your images and videos using the KineMaster’s video layering support. This is highly dependent on your computer’s hardware capabilities.
+
+Step 2:**Edit**
+
+Adjust your video's appearance parameters by blending color modes, adding light and sound effects, overlaying graphics, and text, or rather directly drawing on the video by using the handwriting layers.
+
+Step 3:**Share**
+
+You can export your project up to 4k and 60fps. The app saves directly to your camera’s roll besides letting you share to social media.
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-## Part 3\. YouTube Clip Maker for Android and iPhone
-
-**KineMaster**
-
-It is a simple-to-use application that lets you create professional-quality videos in very short minutes. It enables you to edit pre-made videos or lets you make fresh ones by combining your video with several visual and sound effects. After you are done with the editing, you can save your video or share it out there.
-
-**Steps on How to Use Kinemater**
-
-Step 1:**Create**
-
-It lets you import videos, audio, and images from your device. After which you can cut, rearrange, and transition between your images and videos using the KineMaster’s video layering support. This is highly dependent on your computer’s hardware capabilities.
-
-Step 2:**Edit**
-
-Adjust your video's appearance parameters by blending color modes, adding light and sound effects, overlaying graphics, and text, or rather directly drawing on the video by using the handwriting layers.
-
-Step 3:**Share**
-
-You can export your project up to 4k and 60fps. The app saves directly to your camera’s roll besides letting you share to social media.
-
-## Part 4: Related FAQs
-
-****How to Make a Clip from a YouTube Video** **？**
-
-First, sign in to YouTube and start playing a video. Under the video click on the Clip, this will create a clip box after which you will select the part of the video that you want to clip. Give the clip a title then click share after which you will be prompted to choose an option for sharing.
-
-****How to Clip Parts of a YouTube Video** **？**
-
-Start by sign-in and opening YouTube then proceed by watching a video. If clips are available, you will see a clips icon in the bar at the bottom of the video. Click on the clip icon and select that part of the video you are interested in, give the clip a title, and select Share Clip. Choose whether you want to share the clip or save it for later use.
-
-****What YouTubers Use to Get Clips** **？**
-
-YouTubers use several video editors for their work. Some of the most popular editors are iMovie, Final Cut Pro X, and Premier Pro CC. These YouTube editing apps vary in technicalities of use and features whereby you will find that some are easy to use and have varying features. Some of the editors are free while others require payments for one to use.
-
-[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
-
-For macOS 10.12 or later
-
-**Steps on How to Use Filmora**
-
-This is an app that is best suited to those starting in video editing and requires the use of an easy-to-use app that can as well deliver quality work. Filmora is an application that was made with the armature editors in mind and is one they should consider while looking for a program to work with. It features some of the essential tools one would require and it is easy to learn how to navigate through it.
-
-Installation Steps
-
-* Click the icon in the center of the Media Library to add files directly.
-* Go File > Import Media > Import Media Files.
-* Drag and drop to the ‘media library’ directly.
-
-When importing a media file and Filmora asks you to create a proxy file to speed up the editing process. Select “Yes” to have a fast video editing experience.
-
-You can also import video clips using your Touch Bar controls if your computer has Touch Bar.
-
-Record a media file
-
-Apart from the videos shot by your digital devices, you can also directly import media files by recording video from your webcam, screen recording your computer, and a voice-over recording.
-
-Computer screen recording:
-
-Click the "Record" option, and choose "Record PC Screen" to get the built-in Wondershare Screen Recorder. Hit the red button to get started. To finish recording click on F9
-
-Record videos from webcam:
-
-Also, click the “Record” option, and choose “Record from Webcam”. In the recording pop-up window, select the red button, it will start the recording process and is also the button to choose when you want to stop recording. You will then select OK to save the recorded video clip.
-
-Record voice-over:
-
-Choose "Record a voiceover" on the Record menu. It would be better to connect a microphone to your Mac for a better result. Hit the Record button, and it leaves you 3 seconds to get ready.
-
-All media files recorded are automatically saved in the “Media Library”, in case of further editing, you can drag them to the timeline.
-
-## Part 2\. How to Make YouTube Clip Online
-
-[**www.youtubetrimmer.com**](http://www.youtubetrimmer.com)
-
-The application lets you trim your YouTube videos without having to have an account. It provides you with a quick way to either cut the beginning or end of a YouTube video. YouTube Trimmer will let you trim the video in a couple of seconds with just a few clicks. To use the app, you just need to copy and paste the earl and you are on your way to editing. You don't have to be worried about downloading or installing the application for you to use it.
-
-**Steps on How to Use YouTube Trimmer**
-
-Step 1:
-
-Import
-
-Copy the YouTube link that you want to work on and paste it into the field indicated on the application.
-
-Step 2:
-
-Trim and Edit
-
-You can drag the video at the edges to trim it. You can also move the playhead with your mouse and manually make cuts by clicking on the cut button.
-
-Step 3:
-
-Export
-
-Once you are done editing and happy with the outcome, select the Export button to start rendering the video. Here you can choose to publish it on YouTube or save it for other uses.
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-## Part 3\. YouTube Clip Maker for Android and iPhone
-
-**KineMaster**
-
-It is a simple-to-use application that lets you create professional-quality videos in very short minutes. It enables you to edit pre-made videos or lets you make fresh ones by combining your video with several visual and sound effects. After you are done with the editing, you can save your video or share it out there.
-
-**Steps on How to Use Kinemater**
-
-Step 1:**Create**
-
-It lets you import videos, audio, and images from your device. After which you can cut, rearrange, and transition between your images and videos using the KineMaster’s video layering support. This is highly dependent on your computer’s hardware capabilities.
-
-Step 2:**Edit**
-
-Adjust your video's appearance parameters by blending color modes, adding light and sound effects, overlaying graphics, and text, or rather directly drawing on the video by using the handwriting layers.
-
-Step 3:**Share**
-
-You can export your project up to 4k and 60fps. The app saves directly to your camera’s roll besides letting you share to social media.
 
 ## Part 4: Related FAQs
 
@@ -286,16 +177,10 @@ Choose "Record a voiceover" on the Record menu. It would be better to connect a 
 All media files recorded are automatically saved in the “Media Library”, in case of further editing, you can drag them to the timeline.
 
 <!-- affiliate ads begin -->
-<span id="1975636">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. How to Make YouTube Clip Online
@@ -344,6 +229,13 @@ Step 3:**Share**
 
 You can export your project up to 4k and 60fps. The app saves directly to your camera’s roll besides letting you share to social media.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4: Related FAQs
 
 ****How to Make a Clip from a YouTube Video** **？**
@@ -395,11 +287,107 @@ Choose "Record a voiceover" on the Record menu. It would be better to connect a 
 All media files recorded are automatically saved in the “Media Library”, in case of further editing, you can drag them to the timeline.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part 2\. How to Make YouTube Clip Online
+
+[**www.youtubetrimmer.com**](http://www.youtubetrimmer.com)
+
+The application lets you trim your YouTube videos without having to have an account. It provides you with a quick way to either cut the beginning or end of a YouTube video. YouTube Trimmer will let you trim the video in a couple of seconds with just a few clicks. To use the app, you just need to copy and paste the earl and you are on your way to editing. You don't have to be worried about downloading or installing the application for you to use it.
+
+**Steps on How to Use YouTube Trimmer**
+
+Step 1:
+
+Import
+
+Copy the YouTube link that you want to work on and paste it into the field indicated on the application.
+
+Step 2:
+
+Trim and Edit
+
+You can drag the video at the edges to trim it. You can also move the playhead with your mouse and manually make cuts by clicking on the cut button.
+
+Step 3:
+
+Export
+
+Once you are done editing and happy with the outcome, select the Export button to start rendering the video. Here you can choose to publish it on YouTube or save it for other uses.
+
+## Part 3\. YouTube Clip Maker for Android and iPhone
+
+**KineMaster**
+
+It is a simple-to-use application that lets you create professional-quality videos in very short minutes. It enables you to edit pre-made videos or lets you make fresh ones by combining your video with several visual and sound effects. After you are done with the editing, you can save your video or share it out there.
+
+**Steps on How to Use Kinemater**
+
+Step 1:**Create**
+
+It lets you import videos, audio, and images from your device. After which you can cut, rearrange, and transition between your images and videos using the KineMaster’s video layering support. This is highly dependent on your computer’s hardware capabilities.
+
+Step 2:**Edit**
+
+Adjust your video's appearance parameters by blending color modes, adding light and sound effects, overlaying graphics, and text, or rather directly drawing on the video by using the handwriting layers.
+
+Step 3:**Share**
+
+You can export your project up to 4k and 60fps. The app saves directly to your camera’s roll besides letting you share to social media.
+
+## Part 4: Related FAQs
+
+****How to Make a Clip from a YouTube Video** **？**
+
+First, sign in to YouTube and start playing a video. Under the video click on the Clip, this will create a clip box after which you will select the part of the video that you want to clip. Give the clip a title then click share after which you will be prompted to choose an option for sharing.
+
+****How to Clip Parts of a YouTube Video** **？**
+
+Start by sign-in and opening YouTube then proceed by watching a video. If clips are available, you will see a clips icon in the bar at the bottom of the video. Click on the clip icon and select that part of the video you are interested in, give the clip a title, and select Share Clip. Choose whether you want to share the clip or save it for later use.
+
+****What YouTubers Use to Get Clips** **？**
+
+YouTubers use several video editors for their work. Some of the most popular editors are iMovie, Final Cut Pro X, and Premier Pro CC. These YouTube editing apps vary in technicalities of use and features whereby you will find that some are easy to use and have varying features. Some of the editors are free while others require payments for one to use.
+
+[Try It Free](https://tools.techidaily.com/wondershare/filmora/download/)
+
+For macOS 10.12 or later
+
+**Steps on How to Use Filmora**
+
+This is an app that is best suited to those starting in video editing and requires the use of an easy-to-use app that can as well deliver quality work. Filmora is an application that was made with the armature editors in mind and is one they should consider while looking for a program to work with. It features some of the essential tools one would require and it is easy to learn how to navigate through it.
+
+Installation Steps
+
+* Click the icon in the center of the Media Library to add files directly.
+* Go File > Import Media > Import Media Files.
+* Drag and drop to the ‘media library’ directly.
+
+When importing a media file and Filmora asks you to create a proxy file to speed up the editing process. Select “Yes” to have a fast video editing experience.
+
+You can also import video clips using your Touch Bar controls if your computer has Touch Bar.
+
+Record a media file
+
+Apart from the videos shot by your digital devices, you can also directly import media files by recording video from your webcam, screen recording your computer, and a voice-over recording.
+
+Computer screen recording:
+
+Click the "Record" option, and choose "Record PC Screen" to get the built-in Wondershare Screen Recorder. Hit the red button to get started. To finish recording click on F9
+
+Record videos from webcam:
+
+Also, click the “Record” option, and choose “Record from Webcam”. In the recording pop-up window, select the red button, it will start the recording process and is also the button to choose when you want to stop recording. You will then select OK to save the recorded video clip.
+
+Record voice-over:
+
+Choose "Record a voiceover" on the Record menu. It would be better to connect a microphone to your Mac for a better result. Hit the Record button, and it leaves you 3 seconds to get ready.
+
+All media files recorded are automatically saved in the “Media Library”, in case of further editing, you can drag them to the timeline.
 
 ## Part 2\. How to Make YouTube Clip Online
 
@@ -482,21 +470,24 @@ YouTubers use several video editors for their work. Some of the most popular edi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-techniques-for-selective-youtube-video-downloading/"><u>[New] 2024 Approved Techniques for Selective YouTube Video Downloading</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/est-free-subtitles-and-downloader-guide/"><u>[New] Best Free Subtitles & Downloader Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/arness-the-full-potential-of-your-youtube-content-using-wmm-for-2024/"><u>[New] Harness the Full Potential of Your YouTube Content Using WMM for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-instagram-film-techniques-flawless-virtual-backdrops-integration/"><u>[New] In 2024, Instagram Film Techniques Flawless Virtual Backdrops Integration</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-the-financial-worth-one-million-youtube-eyes/"><u>[New] In 2024, The Financial Worth One Million YouTube Eyes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-lead-the-way-in-igtv-videos-with-best-ever-edits/"><u>[New] Lead the Way in IGTV Videos with Best-Ever Edits</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-simultaneous-video-documentation/"><u>[Updated] 2024 Approved Simultaneous Video Documentation</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-free-and-uncomplicated-youtube-image-extractor-tools-reviewed/"><u>[Updated] In 2024, Free and Uncomplicated YouTube Image Extractor Tools Reviewed</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-igtv-unveiled-5-essential-downloads-for-mobile-devices/"><u>[Updated] In 2024, IGTV Unveiled 5 Essential Downloads for Mobile Devices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-top-ten-lady-gamers-on-youtube-rising/"><u>[Updated] In 2024, Top Ten Lady Gamers on YouTube Rising</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unlocking-youtubes-central-hub-for-video-crafting/"><u>[Updated] In 2024, Unlocking YouTube's Central Hub for Video Crafting</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-embrace-authenticity-your-style-journey-begins-here/"><u>2024 Approved Embrace Authenticity Your Style Journey Begins Here</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-hidefake-snapchat-location-on-your-samsung-galaxy-a24-drfone-by-drfone-virtual-android/"><u>In 2024, How to Hide/Fake Snapchat Location on Your Samsung Galaxy A24 | Dr.fone</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-to-use-pokemon-emerald-master-ball-cheat-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Use Pokémon Emerald Master Ball Cheat On Apple iPhone 7 | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-subscribe-smart-hundreds-for-under-5/"><u>In 2024, Subscribe Smart - Hundreds for Under $5</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/smile-smarter-crafting-text-memes-like-a-pro/"><u>Smile Smarter Crafting Text Memes Like a Pro</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-fresh-footage-frequent-flows-dos-and-donts-for-streamlining-video-content/"><u>[New] 2024 Approved Fresh Footage, Frequent Flows Do's & Don'ts for Streamlining Video Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iy-youtube-music-collection-a-comprehensive-online-and-app-method-for-2024/"><u>[New] DIY YouTube Music Collection A Comprehensive Online & App Method for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ause-autoplay-on-youtube-suggested-videos-for-2024/"><u>[New] Pause Autoplay on YouTube Suggested Videos for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-snapshotwiz-10-pro-windows-screen-master/"><u>[New] SnapshotWiz 10 Pro - Windows Screen Master</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-affordable-advertising-streamlining-channel-sponsorship-partnerships/"><u>[Updated] 2024 Approved Affordable Advertising Streamlining Channel-Sponsorship Partnerships</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-smart-snap-strategies-insta-story-zoom-101/"><u>[Updated] In 2024, Smart Snap Strategies Insta Story Zoom 101</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-understanding-your-earning-potential-youtubes-latest-rules/"><u>[Updated] In 2024, Understanding Your Earning Potential - YouTube's Latest Rules</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-navigate-to-noteworthy-youtube-commentaries/"><u>[Updated] Navigate to Noteworthy YouTube Commentaries</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722973273523-bluetooth-connectivity-for-evo-devices-secure-drivers-here/"><u>Bluetooth Connectivity for EvO Devices – Secure Drivers Here</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/lating-earnings-ad-revenues-in-the-world-of-youtube-in-2024/"><u>Calculating Earnings Ad Revenues in the World of YouTube, In 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-nokia-c12-plus-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Nokia C12 Plus Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-demystifying-the-process-of-writing-youtube-video-content/"><u>In 2024, Demystifying the Process of Writing YouTube Video Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-engage-viewers-with-powerful-channel-building-stories/"><u>In 2024, Engage Viewers with Powerful Channel-Building Stories</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/pushing-the-boundaries-of-fb-video-speed/"><u>Pushing the Boundaries of FB Video Speed</u></a></li>
+<li><a href="https://win-able.techidaily.com/resolved-how-to-fix-cod-vanguard-error-0x00001338-on-pc-step-by-step-guide/"><u>Resolved: How to Fix CoD Vanguard Error 0X00001338 on PC - Step-by-Step Guide</u></a></li>
+<li><a href="https://games-able.techidaily.com/screen-saver-secured-step-by-step-for-switch-password-setup/"><u>Screen Saver Secured: Step-by-Step for Switch Password Setup</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/taneously-stream-youtube-channels/"><u>Simultaneously Stream YouTube Channels</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/streamline-writing-with-hix-and-gpt-4/"><u>Streamline Writing with HIX and GPT-4</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/itute-filmmaking-gems-at-7-spot/"><u>Substitute Filmmaking Gems at #7 Spot</u></a></li>
 </ul></div>
 

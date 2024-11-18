@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting Curls and Contours  Creating a Personalized Beauty Channel\""
-date: 2024-09-06T02:31:43.276Z
-updated: 2024-09-07T02:31:43.276Z
+date: 2024-11-14T23:09:04.142Z
+updated: 2024-11-17T16:46:36.659Z
 tags:
   - ai video
   - ai youtube
@@ -14,36 +14,18 @@ keywords: "CurlyBeautyTips,CustomBeautyChannel,FashionableHairStyles,CurlCreatio
 thumbnail: https://thmb.techidaily.com/7210d597b33981cf8e8bc74bc3a1da89a343d982eff67b18284889061aed1be5.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Crafting Curls and Contours: Creating a Personalized Beauty Channel
 
 # How To Be A Beauty Guru on YouTube: Beauty Vlogger Set Up
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118310/7443" target="_top" id="2118310">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118310" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118310/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
 
 Beauty Vlogs are some of the most popular channels on YouTube. These vlogs are all about aesthetics, so it is important that the videos themselves are beautiful. When you are giving out tips on makeup or hair you want to use a setup that will make your results look their very best.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## YouTube Beauty Vlogger Set Up
 
 It’s easy to put together your own Beauty Vlog setup. There are four main elements; lighting, beauty supplies, backgrounds, and audio. Here are some tips on building your beauty guru set:
@@ -52,12 +34,6 @@ It’s easy to put together your own Beauty Vlog setup. There are four main elem
 
 ![beauty vlog01](https://images.wondershare.com/filmora/article-images/beauty-vlog01.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Beauty Vlogs need to have great lighting so that everyone can clearly see what you are doing and how amazing it looks. Make sure you have even light over your whole face by ‘front lighting’ your vlog. Front lighting means having a light source right in front of you.
 
 Depending on your budget, you can either use a window as a front light or buy a diva ring light.
@@ -88,32 +64,17 @@ If you do not have access to an external mic then you may be able to get by with
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,4 +83,31 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-exploring-the-coloredge-4k-capabilities-with-eizo/"><u>[New] Exploring the ColorEdge 4K Capabilities with EIZO</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-8-youtuber-blunders-to-avoid-and-why-theyre-common/"><u>[New] Top 8 Youtuber Blunders to Avoid and Why They're Common</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-master-the-switch-making-your-graphic-style-a-sticker-on-every-platform/"><u>[Updated] 2024 Approved Master the Switch Making Your Graphic Style a Sticker on Every Platform</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-push-youtube-boundaries-with-creative-studio-expertise-and-tactics/"><u>[Updated] 2024 Approved Push Youtube Boundaries with Creative Studio Expertise and Tactics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-8-best-webspots-free-eco-backdrops-and-footage-collection/"><u>[Updated] 8 Best Webspots FREE Eco-Backdrops and Footage Collection</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-average-to-exceptional-discover-the-finest-free-intra-designs/"><u>[Updated] From Average to Exceptional Discover the Finest Free Intra Designs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-simultaneously-stream-youtube-channels/"><u>[Updated] In 2024, Simultaneously Stream YouTube Channels</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-unlocking-the-art-of-flawless-instantaneous-iphone-podcast-downloads/"><u>[Updated] Unlocking the Art of Flawless, Instantaneous iPhone Podcast Downloads</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-discover-hassle-free-video-opener-templates/"><u>2024 Approved Discover Hassle-Free Video Opener Templates</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-on-demand-connecting-to-chatgpt-from-any-location-using-the-power-of-chatgpt-everywhere/"><u>AI on Demand: Connecting to ChatGPT From Any Location Using the Power of ChatGPT Everywhere</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/choosing-your-apple-laptop-the-distinct-advantages-of-macbook-air-and-macbook-pro-explored/"><u>Choosing Your Apple Laptop: The Distinct Advantages of MacBook Air and MacBook Pro Explored</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ting-youtube-consumption-strategies-for-organizing-videos-for-future-viewing/"><u>Elevating YouTube Consumption Strategies for Organizing Videos for Future Viewing</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-navigating-facebook-live-a-comprehensive-tutorial/"><u>In 2024, Navigating Facebook Live A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/erous-social-media-gurus-for-2024/"><u>Prosperous Social Media Gurus for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-guide-to-stock-investing-channels-online/"><u>The Ultimate Guide to Stock Investing Channels Online</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/video-frame-rates-explained-why-choose-30-or-60/"><u>Video Frame Rates Explained Why Choose 30 or 60?</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/your-top-10-favorites-on-spotify-for-2024/"><u>Your Top 10 Favorites on Spotify for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

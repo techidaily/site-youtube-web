@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Essential Steps to Implement Video Card Anchors on YouTube\""
-date: 2024-09-01T12:01:08.039Z
-updated: 2024-09-02T12:01:08.039Z
+date: 2024-11-17T06:17:32.799Z
+updated: 2024-11-17T20:20:37.059Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -77,10 +84,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -120,20 +141,24 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +167,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-unleash-your-creativity-cutting-edge-pc-techniques-for-youtube-success/"><u>[New] In 2024, Unleash Your Creativity Cutting-Edge PC Techniques for YouTube Success</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-innovative-camera-insights-the-best-of-2024-unpacked/"><u>[New] Innovative Camera Insights – The Best of 2024 Unpacked</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-seamless-image-superimposition-for-desktop/"><u>[New] Seamless Image Superimposition for Desktop</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-10-guide-to-simple-business-channel-launches-on-youtube-for-2024/"><u>[New] Top 10 Guide to Simple Business Channel Launches on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-grasp-the-art-of-steadiness-in-photography-for-2024/"><u>[Updated] Grasp the Art of Steadiness in Photography for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/24-best-10-volume-elevators-for-windows-ios-and-android/"><u>In 2024, Best 10 Volume Elevators for Windows, iOS & Android</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-streaming-stature-symbolized-by-play-and-follower-awards/"><u>In 2024, Streaming Stature Symbolized by Play & Follower Awards</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-top-10-airplay-apps-in-lava-blaze-curve-5g-for-streaming-drfone-by-drfone-android/"><u>In 2024, Top 10 AirPlay Apps in Lava Blaze Curve 5G for Streaming | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-transform-your-viewing-experience-activating-av1-on-youtube/"><u>In 2024, Transform Your Viewing Experience Activating AV1 on YouTube</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/maximize-efficiency-expert-tips-for-accelerating-windows-10-operations/"><u>Maximize Efficiency: Expert Tips for Accelerating Windows 10 Operations</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hots-of-opposites-youtube-video-inverts-for-2024/"><u>Snapshots of Opposites YouTube Video Inverts for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/step-by-step-instructions-fully-removing-wsl/"><u>Step-By-Step Instructions: Fully Removing WSL</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

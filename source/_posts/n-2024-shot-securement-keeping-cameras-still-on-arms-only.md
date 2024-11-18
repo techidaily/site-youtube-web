@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Shot Securement  Keeping Cameras Still on Arms Only\""
-date: 2024-09-01T12:01:04.089Z
-updated: 2024-09-02T12:01:04.089Z
+date: 2024-11-14T04:27:41.346Z
+updated: 2024-11-18T06:17:20.581Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,13 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -54,13 +61,24 @@ And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087390/7443" target="_top" id="2087390">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087390/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -78,9 +96,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -90,8 +105,12 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -114,23 +133,17 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -139,4 +152,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/levate-your-vlogs-with-epic-youtube-reactions-discover-3-pro-tips-for-2024/"><u>[New] Elevate Your Vlogs with Epic YouTube Reactions – Discover 3 Pro Tips for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ilmora-simplified-guide-to-an-engaging-youtube-anime-subscriber-bar/"><u>[New] Filmora Simplified Guide to an Engaging YouTube Anime Subscriber Bar</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-race-away-slow-motion-on-your-android-device/"><u>[New] Race Away Slow Motion on Your Android Device</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/taying-legal-in-the-digital-space-youtubes-copyright-guide-for-2024/"><u>[New] Staying Legal in the Digital Space YouTube's Copyright Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-media-mastery-youtube-vs-tiktoks-best-fit/"><u>[Updated] 2024 Approved Media Mastery Youtube Vs. TikTok's Best Fit</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-editing-essentials-your-go-to-guide-for-beginner-vloggers-for-2024/"><u>[Updated] Editing Essentials Your Go-To Guide for Beginner Vloggers for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-unlock-the-lock-screen-on-my-lava-blaze-2-pro-by-drfone-android-unlock-android-unlock/"><u>How to Unlock the Lock Screen on my Lava Blaze 2 Pro</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-free-online-services-for-youtube-subtitles-download/"><u>In 2024, Free Online Services for YouTube Subtitles Download</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/iphone-users-manual-embracing-a-group-album-invite/"><u>IPhone Users' Manual: Embracing a Group Album Invite</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/shared-humor-top-20-memes-across-social-networks/"><u>Shared Humor Top 20 Memes Across Social Networks</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-nokia-g22-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Nokia G22 Android SIM Unlock APK</u></a></li>
+<li><a href="https://article-files.techidaily.com/ultrawide-vs-uhd-4k-monitors-the-experts-advice/"><u>UltraWide VS UHD 4K Monitors The Expert's Advice</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unpacking-the-power-of-yis-4k-action-capture/"><u>Unpacking the Power of Yi's 4K Action Capture</u></a></li>
+</ul></div>
 

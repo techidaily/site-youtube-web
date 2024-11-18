@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, YouTube Masterclass  Advanced Techniques for Video Commentary Embedding\""
-date: 2024-09-01T12:00:41.018Z
-updated: 2024-09-02T12:00:41.018Z
+date: 2024-11-14T20:56:33.560Z
+updated: 2024-11-17T22:11:38.633Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Apply changes and exit
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -77,10 +84,24 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948881/19272" target="_top" id="1948881">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948881" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948881/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -120,20 +141,24 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -142,8 +167,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/levate-your-content-game-tactics-for-optimal-youtube-featured-channels/"><u>[New] Elevate Your Content Game Tactics for Optimal YouTube Featured Channels</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-game-on-easy-ways-to-record-your-overwatch-experience/"><u>[New] Game On! Easy Ways to Record Your Overwatch Experience</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-igtv-vs-youtube-unveiling-key-distinctions-and-best-platform-for-sharing/"><u>[New] In 2024, IGTV Vs. YouTube Unveiling Key Distinctions & Best Platform for Sharing</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ho-rules-the-realm-of-youtube-for-2024/"><u>[New] Who Rules the Realm of YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-amplifying-audio-and-visual-quality-in-your-youtube-videos/"><u>[Updated] In 2024, Amplifying Audio and Visual Quality in Your YouTube Videos</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-decode-and-maximize-your-impact-on-instagram-with-these-insights/"><u>[Updated] In 2024, Decode & Maximize Your Impact on Instagram with These Insights</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-how-to-add-a-youtube-video-to-google-slides/"><u>[Updated] In 2024, How to Add a YouTube Video to Google Slides</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unlock-new-dimensions-exploring-xbox-ones-zooming-feature/"><u>[Updated] Unlock New Dimensions Exploring Xbox One's Zooming Feature</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-5-ways-to-record-roblox-gameplay-on-mac/"><u>2024 Approved 5 Ways to Record Roblox Gameplay on Mac</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/fix-errconnectionrefused-with-pictures/"><u>Fix: ERR_CONNECTION_REFUSED [with Pictures]</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-composers-guide-to-creating-youtube-music-cohorts/"><u>In 2024, The Composer's Guide to Creating YouTube Music Cohorts</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-in-2024-run-lumafusion-on-mac-download-and-alternative-options/"><u>New In 2024, Run Lumafusion on Mac Download and Alternative Options</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-yield-yardstick-calculating-your-youtube-influence-and-earnings-potential/"><u>The Ultimate Yield Yardstick Calculating Your YouTube Influence and Earnings Potential</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/what-is-the-difference-between-an-ipad-and-a-tablet/"><u>What Is the Difference Between an iPad and a Tablet?</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

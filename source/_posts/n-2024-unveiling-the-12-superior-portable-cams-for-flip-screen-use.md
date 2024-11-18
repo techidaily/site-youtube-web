@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Unveiling the 12 Superior Portable Cams for Flip Screen Use"
-date: 2024-09-01T12:01:47.894Z
-updated: 2024-09-02T12:01:47.894Z
+date: 2024-11-14T16:58:40.094Z
+updated: 2024-11-18T05:41:03.180Z
 tags:
   - ai video
   - ai youtube
@@ -51,6 +51,13 @@ A flip screen is a very important feature on a camera for vloggers. With a flip 
 
 Check out my full list of [10 Things To Look For In A Vlogging Camera](https://tools.techidaily.com/wondershare/filmora/download/) to understand the importance of these camera features.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## THE 12 BEST VLOGGING CAMERAS WITH A FLIP SCREEN (2018)
 
  | Camera                     | Release Date                                                                                                   | Camera Type   | Flip Screen Type | Mic Port          | Price   |       |
@@ -58,15 +65,70 @@ Check out my full list of [10 Things To Look For In A Vlogging Camera](https://t
 | CanonEOSM50                | ![Canon M50](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-1.png)          | February2018  | Mirrorless       | Fully Articulated | **Yes** | $-   |
 | PanasonicLumixDC-GH5S      | ![Panasonic GH5S](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-2.png)     | January2018   | Mirrorless       | Fully Articulated | **Yes** | $$$ |
 | CanonEOSM100               | ![Canon M100](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-3.png)         | August2017    | Mirrorless       | Flip Up           | **No**  | $    |
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | CanonEOS6D Mark II         | ![6D Mark II](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-4.png)         | June2017      | Mid-size SLR     | Fully Articulated | **Yes** | $$  |
 | CanonEOS RebelSL2          | ![Canon SL2](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-5.png)          | June2017      | Compact SLR      | Fully Articulated | **Yes** | $    |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | CanonEOS RebelT7i          | ![Canon T7i](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-6.png)          | February2017  | Mid-size SLR     | Fully Articulated | **Yes** | $-   |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | CanonEOSM6                 | ![Canon M6](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-7.png)           | February2017  | Mirrorless       | Flip Up           | **Yes** | $    |
 | NikonD5600                 | ![Canon D5600](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-8.png)        | November2016  | Compact SLR      | Fully Articulated | **Yes** | $-   |
 | SonyCyber-Shot DSCRX 100 V | ![Sony RX100 V](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-9.png)       | October2016   | Compact          | Flip Up           | **No**  | $-   |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934188/19272" target="_top" id="1934188">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934188" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934188/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | PanasonicLumixDMC-G85      | ![Panasonic G85](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-10.png)     | September2016 | Mirrorless       | Flip Up           | **Yes** | $-   |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915825/19272" target="_top" id="1915825">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915825" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915825/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | CanonEOS80D                | ![Canon 80D](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-11.png)         | February2016  | Mid-size SLR     | Fully Articulated | **Yes** | $$   |
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1915865/19272" target="_top" id="1915865">
+  <img src="//a.impactradius-go.com/display-ad/19272-1915865" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915865/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 | CanonPowerShotG7 X Mark II | ![Canon G7X mark II](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-12.png) | February2016  | Compact          | Flip Up           | **No**  | $    |
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  | ![Sony RX 100 V](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-9.png)    | Best daily vlogging camera with a flip screen: Sony Cyber-Shot DSC-RX 100 V If you want to use a compact camera with a flip screen, Sony's Cyber-shot DSC-RX 100 V is an exceptional daily vlogging camera. This camera's 20.1 MP Exmor RS BSI CMOS sensor with a maximum of 12800 in ISO sensitivity, can record footage in UHD 4K at 30 or 24 fps. The lens on this camera, a non-interchangeable Carl Zeiss Vario Sonnar T lens, performs well even under low-light conditions. With its fast hybrid AF system with 315 phase-detection points and an anti-motion blur mode, you can expect your shots to be accurately focused. The Sony RX 100 V packs so much power into such a small, portable camera, making it a great daily vlogging device.  **PROS** _\- Light and easy to carry around_ _\- Produces high-res videos_   **CONS** _\- Short battery life_ _\- Lacking a touchscreen_                                                                                                                                                                                                                                                                                           |
 | ------------------------------------------------------------------------------------------------------------ | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
@@ -93,14 +155,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -109,8 +168,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-discovering-the-best-music-playback-on-youtube-2023/"><u>[New] In 2024, Discovering the Best Music Playback on YouTube, 2023</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-how-to-validate-your-youtube-profile-a-simple-guide/"><u>[New] In 2024, How to Validate Your YouTube Profile? A Simple Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-youtube-studio-essential-checklist-for-video-mastery/"><u>[New] In 2024, The YouTube Studio Essential Checklist for Video Mastery</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-navigating-partner-selection-for-youtube-joint-ventures/"><u>[Updated] 2024 Approved Navigating Partner Selection for YouTube Joint Ventures</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-discover-the-power-of-10-second-beats-in-youtube-music/"><u>[Updated] In 2024, Discover the Power of 10-Second Beats in YouTube Music</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-from-static-to-sprightly-bouncing-text-animations/"><u>[Updated] In 2024, From Static to Sprightly Bouncing Text Animations</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-preserving-audio-broadcasts-a-simple-internet-radio-technique/"><u>2024 Approved Preserving Audio Broadcasts A Simple Internet Radio Technique</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-step-up-to-youtube-live-with-minimal-subscriber-threshold-reached/"><u>2024 Approved Step Up to YouTube Live with Minimal Subscriber Threshold Reached</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-free-online-photo-tools-ranked-15-for-2024/"><u>Best Free Online Photo Tools Ranked #15 for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-guide-amd-smbus-driver-latest-downloads-and-updates/"><u>Easy Guide: AMD SMBus Driver - Latest Downloads and Updates</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/enhance-your-gameplay-updating-acer-predator-helios-30g-graphics-driver/"><u>Enhance Your Gameplay: Updating Acer Predator Helios 30G Graphics Driver</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-no-money-no-problem-adding-videos-to-written-pieces/"><u>In 2024, No Money, No Problem Adding Videos to Written Pieces</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-nokia-c22-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Nokia C22? | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/resolving-current-unavailability-issues-with-microsofts-windows-smartscreen-protection/"><u>Resolving Current Unavailability Issues with Microsoft's Windows SmartScreen Protection</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/where-is-the-best-place-to-catch-dratini-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Sharing Life's Moments with Your Online Audience for 2024"
-date: 2024-11-05T20:12:33.541Z
-updated: 2024-11-07T21:02:57.155Z
+date: 2024-11-10T17:55:08.429Z
+updated: 2024-11-18T08:03:19.314Z
 tags:
   - ai video
   - ai youtube
@@ -58,22 +58,15 @@ On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebrat
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 5\.  Never Have I Ever Q & A
@@ -88,6 +81,13 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
@@ -96,15 +96,22 @@ Narrated Autobiopic videos are a great way to share your story or advice in a ci
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Custom Your Video with Excellent Video Editor
@@ -112,19 +119,6 @@ YouTube live videos are probably the best ways to interact and share your story 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -147,21 +141,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-growth-galore-strategies-for-surpassing-yield-with-youtube-mobile-audiences/"><u>[Updated] 2024 Approved Growth Galore Strategies for Surpassing Yield with YouTube Mobile Audiences</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-reveal-8-authentic-online-video-advancement-hacks/"><u>[Updated] In 2024, Reveal 8 Authentic Online Video Advancement Hacks</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-transform-your-content-to-stardom-studio-guide-for-2024/"><u>[Updated] Transform Your Content to Stardom Studio Guide for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-how-often-should-you-upload-youtube-videos-to-get-more-views/"><u>2024 Approved How Often Should You Upload YouTube Videos to Get More Views</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-topography-of-youtube-content-popularity/"><u>2024 Approved Topography of YouTube Content Popularity</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-a-youtube-future-scaling-up-or-staying-independent-for-2024/"><u>Crafting a YouTube Future Scaling Up or Staying Independent for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-best-audio-relaxation-tools-asmr-for-2024/"><u>Curating Best Audio Relaxation Tools (ASMR) for 2024</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/diy-solutions-to-rectify-distorted-or-no-output-on-your-iphones-speakers/"><u>DIY Solutions to Rectify Distorted or No Output on Your iPhone's Speakers</u></a></li>
-<li><a href="https://win-web.techidaily.com/fixing-issue-prohibited-operation-executed-on-damaged-disk-array/"><u>Fixing Issue: Prohibited Operation Executed on Damaged Disk Array</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-fix-samsung-galaxy-m54-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>How to Fix Samsung Galaxy M54 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/how-to-fix-the-soft-bricked-xiaomi-redmi-13c-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix the Soft Bricked Xiaomi Redmi 13C 5G? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-expert-instructions-setting-up-wm6/"><u>In 2024, Expert Instructions Setting Up WM6</u></a></li>
-<li><a href="https://common-error.techidaily.com/preventing-unsolicited-boot-solving-the-mystery-of-self-activating-pcs-in-windows-10/"><u>Preventing Unsolicited Boot: Solving the Mystery of Self-Activating PCs in Windows 10</u></a></li>
-<li><a href="https://techidaily.com/the-best-electronic-signature-way-to-sign-dotx-file-documents-online-by-ldigisigner-sign-a-word-sign-a-word/"><u>The best electronic signature way to sign .dotx file documents online</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/top-picks-best-free-cross-platform-video-communication-tools-for-2024/"><u>Top Picks Best Free Cross-Platform Video Communication Tools for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/top-picks-superior-iphone-tone-creators-for-2024/"><u>Top Picks Superior iPhone Tone Creators for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/udience-alchemy-converting-shorts-to-sensations/"><u>[New] Audience Alchemy Converting Shorts to Sensations</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-mastering-audio-switches-in-adobe-premiere/"><u>[New] In 2024, Mastering Audio Switches in Adobe Premiere</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-explore-deep-with-these-immersive-vr-clips-for-2024/"><u>[Updated] Explore Deep with These Immersive VR Clips for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-art-of-profit-driven-online-shopping-blogosynthesis/"><u>[Updated] In 2024, The Art of Profit-Driven Online Shopping Blogosynthesis</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-mastering-social-media-tags-leading-tools-reviewed-fbtwitterinsta/"><u>[Updated] Mastering Social Media Tags Leading Tools Reviewed (FB/Twitter/Insta)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-syncopated-synths-selecting-top-quality-dj-templates-online/"><u>[Updated] Syncopated Synths Selecting Top Quality DJ Templates Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-path-to-digital-fame-starting-and-building-a-youtube-chanel/"><u>2024 Approved Path to Digital Fame Starting and Building a YouTube Chanel</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-youtube-master-of-moneymaking-skills/"><u>2024 Approved YouTube Master of Moneymaking Skills</u></a></li>
+<li><a href="https://win-answers.techidaily.com/conquering-windows-web-browsing-woes-fix-flickering-problems-with-chrome-comprehensive-guide-2024/"><u>Conquering Window's Web Browsing Woes: Fix Flickering Problems with Chrome (Comprehensive Guide, 2024)</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/drive-visitors-and-rank-higher-the-cookiebot-approach/"><u>Drive Visitors and Rank Higher: The Cookiebot Approach</u></a></li>
+<li><a href="https://article-files.techidaily.com/global-vr-landscape-recent-developments/"><u>Global VR Landscape Recent Developments</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-get-and-use-pokemon-go-promo-codes-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>How to Get and Use Pokemon Go Promo Codes On Itel P55+ | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-balancing-dimensions-the-ultimate-guide-to-social-media-video-sizes-on-fb/"><u>In 2024, Balancing Dimensions The Ultimate Guide to Social Media Video Sizes on FB</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-best-screen-replayer-for-high-impact-youtubing-experience/"><u>In 2024, Best Screen Replayer for High-Impact YouTubing Experience</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-audiobook-authoring-made-accessible-your-ultimate-guide-to-production-in-the-year-2023-for-2024/"><u>New Audiobook Authoring Made Accessible Your Ultimate Guide to Production in the Year 2023 for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-selection-leading-ceiling-audio-displays-unveiled/"><u>Ultimate Selection: Leading Ceiling Audio Displays Unveiled</u></a></li>
 </ul></div>
 

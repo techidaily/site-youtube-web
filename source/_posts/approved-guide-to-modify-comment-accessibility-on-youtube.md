@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Guide to Modify Comment Accessibility on YouTube\""
-date: 2024-09-01T12:03:39.677Z
-updated: 2024-09-02T12:03:39.677Z
+date: 2024-11-11T20:11:38.434Z
+updated: 2024-11-18T00:43:23.191Z
 tags:
   - ai video
   - ai youtube
@@ -90,6 +90,13 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037350/7443" target="_top" id="2037350">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037350" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037350/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -110,11 +117,22 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -131,9 +149,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -149,22 +164,23 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135372/19272" target="_top" id="2135372">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135372" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135372/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +189,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-unleash-the-potential-of-your-webcam-for-slideshows/"><u>[New] 2024 Approved Unleash the Potential of Your Webcam for Slideshows</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-secrets-to-crafting-winning-freefire-videos/"><u>[New] In 2024, Secrets to Crafting Winning FreeFire Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-4-techniques-for-turning-youtube-watchlists-upside-down-for-2024/"><u>[New] Top 4 Techniques for Turning YouTube Watchlists Upside Down for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-innovative-techniques-for-recording-instagram-story-highlights/"><u>[Updated] 2024 Approved Innovative Techniques for Recording Instagram Story Highlights</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-steps-to-remove-unseen-portions-in-streamed-youtube-videos/"><u>[Updated] 2024 Approved Steps to Remove Unseen Portions in Streamed YouTube Videos</u></a></li>
+<li><a href="https://review-topics.techidaily.com/change-location-on-yik-yak-for-your-itel-s23-to-enjoy-more-fun-drfone-by-drfone-virtual-android/"><u>Change Location on Yik Yak For your Itel S23 to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/efficient-wheel-movements-for-xpwin-7/"><u>Efficient Wheel Movements for XP/Win 7</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-realme-c55-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Realme C55 | Dr.fone</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-stop-motion-made-easy-top-5-online-tools-free-and-paid/"><u>In 2024, Stop Motion Made Easy Top 5 Online Tools (Free and Paid)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ize-your-youtube-channels-financial-potential/"><u>Maximize Your YouTube Channel's Financial Potential</u></a></li>
+<li><a href="https://win-answers.techidaily.com/step-by-step-guide-building-your-first-simple-form-with-microsoft-excel/"><u>Step-by-Step Guide: Building Your First Simple Form with Microsoft Excel</u></a></li>
+<li><a href="https://solve-news.techidaily.com/tecnicas-profesionales-en-como-capturar-conferencias-el-metodo-facil-y-divertido-de-movavi/"><u>Técnicas Profesionales en Cómo Capturar Conferencias - El Método Fácil Y Divertido De Movavi</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-free-video-players-for-ultra-hd-h265-hevc-format-on-windows-11-and-mac-2020-review/"><u>Top Free Video Players for Ultra HD H.265 HEVC Format on Windows 11 & Mac (2020 Review)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/the-tide-how-to-make-a-youtube-playlist-run-backward/"><u>Turn the Tide How to Make a YouTube Playlist Run Backward</u></a></li>
+</ul></div>
 

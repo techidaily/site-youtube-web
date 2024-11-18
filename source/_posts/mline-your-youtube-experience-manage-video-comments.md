@@ -1,7 +1,7 @@
 ---
 title: "\"Streamline Your YouTube Experience  Manage Video Comments\""
-date: 2024-11-05T19:46:46.644Z
-updated: 2024-11-07T22:35:24.603Z
+date: 2024-11-13T07:20:10.417Z
+updated: 2024-11-18T07:36:16.370Z
 tags:
   - ai video
   - ai youtube
@@ -96,16 +96,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -129,20 +123,13 @@ From under the **Audience** section in the right window of the **Video details**
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/999558/11832" target="_top" id="999558">
+  <img src="//a.impactradius-go.com/display-ad/11832-999558" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/999558/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -160,6 +147,13 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -175,10 +169,10 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -202,22 +196,21 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-6-free-youtube-outros-for-aspiring-filmmakers-for-2024/"><u>[New] 6 FREE YouTube Outros for Aspiring Filmmakers for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-boosting-your-content-a-guide-to-instagram-video-fame/"><u>[New] Boosting Your Content A Guide to Instagram Video Fame</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nleash-your-live-stream-potential-with-superior-webcam-tech-for-2024/"><u>[New] Unleash Your Live Stream Potential with Superior Webcam Tech for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/outube-monetization-changes-500-subscribers-now-eligible-for-2024/"><u>[New] YouTube Monetization Changes 500 Subscribers Now Eligible for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/outube-tagging-101-for-better-engagement-for-2024/"><u>[New] YouTube Tagging 101 for Better Engagement for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-maximizing-income-sourav-joshis-youtube-journey/"><u>[Updated] 2024 Approved Maximizing Income Sourav Joshi's YouTube Journey</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-a-comprehensive-guide-to-use-youtube-movie-maker/"><u>[Updated] A Comprehensive Guide to Use YouTube Movie Maker</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-download-mastery-11-key-youtube-extractors/"><u>[Updated] In 2024, Download Mastery 11 Key YouTube Extractors</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-overcome-sound-absence-on-tweeted-film-rolls/"><u>[Updated] In 2024, Overcome Sound Absence on Tweeted Film Rolls</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-navigating-the-world-of-video-timestamps-on-youtube/"><u>[Updated] Navigating the World of Video Timestamps on YouTube</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-snapseed-101-easy-steps-for-image-transformation/"><u>2024 Approved Snapseed 101 Easy Steps for Image Transformation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-the-complete-blueprint-for-success-adding-channels-as-features-on-youtube/"><u>2024 Approved The Complete Blueprint for Success Adding Channels as Features on Youtube</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/create-visual-narratives-install-microsofts-movie-maker-on-w11/"><u>Create Visual Narratives Install Microsoft's Movie Maker on W11</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/expertise-in-quick-creation-professional-valorant-thumbnail-art-for-2024/"><u>Expertise in Quick Creation Professional Valorant Thumbnail Art for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-unison-video-visionaries-finding-your-cms/"><u>In 2024, Unison Video Visionaries Finding Your CMS</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ng-big-on-youtube-how-much-do-ad-revenues-add-up-for-2024/"><u>Scoring Big on YouTube How Much Do Ad Revenues Add Up for 2024</u></a></li>
-<li><a href="https://discover-community.techidaily.com/transforma-gratuitamente-tu-audio-wma-a-ogg-con-movavi-en-linea-sin-esfuerzo/"><u>Transforma Gratuitamente Tu Audio WMA a OGG Con Movavi en Línea Sin Esfuerzo</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-simplified-customization-for-your-youtube-channel-url/"><u>[New] In 2024, Simplified Customization for Your YouTube Channel URL</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/remium-screener-tech-perfect-for-youtube-videos/"><u>[New] Premium Screener Tech Perfect for YouTube Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-easy-steps-for-achieving-facebooks-prestigious-blue-badge/"><u>[Updated] Easy Steps for Achieving Facebook's Prestigious Blue Badge</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-fostering-collaborations-building-partnerships-to-promote-videos-for-2024/"><u>[Updated] Fostering Collaborations Building Partnerships to Promote Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/81581527-updated-in-2024-direct-youtube-tunes-to-mp3s-online-and-offline-options/"><u>[Updated] In 2024, Direct YouTube Tunes to MP3s Online & Offline Options!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-tailoring-transitional-terminations/"><u>[Updated] Tailoring Transitional Terminations</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-premium-cameras-for-360-film-enthusiasts/"><u>2024 Approved Premium Cameras for 360° Film Enthusiasts</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/easily-unlock-your-asus-rog-phone-8-device-sim-by-drfone-android/"><u>Easily Unlock Your Asus ROG Phone 8 Device SIM</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-tips-overcoming-the-problem-of-keyboards-where-backspace-fails-to-work/"><u>Expert Tips: Overcoming the Problem of Keyboards Where Backspace Fails to Work</u></a></li>
+<li><a href="https://common-error.techidaily.com/fixing-the-error-code-0x80072ee7-on-windows-store-a-comprehensive-guide/"><u>Fixing the Error Code 0X80072EE7 on Windows Store: A Comprehensive Guide</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-access-your-iphone-6s-plus-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>How to Access Your iPhone 6s Plus When You Forget the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-direct-your-media-essential-flv-to-youtube-applications-ranked/"><u>In 2024, Direct Your Media Essential Flv-to-YouTube Applications Ranked</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/lose-yourself-to-laughter-best-10-jokes/"><u>Lose Yourself to Laughter Best 10 Jokes</u></a></li>
+<li><a href="https://howto.techidaily.com/restore-missing-app-icon-on-honor-magic-6-lite-step-by-step-solutions-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Restore Missing App Icon on Honor Magic 6 Lite Step-by-Step Solutions | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-vivo-y56-5g-drfone-by-drfone-virtual-android/"><u>Simple and Effective Ways to Change Your Country on YouTube App Of your Vivo Y56 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ming-success-secrets-unveiling-monetization-on-dm-and-yo-for-2024/"><u>Streaming Success Secrets Unveiling Monetization on Dm & Yo for 2024</u></a></li>
 </ul></div>
 

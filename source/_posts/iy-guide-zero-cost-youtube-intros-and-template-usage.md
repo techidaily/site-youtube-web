@@ -1,7 +1,7 @@
 ---
 title: "\"[New] DIY Guide  Zero Cost YouTube Intros & Template Usage\""
-date: 2024-09-06T02:31:25.356Z
-updated: 2024-09-07T02:31:25.356Z
+date: 2024-11-15T05:19:41.978Z
+updated: 2024-11-17T16:17:30.686Z
 tags:
   - ai video
   - ai youtube
@@ -14,12 +14,6 @@ keywords: "\"DIY YouTube Intros,Free Video Templates,No-Cost Intros Planning,Tem
 thumbnail: https://thmb.techidaily.com/22c39789b5fe1ed667e7cca081a20115c82b1e4756445b0d8d485b13ec35a1e3.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## DIY Guide: Zero Cost YouTube Intros & Template Usage
 
 # How to Make a Cool Intro for YouTube? \[+Free Templates\]
@@ -46,12 +40,6 @@ The good news is that YouTube intro making is not a complex process due to some 
 
 [Wondershare Filmstock Gaming Video Editing Skils](https://images.wondershare.com/filmora/article-images/learn-gaming-video-editing-skills-banner.png)](https://filmstock.wondershare.com/creative-theme-game?source%5Fchannel=seo%5Farticle?spm=rs.filmora%5Fweb)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136619/26400" target="_top" id="2136619">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136619" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136619/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## What Is YouTube Intro?
 
 YouTube Intro is a short clip at the start of the video that introduces the maker as well as the topic under discussion. It can be rightfully called as the trademark of your channel. The intro tells the user who you really are. This is the only part of the video that is brief and allows the users to get the first impact of you.
@@ -97,11 +85,12 @@ You need not be a tech-savvy person to operate the program as it is self-explana
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### The Process to create your own YouTube intro by Filmora?
 
 If you want to make intro using Filmora then it is advised to follow the steps as under to get the best outcome.
@@ -116,12 +105,6 @@ If you want to make intro using Filmora then it is advised to follow the steps a
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-openers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Step 4:** You can also change the duration of the title effects. Drag its edge on the timeline you can also click the clock icon and enter new duration.
 
 **Step 5:** Under the style tab you can change the font, text type, and other settings.
@@ -131,6 +114,19 @@ If you want to make intro using Filmora then it is advised to follow the steps a
 **Step 6:** To edit the intro, even more, click the “Advanced” button to access the advanced editing panel. Add text boxes, shapes and other effects from here.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-step.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 7:** Under “Effects” you can access the filters and overlays to add to your project.
 
@@ -145,21 +141,16 @@ Step 8: The default length of the filter is 5 seconds that can be extended by dr
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-export-mp4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094415/7443" target="_top" id="2094415">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094415" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094415/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 It's very easy right? Download Filmora and make a click-driven intro now!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Key Takeaways to Create Great Attractive YouTube Intro
 
 There are certain sections that will make sure that you get the best YouTube intro of all time. It is also important as the intro is regarded as the face of your channel. It will allow you to get the attention for your channel. Some important points are as under.
@@ -195,11 +186,12 @@ HD and the high quality intro is the key to your channel’s success. It is high
 It is again important to note that technically the intro that has been made is sound and is to the point. From transitions to fade and from animations to PIP there are a lot of details that should be taken care of. It will make sure that you get the intro that is highly professional and specialized.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Popular YouTube Intro Styles and Templates
 
 If you think making a intro yourself is too complex and time-consuming, I also find some popular YouTube intro templates for you. Some of the coolest YouTube intro styles are as follows.
@@ -238,6 +230,13 @@ To get the best gaming intro you need to focus on the outcome on the gaming bran
 * [Top Insane Gaming One](https://youtu.be/ELKfV5N0Jvo)
 * [EPIC Dual](https://youtu.be/2ZigyDPmCAk)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 This article has taught you well how to make an intro with ease and perfection. The different templates are available online which can be used to make awesome YouTube intros. The best software that you can find on the market is the Wondershare Filmora which makes the process a lot easier.
@@ -246,26 +245,17 @@ The program is known for the awesome workability as well as viability kudos to t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135473/26400" target="_top" id="2135473">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135473" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135473/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -274,4 +264,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-clips.techidaily.com/new-boosting-revenue-through-effective-facebook-video-marketing-for-2024/"><u>[New] Boosting Revenue Through Effective Facebook Video Marketing for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-pioneering-youtube-success-with-targeted-seo-practices/"><u>[New] In 2024, Pioneering YouTube Success with Targeted SEO Practices</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-revolutionize-video-files-with-instant-fb-to-mp4-and-hd-upgrade/"><u>[New] Revolutionize Video Files with Instant FB to MP4 & HD Upgrade</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-essential-guide-to-free-licensed-audio-for-yt/"><u>[New] The Essential Guide to Free, Licensed Audio for YT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-academic-history-lovers-guide-to-top-yt-content/"><u>[Updated] Academic History Lovers' Guide to Top YT Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/updated-cultivating-an-audience-naturally-youtubes-way/"><u>[Updated] Cultivating an Audience Naturally - YouTube's Way</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-getting-more-out-of-youtube-top-8-mobile-downloader-tips-for-2024/"><u>[Updated] Getting More Out of YouTube Top 8 Mobile Downloader Tips for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-instagram-stardom-through-strategic-reel-making-for-2024/"><u>[Updated] Instagram Stardom Through Strategic Reel Making for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-smile-more-using-emojis-in-youtube-conversations/"><u>[Updated] Smile More Using Emojis in YouTube Conversations</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-harnessing-home-content-a-commercialized-vlog-journey/"><u>2024 Approved Harnessing Home Content A Commercialized Vlog Journey</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/cal-channels-for-asmr-lovers-for-2024/"><u>Critical Channels for ASMR Lovers for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effective-strategies-for-swift-and-successful-conversion-of-video-codes/"><u>Effective Strategies for Swift and Successful Conversion of Video Codes</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/how-to-create-and-schedule-a-google-meet/"><u>How to Create and Schedule A Google Meet?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-vivo-y77t-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Vivo Y77t Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://facebook.techidaily.com/the-justification-behind-facebook-supporting-dual-profiles-per-user/"><u>The Justification Behind Facebook Supporting Dual Profiles Per User</u></a></li>
+</ul></div>
 

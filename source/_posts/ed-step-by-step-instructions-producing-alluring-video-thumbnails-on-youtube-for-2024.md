@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Step-by-Step Instructions  Producing Alluring Video Thumbnails on YouTube for 2024\""
-date: 2024-11-02T20:04:29.702Z
-updated: 2024-11-07T19:24:31.645Z
+date: 2024-11-17T04:12:16.097Z
+updated: 2024-11-18T01:44:55.841Z
 tags:
   - ai video
   - ai youtube
@@ -47,13 +47,6 @@ Here are 5 easy tips for creating thumbnails that get views.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 1\. Have a Consistent Layout
 
 Your thumbnails all must look like part of the same set. You want viewers to recognize your videos like yours, and they are more likely to do that if you build up a standard layout that they can start associating with you.
@@ -63,16 +56,10 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -87,6 +74,13 @@ Anybody can take a screenshot of themselves in their video and use it as a thumb
 
 Make sure the images you choose are relevant to the topic of your video.
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Make Your Text Huge
 
 If you use text in your thumbnail (you don’t have to) then it should be to add context. For example, if the main image is just you smiling then you might need some text to let viewers know the video is a makeup tutorial.
@@ -94,10 +88,10 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Keep it Clutter-Free
@@ -113,10 +107,10 @@ Use these tips to make video thumbnails for YouTube, and tell us what kind of re
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -140,19 +134,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-remedying-dark-images-while-streaming-youtube-videos/"><u>[New] 2024 Approved Remedying Dark Images While Streaming YouTube Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-step-by-step-pathway-to-youtube-mastery/"><u>[New] The Step-by-Step Pathway to YouTube Mastery</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-becoming-a-skin-deep-sage-setting-up-your-beauty-channel/"><u>[Updated] Becoming a Skin-Deep Sage Setting Up Your Beauty Channel</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-expert-techniques-for-clearing-picture-edges/"><u>[Updated] In 2024, Expert Techniques for Clearing Picture Edges</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-find-and-buy-premium-youtube-ringtone-videos-easily/"><u>[Updated] In 2024, Find & Buy Premium YouTube Ringtone Videos Easily</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-sustainable-streaming-a-deep-dive-into-youtubes-financial-dynamics/"><u>[Updated] In 2024, Sustainable Streaming A Deep Dive Into YouTube's Financial Dynamics</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ins-and-outs-of-earning-from-youtube/"><u>[Updated] In 2024, The Ins and Outs of Earning From YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/sential-gaming-capture-programs-for-2024/"><u>15 Essential Gaming Capture Programs for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-elevating-video-experience-best-youtube-to-avi-companions/"><u>2024 Approved Elevating Video Experience Best YouTube-to-AVI Companions</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-pro-max-without-passcode-4-easy-methods-by-drfone-ios/"><u>In 2024, How To Unlock iPhone 13 Pro Max Without Passcode? 4 Easy Methods</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722979081737-linksys-ae2500-driver-download-made-simple-fast-effective-tips-inside/"><u>Linksys AE2500 Driver Download Made Simple – Fast, Effective Tips Inside!</u></a></li>
-<li><a href="https://discover-exclusive.techidaily.com/los-mejores-programas-de-descargas-de-archivos-gratis-para-ssd-en-windows-11-lista-actualizada-2024/"><u>Los Mejores Programas De Descargas De Archivos Gratis Para SSD en Windows 11 (Lista Actualizada 2024)</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/painting-in-a-digital-age-chatgpt-and-ai-art-collaboration/"><u>Painting in a Digital Age: ChatGPT & AI Art Collaboration</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/the-ultimate-list-of-instagram-grid-making-software/"><u>The Ultimate List of Instagram Grid Making Software</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-exclusive-list-digital-dominators-in-av-production/"><u>[New] Exclusive List Digital Dominators in AV Production</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rom-beef-to-brilliance-jake-pauls-youtube-transformation-for-2024/"><u>[New] From Beef to Brilliance Jake Paul’s Youtube Transformation for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-art-of-video-thumbnail-making-for-popular-content/"><u>[New] In 2024, The Art of Video Thumbnail Making for Popular Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-staying-legal-in-the-digital-space-youtubes-copyright-guide/"><u>[Updated] 2024 Approved Staying Legal in the Digital Space YouTube's Copyright Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-discovering-youtube-studio-where-ideas-become-engaging-content-for-2024/"><u>[Updated] Discovering YouTube Studio Where Ideas Become Engaging Content for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-dji-spark-review-best-mini-drone-for-taking-selfie-for-2024/"><u>[Updated] DJI Spark Review Best Mini Drone for Taking Selfie for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-movie-substitutes-to-explore-top-7-choices/"><u>[Updated] In 2024, Movie Substitutes to Explore - Top 7 Choices</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-in-2024-testing-titans-in-depth-comparison-of-gopros-hero5b-and-session/"><u>[Updated] In 2024, Testing Titans In-Depth Comparison of GoPro's Hero5B & Session</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-tips-for-superior-sound-recordings-without-a-microphone/"><u>[Updated] In 2024, Tips for Superior Sound Recordings Without a Microphone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-youtube-subscriber-awards-the-play-button-awards-for-creators/"><u>2024 Approved YouTube Subscriber Awards! The Play Button Awards for Creators</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-sony-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Sony</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-pro-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13 Pro without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-tactics-to-expose-youtubes-well-guarded-videotapes/"><u>In 2024, Tactics to Expose YouTube's Well-Guarded Videotapes</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-legitimate-ways-to-use-filmora-without-paying-a-dime/"><u>New In 2024, Legitimate Ways to Use Filmora Without Paying a Dime</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96181148-9781841814889-the-astrology-bible/"><u>The Astrology Bible | Free Book</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-future-is-now-equip-yourself-with-these-7-devices/"><u>The Future Is Now - Equip Yourself with These 7 Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/forming-channels-via-youtube-music-upload-for-2024/"><u>Transforming Channels via Youtube Music Upload for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/unleash-video-magic-top-7-royalty-free-sounds-for-editors-for-2024/"><u>Unleash Video Magic Top 7 Royalty-Free Sounds for Editors for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/yuneecs-typhoon-h-unmasked-detailed-uav-analysis/"><u>Yuneec's Typhoon H Unmasked Detailed UAV Analysis</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Squashing Social Media Smears with Grace"
-date: 2024-09-06T02:31:27.791Z
-updated: 2024-09-07T02:31:27.791Z
+date: 2024-11-16T06:16:52.990Z
+updated: 2024-11-18T08:05:11.202Z
 tags:
   - ai video
   - ai youtube
@@ -14,36 +14,18 @@ keywords: "Squash Online Defamation,Gracious Reputation Management,Handle Slande
 thumbnail: https://thmb.techidaily.com/446c2c83401a2bf43df1ddd12db668c5d64cb21efbb35cbfda2026996e2400a4.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Squashing Social Media Smears with Grace
 
 # How To Deal with YouTube Trolls and Negative Comments
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Richard Bennett
 
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -72,32 +54,17 @@ thumbnail: https://thmb.techidaily.com/446c2c83401a2bf43df1ddd12db668c5d64cb21ef
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -106,4 +73,28 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-mastering-lenovo-screenshots-in-minutes/"><u>[New] Mastering Lenovo Screenshots in Minutes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outubes-top-tools-studio-vs-latest-beta-features-for-2024/"><u>[New] YouTube's Top Tools Studio Vs. Latest Beta Features for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-affectionate-alternatives-3ds-games-for-android-users-for-2024/"><u>[Updated] Affectionate Alternatives 3DS Games for Android Users for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-best-free-youtube-video-editing-apps-for-iphone-and-ipad-for-2024/"><u>[Updated] Best Free YouTube Video Editing Apps for iPhone & iPad for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-youtube-editors-handbook-from-basics-to-pros/"><u>[Updated] In 2024, The YouTube Editor's Handbook From Basics to Pros</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unveiling-the-mechanisms-that-govern-youtube-after-a-video-is-live-for-2024/"><u>[Updated] Unveiling the Mechanisms That Govern YouTube After a Video Is Live for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-streaming-success-seekers-deciphering-the-platform-winner-vimeo-vs-youtubeplusdailymotion/"><u>2024 Approved Streaming Success Seekers Deciphering The Platform Winner - Vimeo vs YouTube+Dailymotion?</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-guide-top-rated-google-wifi-the-ultimate-solution-in-wireless-mesh-networking/"><u>Comprehensive Guide: Top-Rated Google WiFi - The Ultimate Solution in Wireless Mesh Networking</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ng-edge-techniques-in-live-streamed-gaming-for-2024/"><u>Cutting-Edge Techniques in Live-Streamed Gaming for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/sive-list-11-pioneering-cost-free-online-title-makers-for-yt-for-2024/"><u>Exclusive List 11 Pioneering, Cost-Free Online Title Makers for YT for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-for-people-wanting-to-mock-gps-on-honor-magic-5-lite-devices-drfone-by-drfone-virtual/"><u>In 2024, For People Wanting to Mock GPS on Honor Magic 5 Lite Devices | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/in-2024-how-to-use-life360-on-windows-pc-for-lava-blaze-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Use Life360 on Windows PC For Lava Blaze Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/sequencing-your-journey-the-ultimate-guide-to-viewing-the-star-trek-film-series/"><u>Sequencing Your Journey: The Ultimate Guide to Viewing the Star Trek Film Series</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/en-content-edge-with-studios-advanced-features/"><u>Sharpen Content Edge with Studio's Advanced Features</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
