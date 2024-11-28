@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  The Affordable Art of YouTube Intros/Ends\""
-date: 2024-09-01T11:56:17.788Z
-updated: 2024-09-02T11:56:17.788Z
+date: 2024-11-26T18:48:23.845Z
+updated: 2024-11-27T21:21:45.563Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/9a0ccdfbe8da8591524befa7834f5f64eb569a97d
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-prime-uav-options-to-maximize-your-gopro-video-potential/"><u>[New] Prime UAV Options to Maximize Your GoPro Video Potential</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-sony-s6700-latest-features-reviewed-for-2024/"><u>[New] Sony S6700 Latest Features Reviewed for 2024</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-essential-displays-for-picture-perfect-editing-choices/"><u>[Updated] 2024 Approved Essential Displays for Picture Perfect Editing [Choices]</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-cultivate-community-interest-with-collaborative-lists-for-2024/"><u>[Updated] Cultivate Community Interest With Collaborative Lists for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone-for-2024/"><u>[Updated] Essential YouTube Strategies Compiling 10 Basic Yet Engaging Ideas for Everyone for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-accelerate-how-to-swiftly-broadcast-playlists/"><u>2024 Approved Accelerate How To Swiftly Broadcast Playlists</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-samsung-galaxy-s23plus-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Samsung Galaxy S23+ without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/gratis-herunterladen-topaktuelle-fifa-weltmeisterschaftshits-von-1966-bis-2018/"><u>Gratis Herunterladen: Topaktuelle Fifa Weltmeisterschaftshits Von 1966 Bis 2018</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-use-snapchat-location-spoofer-to-protect-your-privacy-on-xiaomi-13t-drfone-by-drfone-virtual-android/"><u>How to use Snapchat Location Spoofer to Protect Your Privacy On Xiaomi 13T? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-boosting-traffic-with-smart-youtube-title-and-tag-use/"><u>In 2024, Boosting Traffic with Smart YouTube Title & Tag Use</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ful-browsings-your-ultimate-list-of-top-comedy-vids/"><u>Mirthful Browsings Your Ultimate List of Top Comedy Vids</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/tips-for-effortless-eradication-of-unwanted-youtube-discussions-for-2024/"><u>Tips for Effortless Eradication of Unwanted YouTube Discussions for 2024</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/toms-tech-hub-in-depth-reviews-and-insights/"><u>Tom's Tech Hub: In-Depth Reviews and Insights</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/tutorial-pemulihan-file-gigabyte-windows-1011-jawaban-cara-mudah/"><u>Tutorial Pemulihan File Gigabyte Windows 10/11 - Jawaban Cara Mudah!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-video-shooting-equipment-choosing-guide/"><u>YouTube Video Shooting Equipment Choosing Guide</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Tale of Two Approaches  Polite vs Aggressive Asking for 2024\""
-date: 2024-11-14T07:16:48.560Z
-updated: 2024-11-17T21:11:43.355Z
+date: 2024-11-24T01:40:00.173Z
+updated: 2024-11-27T20:01:47.548Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,10 @@ There are people who think that if people like their videos they’ll subscribe,
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is a 'Call To Action'?
 
 It has become the norm for YouTubers to ask viewers to subscribe in their sign-offs. A typical CTA (‘call to action’) goes something like this:
@@ -50,10 +54,7 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484951/16446" target="_top" id="1484951">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484951" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484951/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
@@ -76,20 +77,10 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -102,15 +93,16 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -134,15 +126,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ow-to-make-a-youtube-reaction-video-in-2024/"><u>[New] How to Make a YouTube Reaction Video, In 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-pioneering-success-innovative-youtube-strategies/"><u>[New] In 2024, Pioneering Success Innovative YouTube Strategies</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-unveiling-the-dji-spark-compact-drone-mastery-for-photographers/"><u>[New] Unveiling the DJI Spark Compact Drone Mastery for Photographers</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-facebook-live-mastery-making-the-most-of-real-time-sharing-for-2024/"><u>[Updated] Facebook Live Mastery Making the Most of Real-Time Sharing for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-elevate-visibility-comprehensive-guide-to-video-marketing-titles/"><u>[Updated] In 2024, Elevate Visibility Comprehensive Guide to Video Marketing Titles</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-cinema-crafting-excellence-top-5-camera-skills-to-hone/"><u>2024 Approved Cinema Crafting Excellence Top 5 Camera Skills to Hone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-your-corsair-keyboard-up-and-running-on-windows-with-these-safe-driver-downloads/"><u>Get Your Corsair Keyboard Up & Running on Windows with These Safe Driver Downloads</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/gpt-imposters-alert-guard-against-illicit-data-access/"><u>GPT Imposters Alert: Guard Against Illicit Data Access</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/o-maximize-income-a-simplified-3-step-process-for-youtube-revenue-monitoring/"><u>How To Maximize Income A Simplified 3-Step Process for YouTube Revenue Monitoring</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-how-to-optimize-video-engagement-through-resizing-thumbnails-on-youtube/"><u>In 2024, How to Optimize Video Engagement Through Resizing Thumbnails on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-step-by-step-adding-tracks-to-youtubes-playlist/"><u>[New] 2024 Approved Step-by-Step Adding Tracks to YouTube's Playlist</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-step-by-step-process-for-free-youtube-introend-making/"><u>[New] 2024 Approved Step-by-Step Process for Free YouTube Intro/End Making</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ultimate-guide-prime-video-stabilizers/"><u>[New] 2024 Approved Ultimate Guide Prime Video Stabilizers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-unlock-50-exclusive-youtube-banner-free-gifts/"><u>[New] 2024 Approved Unlock 50 Exclusive YouTube Banner Free Gifts!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-unlocking-the-potential-of-edu-vids-strategies-for-captivating-your-viewers-on-youtube/"><u>[New] 2024 Approved Unlocking the Potential of Edu-Vids Strategies for Captivating Your Viewers on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-vloggers-fears-decoded-combat-strategies-for-everyone/"><u>[New] 2024 Approved Vloggers' Fears Decoded Combat Strategies for Everyone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-youtube-shorts-description-everything-you-need-to-know/"><u>[New] 2024 Approved YouTube Shorts Description Everything You Need to Know</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/dopting-nature-positive-policies-in-urban-governance-for-2024/"><u>[New] Adopting Nature-Positive Policies in Urban Governance for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/23321364-new-embark-into-the-best-youtube-vr-content-ever/"><u>[New] Embark Into the Best YouTube VR Content Ever!</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-masterful-marketing-essential-expressions-for-professionals/"><u>[Updated] Masterful Marketing Essential Expressions for Professionals</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-ultimate-hues-handbook-theory-meets-technique/"><u>[Updated] Ultimate Hues Handbook Theory Meets Technique</u></a></li>
+<li><a href="https://techtrends.techidaily.com/expert-picked-top-uninterruptible-power-supplies-ups/"><u>Expert-Picked Top Uninterruptible Power Supplies (UPS)</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-pc-screen-to-lava-storm-5g-phones-drfone-by-drfone-android/"><u>How to Mirror PC Screen to Lava Storm 5G Phones? | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-itel-p55t-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Itel P55T Phone Now with These Tips</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mejora-la-eficiencia-en-almacenamiento-reduciendo-archivos-mp4-sin-sacrificar-claridad-visual-mediante-tecnicas-de-compactacion-inteligente/"><u>Mejora La Eficiencia en Almacenamiento Reduciendo Archivos MP4 Sin Sacrificar Claridad Visual Mediante Técnicas De Compactación Inteligente</u></a></li>
+<li><a href="https://fox-links.techidaily.com/revolutionary-process-to-blend-gopro-videos-into-360-degree-panoramas-for-2024/"><u>Revolutionary Process to Blend GoPro Videos Into 360-Degree Panoramas for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/virtual-clarity-streamlining-backgrounds-for-smooth-screenshots/"><u>Virtual Clarity Streamlining Backgrounds for Smooth Screenshots</u></a></li>
 </ul></div>
 

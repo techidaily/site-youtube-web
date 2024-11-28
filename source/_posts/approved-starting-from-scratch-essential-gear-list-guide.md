@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Starting From Scratch  Essential Gear List Guide\""
-date: 2024-11-16T00:52:13.206Z
-updated: 2024-11-17T18:57:31.669Z
+date: 2024-11-20T23:02:40.864Z
+updated: 2024-11-27T21:08:39.856Z
 tags:
   - ai video
   - ai youtube
@@ -43,6 +43,10 @@ The smartest way to get started is to go through a list of **necessary equipment
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YouTube Cameras
 
 **The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
@@ -56,10 +60,7 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## YouTube Microphone and Audio
@@ -71,13 +72,6 @@ If you already have a DSLR camera then it’s a good idea to familiarize yoursel
 Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Lights for YouTube
 
@@ -92,10 +86,7 @@ If you have the budget available to get some lighting equipment, you can find so
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Tripods and Camera Stands
@@ -109,10 +100,7 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Smartphone Camera Gear
@@ -130,6 +118,10 @@ Another common downside of smartphone cameras is that most of them use digital z
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -154,16 +146,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-transform-your-short-form-content-top-10-mobile-video-cutting-tools/"><u>[New] 2024 Approved Transform Your Short-Form Content Top 10 Mobile Video Cutting Tools</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/eaders-in-virtual-marvel-universe-creation/"><u>[New] Leaders in Virtual Marvel Universe Creation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-simplifying-complexities-in-youtube-shorts/"><u>[Updated] Simplifying Complexities in YouTube Shorts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-streamline-your-channels-customized-end-screen-templates/"><u>[Updated] Streamline Your Channels Customized End Screen Templates</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/dual-display-audio-preservation-for-2024/"><u>Dual-Display Audio Preservation for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-enhancing-googles-speech-to-text-capabilities-effectively/"><u>In 2024, Enhancing Google's Speech-to-Text Capabilities Effectively</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/mastering-timecode-alignment-and-text-modification-in-srt-using-macos-for-2024/"><u>Mastering Timecode Alignment & Text Modification in SRT Using macOS for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/overcoming-graphics-incompatibility-in-overwatch/"><u>Overcoming Graphics Incompatibility in Overwatch</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/um-screen-reporter-the-ultimate-youtubers-friend-for-2024/"><u>Premium Screen Reporter The Ultimate YouTuber's Friend for 2024</u></a></li>
-<li><a href="https://some-tips.techidaily.com/top-audio-interfaces-unveiled-the-podcasters-must-have-list-for-2024/"><u>Top Audio Interfaces Unveiled The Podcaster's Must-Have List for 2024</u></a></li>
-<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-from-apple-iphone-7-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes From Apple iPhone 7?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-gamers-nexus-1000plus-game-sessions/"><u>[New] 2024 Approved Gamers' Nexus 1,000+ Game Sessions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-how-to-create-and-build-a-youtube-channel-today/"><u>[New] 2024 Approved How to Create and Build A YouTube Channel Today</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-monetization-timeline-for-successful-youtubers/"><u>[New] 2024 Approved Monetization Timeline for Successful YouTubers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-navigating-complex-editing-a-practical-guide-for-youtube-video-creators-on-pc/"><u>[New] In 2024, Navigating Complex Editing A Practical Guide for YouTube Video Creators on PC</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-proven-ways-to-cash-in-instagrams-leading-revenue-methods/"><u>[Updated] 2024 Approved Proven Ways to Cash In Instagram's Leading Revenue Methods</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-rising-above-the-crowd-trending-techniques-for-youtubers-for-2024/"><u>[Updated] Rising Above the Crowd Trending Techniques for YouTubers for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/10-best-sites-to-buy-mystery-boxes-for-2024/"><u>10 Best Sites to Buy Mystery Boxes for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-choices-the-premier-portable-devices-for-editors-for-2024/"><u>Prime Choices The Premier Portable Devices for Editors for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-accessories-for-enhancing-your-raspberry-pi-pico/"><u>Top Accessories for Enhancing Your Raspberry Pi Pico</u></a></li>
+<li><a href="https://fox-that.techidaily.com/top-portable-power-solutions-the-ultimate-guide-to-laptop-battery-chargers/"><u>Top Portable Power Solutions: The Ultimate Guide to Laptop Battery Chargers</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ultimate-guide-clearing-out-all-your-chatgpt-interaction-logs/"><u>Ultimate Guide: Clearing Out All Your ChatGPT Interaction Logs</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/uncovering-the-intricacies-of-lgs-top-tier-4k-display-for-2024/"><u>Uncovering the Intricacies of LG's Top-Tier 4K Display for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-transform-your-footage-a-beginners-guide-to-gopro-quik-editing-on-macbook/"><u>Updated 2024 Approved Transform Your Footage A Beginners Guide to GoPro Quik Editing on MacBook</u></a></li>
 </ul></div>
 

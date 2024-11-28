@@ -1,7 +1,7 @@
 ---
 title: "[New] Guide to Incorited Visuals in Text Without Cost"
-date: 2024-09-01T11:58:21.521Z
-updated: 2024-09-02T11:58:21.521Z
+date: 2024-11-24T00:14:49.104Z
+updated: 2024-11-27T19:40:03.263Z
 tags:
   - ai video
   - ai youtube
@@ -28,6 +28,10 @@ It may be challenging to capture the attention of your audience if the video ope
 
 Luckily, video editing and presentation software products offer the tools you will need to combine video and text. In this article, we are going to show you how to add a video to text in PowerPoint and Filmora.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -46,15 +50,27 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
 
 Besides presentation software, you can also use video editing software products to add a video to text. Filmora lets you add a video to text in just a few simple steps. You can first make a text video with animation first, and then use the picture in picture feature to add the video to text. Here are the detailed information about how to add a video to text in Filmora.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You should start by creating a new project in Filmora and importing the video you want to add to the text into the project. Click on the Titles tab, and choose the title that matches the visual style of your project.
 
@@ -82,20 +98,21 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,9 +121,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/eamless-online-sound-conversion-ideal-tools-for-iphone-and-youtube-mp3s-for-2024/"><u>[New] Seamless Online Sound Conversion Ideal Tools for iPhone and YouTube MP3s for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-top-tech-advancements-for-mac-users-our-best-4k-recommendations-for-2024/"><u>[New] Top Tech Advancements for Mac Users - Our Best 4K Recommendations for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-charting-new-pathways-in-art-an-exclusive-look-at-the-top-10-low-cost-creator-platforms-on-youtube/"><u>[Updated] 2024 Approved Charting New Pathways in Art An Exclusive Look at the Top 10 Low-Cost Creator Platforms on YouTube</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-clear-the-clutter-blurring-backgrounds-for-engaging-yt/"><u>[Updated] 2024 Approved How to Clear the Clutter Blurring Backgrounds for Engaging YT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-innovative-techniques-for-enhancing-youtube-audio/"><u>[Updated] 2024 Approved Innovative Techniques for Enhancing YouTube Audio</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-playback-in-reverse-the-ultimate-youtube-playlist-technique/"><u>[Updated] 2024 Approved Playback in Reverse The Ultimate YouTube Playlist Technique</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-seamless-youtube-to-wav-4-budget-friendly-solutions-revealed/"><u>[Updated] 2024 Approved Seamless YouTube to WAV 4 Budget-Friendly Solutions Revealed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-should-you-pay-for-unlimited-youtube/"><u>[Updated] 2024 Approved Should You Pay for Unlimited YouTube?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-5-tools-for-cutting-edge-video-title-and-tag-generation-for-2024/"><u>[Updated] 5 Tools for Cutting Edge Video Title & Tag Generation for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-in-2024-exclusive-list-of-the-top-10-digital-recording-apps/"><u>[Updated] In 2024, Exclusive List of the Top 10 Digital Recording Apps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-the-new-age-of-entertainment-tiktok-vs-snap-in-the-spotlight/"><u>[Updated] The New Age of Entertainment TikTok Vs Snap in the Spotlight</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-laughter-lane-navigating-to-the-top-15-funny-youtubers/"><u>2024 Approved Laughter Lane Navigating to the Top 15 Funny YouTubers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/everything-you-should-know-about-instagram-video-length-for-2024/"><u>Everything You Should Know About Instagram Video Length for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/experience-delightful-disorder-with-our-in-depth-review-of-overcooked-2/"><u>Experience Delightful Disorder with Our In-Depth Review of Overcooked! 2</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-get-back-lost-photos-from-itel-by-fonelab-android-recover-photos/"><u>How to get back lost photos from Itel .</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-vlog-confidently-like-popular-youtubers-in-2024/"><u>How to Vlog Confidently Like Popular YouTubers, In 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-pause-life360-location-sharing-for-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>In 2024, How To Pause Life360 Location Sharing For Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/master-tips-for-a-smooth-uninterrupted-experience-in-gta-5/"><u>Master Tips for a Smooth, Uninterrupted Experience in GTA 5</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-nokia-c300-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Nokia C300 Device</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->

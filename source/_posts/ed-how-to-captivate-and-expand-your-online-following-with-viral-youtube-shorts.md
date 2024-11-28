@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How to Captivate and Expand Your Online Following with Viral YouTube Shorts"
-date: 2024-11-17T05:02:53.113Z
-updated: 2024-11-18T08:04:39.084Z
+date: 2024-11-23T20:02:39.411Z
+updated: 2024-11-28T02:32:53.989Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ Comparatively different from other videos, the ones that are added under the ‘
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Why your video editing isn't good enough? How about some creative inspo?
 
 * 100 Million+ Users
@@ -66,19 +70,6 @@ Comparatively different from other videos, the ones that are added under the ‘
  \* Secure Download
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
-
-<!-- affiliate ads begin -->
-<span id="1982485">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 To elaborate, generally, YouTube suggests you a video as per your viewing history, browsing statistics, and other such information that the streaming media giant collects over time. On the other hand, the ‘Featured’ videos are suggested according to what YouTube ‘thinks’ might be of your interest, or could be somehow useful to you.
 
@@ -97,10 +88,7 @@ Go to YouTube on your PC’s web browser, sign in to your Google account, click 
 ![ Get to YouTube Studio Customization Section](https://images.wondershare.com/filmora/article-images/get-more-views-featured-section-customization.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135358/19272" target="_top" id="2135358">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135358" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135358/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 2: Add YouTube Shorts**
@@ -110,10 +98,7 @@ Click **ADD SECTION** from the **Layout** tab in the right window, and click **S
 ![Add Section in Featured Section](https://images.wondershare.com/filmora/article-images/get-more-views-featured-section-add-section.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 3: Add Short videos to Featured sections and Save the Changes**
@@ -121,20 +106,6 @@ Click **ADD SECTION** from the **Layout** tab in the right window, and click **S
 Hold the **Short videos** bar from the moving handle at the left, and move it right below the **Featured sections** segment. Once the **Short videos** category is in the right place, click **PUBLISH** from the top-right corner of the page to save the changes. From this point onward, any YouTube Shorts video that you publish on your channel will be automatically added as ‘Featured’ after its approval.
 
 ![Publish Added Section in Featured Section](https://images.wondershare.com/filmora/article-images/publish-featured-section.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: Create Attractive Thumbnail for YouTube Shorts to Get More Views
 
@@ -182,6 +153,10 @@ Make sure to add relevant tags to your short videos. For instance, adding ‘#Sh
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Filmora - Best YouTube Shorts Video Editor for PC
 
 * Easily record a video on PC and Mac.
@@ -203,6 +178,10 @@ For macOS 10.12 or later
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Analyze YouTube Shorts Performance
 
 YouTube Shorts are videos that are no more than 60 seconds long in length. When added under the ‘Featured’ category, you can see a significant amount of increment in the hits, and therefore the view count and the playback duration of your YouTube channel gets directly affected.
@@ -214,6 +193,10 @@ However, because these short videos cannot be monetized, at times you may notice
 Yes. As mentioned above, the view counts and playback durations of YouTube Shorts videos are added to your channel’s statistics. Therefore, with the number of views your short videos get, the overall performance of your YouTube stats is affected accordingly.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -236,19 +219,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ow-to-fix-the-youtube-shorts-not-showing-up-issue-for-2024/"><u>[New] How to Fix the YouTube Shorts Not Showing Up Issue for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-in-2024-evaluating-the-superiority-of-splitcams-recording/"><u>[Updated] In 2024, Evaluating the Superiority of SplitCam's Recording</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-from-celluloid-to-screen-adapting-your-vids-for-ig/"><u>[Updated] In 2024, From Celluloid to Screen Adapting Your Vids for IG</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-top-picks-perfect-mics-for-creator-pros/"><u>[Updated] In 2024, Top Picks Perfect Mics for Creator Pros</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-youtube-video-aspect-ratio-guide-optimal-upload-sizes-for-2024/"><u>[Updated] YouTube Video Aspect Ratio Guide Optimal Upload Sizes for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ovative-youtube-thumbnail-designers-for-aspiring-filmmakers/"><u>5 Innovative YouTube Thumbnail Designers for Aspiring Filmmakers</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-oppo-a58-4g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Oppo A58 4G Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/canon-mg3600-printer-drivers-free-downloads-and-update-tips/"><u>Canon MG3600 Printer Drivers: Free Downloads and Update Tips</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/cant-install-lumafusion-on-mac-try-these-best-alternative-apps-for-2024/"><u>Cant Install Lumafusion on Mac? Try These Best Alternative Apps for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-logitechs-high-definition-webcam-c920-pro/"><u>Comprehensive Evaluation of Logitech's High Definition Webcam C920 Pro</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/cing-video-reach-tactics-against-bot-visitors/"><u>Enhancing Video Reach Tactics Against Bot Visitors</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-complete-guide-on-unlocking-iphone-12-with-a-broken-screen-drfone-by-drfone-ios/"><u>In 2024, Complete Guide on Unlocking iPhone 12 with a Broken Screen? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-step-by-step-guide-to-creating-engaging-high-quality-asmr-scenes/"><u>In 2024, Step-by-Step Guide to Creating Engaging, High-Quality ASMR Scenes</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-lava-storm-5g-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Lava Storm 5G</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-cultivate-1000-fanbase-followers-quickly/"><u>[New] 2024 Approved Cultivate 1,000 Fanbase Followers Quickly</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-foremost-10-recording-apps-for-social-media-vids/"><u>[New] 2024 Approved Foremost 10 Recording Apps for Social Media Vids</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-modify-youtube-video-visibility-with-ease/"><u>[New] 2024 Approved Modify YouTube Video Visibility with Ease</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-quick-launch-long-growth-the-10-best-youtube-business-channels/"><u>[New] 2024 Approved Quick Launch, Long Growth The 10 Best YouTube Business Channels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-guide-to-homemade-film-crafting-youtube-and-beyond/"><u>[New] A Guide to Homemade Film Crafting, YouTube & Beyond</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-easy-to-use-zoom-camera-for-instant-sharing/"><u>[Updated] 2024 Approved Easy-to-Use Zoom Camera for Instant Sharing</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-a-comprehensive-guide-to-implementing-and-using-high-dynamic-range-auto-hdr-in-windows-11/"><u>[Updated] A Comprehensive Guide to Implementing and Using High Dynamic Range (Auto HDR) in Windows 11</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/cannot-play-mkv-files-on-galaxy-a25-5g-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Cannot play MKV files on Galaxy A25 5G</u></a></li>
+<li><a href="https://win-able.techidaily.com/conquer-the-chaos-a-guide-to-correcting-outriders-ue4-crash-and-defeating-madness/"><u>Conquer the Chaos: A Guide to Correcting Outrider's UE4 Crash and Defeating 'Madness'</u></a></li>
+<li><a href="https://win-dash.techidaily.com/game-on-windows-secure-your-logitech-g-pro-gamepad-driver-from-our-official-site/"><u>Game on Windows: Secure Your Logitech G Pro Gamepad Driver From Our Official Site</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-mastering-the-art-of-4k-videography-with-prime-optics/"><u>In 2024, Mastering the Art of 4K Videography with Prime Optics</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-simple-and-effective-ways-to-change-your-country-on-youtube-app-of-your-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Simple and Effective Ways to Change Your Country on YouTube App Of your Tecno Camon 20 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solved-issues-with-disconnected-realtek-hd-audio-drivers/"><u>Solved: Issues with Disconnected Realtek HD Audio Drivers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-your-content-mastering-youtube-ads-for-earnings-for-2024/"><u>Yield Your Content Mastering YouTube Ads for Earnings for 2024</u></a></li>
 </ul></div>
 

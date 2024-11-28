@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Handling Haters  Strategies for Content Creators\""
-date: 2024-11-15T18:18:53.570Z
-updated: 2024-11-17T21:05:37.629Z
+date: 2024-11-23T17:01:47.611Z
+updated: 2024-11-27T23:29:35.181Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/93116893fd34c4239c7adfcfb1ed2eb9afdd0b3ec
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,6 +58,10 @@ thumbnail: https://thmb.techidaily.com/93116893fd34c4239c7adfcfb1ed2eb9afdd0b3ec
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -75,29 +83,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-elevate-your-content-with-effective-video-seo/"><u>[New] 2024 Approved Elevate Your Content with Effective Video SEO</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-maximize-money-from-youtube-shorts-tactics-and-tricks/"><u>[New] 2024 Approved Maximize Money From YouTube Shorts Tactics & Tricks</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-download-free-youtube-pics-and-templates/"><u>[New] In 2024, Download Free YouTube Pics & Templates!</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-blueprint-for-broadcasting-breaks-for-2024/"><u>[Updated] Blueprint for Broadcasting Breaks for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-elevate-video-content-with-proven-strategies-for-youtube-shorts-growth-for-2024/"><u>[Updated] Elevate Video Content with Proven Strategies for YouTube Shorts Growth for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-navigating-content-distribution-a-close-look-at-igtv-and-youtube/"><u>[Updated] Navigating Content Distribution A Close Look at IGTV and YouTube</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-unlocking-facebooks-in-app-video-preferences-for-2024/"><u>[Updated] Unlocking Facebook's In-App Video Preferences for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-canvas-mastery-top-10-editing-strategies-unveiled/"><u>2024 Approved Canvas Mastery Top 10 Editing Strategies Unveiled</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-dynamic-duo-shots-perfecting-youtube-video-splitting/"><u>2024 Approved Dynamic Duo Shots Perfecting YouTube Video Splitting</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/2024-approved-navigating-safe-mode-and-pip-features-on-iphone-ipad-and-macos/"><u>2024 Approved Navigating Safe Mode and PIP Features on iPhone, iPad & MacOS</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-projector-or-tv-the-ultimate-4k-experience-debated/"><u>2024 Approved Projector or TV? The Ultimate 4K Experience Debated</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-the-secrets-of-youtubes-content-hub-for-2024/"><u>Decoding the Secrets of YouTube's Content Hub for 2024</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/guida-passo-passo-per-il-recupero-dei-contatti-persi-sugli-iphone-modello-1314/"><u>Guida Passo-Passo per Il Recupero Dei Contatti Persi Sugli iPhone Modello 13/14</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-oppo-a78-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Oppo A78</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/track-every-heartbeat-in-style-unveiling-the-benefits-of-the-garmin-vivomove-hr-smartwatch-for-active-wearers/"><u>Track Every Heartbeat in Style: Unveiling the Benefits of the Garmin Vivomove HR Smartwatch for Active Wearers</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/transform-your-photos-using-adobes-power/"><u>Transform Your Photos Using Adobe's Power</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/turbocharge-your-mobile-gameplay-nextorages-cutting-edge-ssd-sets-new-speed-benchmark-at-74gbs/"><u>Turbocharge Your Mobile Gameplay: Nextorage's Cutting-Edge SSD Sets New Speed Benchmark at 7.4GB/S</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-is-there-a-science-to-youtubes-quick-subscribe-tactic/"><u>[New] 2024 Approved Is There a Science to YouTube's Quick Subscribe Tactic?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-step-up-your-video-game-expert-endorsed-cost-free-intro-creators/"><u>[New] 2024 Approved Step Up Your Video Game Expert-Endorsed, Cost-Free Intro Creators</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-strategic-insights-into-youtubes-adsense-earnings-by-thousand-viewers/"><u>[New] 2024 Approved Strategic Insights Into Youtube's AdSense Earnings by Thousand Viewers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-art-of-condensation-editing-youtube-video-durations/"><u>[New] 2024 Approved The Art of Condensation Editing YouTube Video Durations</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-checklist-for-constructing-your-youtube-musical-assortment/"><u>[New] 2024 Approved The Ultimate Checklist for Constructing Your YouTube Musical Assortment</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-guide-to-youtubes-best-music-responses/"><u>[New] 2024 Approved The Ultimate Guide to YouTube's Best Music Responses</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ultimate-voice-transformation-tools-for-social-media-stars/"><u>[New] 2024 Approved Ultimate Voice Transformation Tools for Social Media Stars</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-unveiling-the-process-of-identifying-youtube-audience/"><u>[New] 2024 Approved Unveiling the Process of Identifying YouTube Audience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/rom-tape-to-trending-seamless-mp3-to-youtube-transition-for-2024/"><u>[New] From Tape to Trending Seamless MP3 to YouTube Transition for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-amplify-iphone-film-and-photo-experience-with-extra-gear/"><u>[New] In 2024, Amplify iPhone Film & Photo Experience with Extra Gear</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-earning-in-the-e-commerce-arena-via-engaging-reviews/"><u>[Updated] In 2024, Earning in the E-Commerce Arena via Engaging Reviews</u></a></li>
+<li><a href="https://blog-min.techidaily.com/convertir-videos-mov-en-mp4-pour-mac-avec-des-outils-libres-et-web-selectionnez-les-4-meilleurs-convertisseurs/"><u>Convertir Vidéos MOV en MP4 Pour Mac Avec Des Outils Libres Et Web : Sélectionnez Les 4 Meilleurs Convertisseurs</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/gopros-top-5-marine-filter-companions/"><u>GoPro's Top 5 Marine Filter Companions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/overcoming-vpn-configuration-hitch-tackling-error-code-800-for-clients-and-servers/"><u>Overcoming VPN Configuration Hitch: Tackling Error Code 800 for Clients & Servers</u></a></li>
+<li><a href="https://win11.techidaily.com/revitalizing-vintage-directx-apps-by-harnessing-dxvk-power/"><u>Revitalizing Vintage DirectX Apps by Harnessing DXVK Power</u></a></li>
 </ul></div>
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1610918/18409" target="_top" id="1610918">
-  <img src="//a.impactradius-go.com/display-ad/18409-1610918" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1610918/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 

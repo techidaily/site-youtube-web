@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Youthful Youtuber’ Writers’ Handbook  Creating Channels, Clutching Cash for 2024\""
-date: 2024-11-10T16:00:27.006Z
-updated: 2024-11-17T20:27:40.536Z
+date: 2024-11-23T17:58:29.663Z
+updated: 2024-11-27T16:29:14.660Z
 tags:
   - ai video
   - ai youtube
@@ -66,6 +66,10 @@ On the new page, click I Agree to accept Google’s terms and conditions. Then f
 
 ![accept google terms and conditions](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step2 Create a YouTube account
 
 Once you’ve successfully created a Google account, the next thing is to create your YouTube account. You just have to do the following to carry out the operation;
@@ -73,6 +77,10 @@ Once you’ve successfully created a Google account, the next thing is to create
 Open [YouTube's official website](https://www.youtube.com/)in your browser and click Sign in from the top right corner.
 
 ![create youtube account 1](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 On the new page, sign in to the Google account that you want to use in creating your YouTube channel.
 
@@ -93,10 +101,7 @@ After you’ve successfully created the channel, the next thing is to customize 
 ![customize youtube channel 1](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You’ll be prompted to the YouTube creator studio. There, you’ll find Layout, Branding, and Basic Info options displayed at the top of the page.
@@ -197,13 +202,6 @@ Step2 Click Effects from the top of the screen. Select AI Portrait from the left
 
 ![select ai portrait filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-23.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
-  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Adjust the effect starting and ending point of where you want the AI Portrait effect to be displayed.
 
 Step3 Again, adjust the AI Portrait effect settings by double-clicking on it, then, from the pop-up, apply the preferred settings.
@@ -222,13 +220,6 @@ Step5 Lastly, preview the edited video, and if you’re okay with it, click Expo
 
 ![preview edited video filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-27.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925544/19272" target="_top" id="1925544">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925544" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925544/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 From the pop-up window that appears on your PC screen, select the Folder Path and give the video file a preferred name. Then, click Export to complete the operation.
 
 ![export edited videos filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-28.jpg)
@@ -244,6 +235,10 @@ By using Google Keyword planner, you’ll put yourself ahead of your competitors
 YouTube Studio is a crucial analytic tool that can come in handy to help you improve your video as you grow your YouTube channel. It is like Google Analytics in a way. It’ll allow you to track the analytics of how people view your videos, comment on your video, and more. YouTube Studio is available for free. You can use it through the Android App, on your PC or online from YouTube itself.
 
 ![tools for youtube monetization 1](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-29.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. [VidIQ](https://vidiq.com/)
 
@@ -270,6 +265,10 @@ Don’t be shy to reach out to your fellow YouTubers for collaboration. Yes, by 
 You might have heard of SEO (Search Engine Optimization) being crucial for websites to rank well, but the truth is it also applies to YouTube channels. YouTube SEO is a great way to optimize your YouTube channel and video to make it rank well on online search results.
 
 It’s important you understand how YouTube SEO works and implement it in your YouTube channel, as it’ll increase your chances of more viewers visiting your channel and watching your videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -319,6 +318,10 @@ Open [YouTube's official website](https://www.youtube.com/)in your browser and c
 
 ![create youtube account 1](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 On the new page, sign in to the Google account that you want to use in creating your YouTube channel.
 
 ![create youtube account 2](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-6.jpg)
@@ -330,6 +333,10 @@ After you sign in to your Google account, you’ll be prompted back to the YouTu
 Choose the Name you want to appear on your YouTube channel profile and upload a preferred Picture. Then, click Create Channel to proceed.
 
 ![create youtube account 4](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-8.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step3 Customize your YouTube channel
 
@@ -389,18 +396,15 @@ Adding descriptions to your video is as important as the title. This will help s
 
 ![make youtube video discoverable 2](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-17.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Promote Your Channel on Other Social Media Platforms**
 
 You shouldn’t limit yourself to just creating videos and uploading them on YouTube. Make sure you always make it a priority to promote your YouTube videos on other platforms like Facebook, Twitter, or Instagram. This will help you give your existing fans a heads-up that you’re starting a YouTube channel.
 
 ![make youtube video discoverable 3](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-18.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Add Tags to your videos**
 
@@ -409,13 +413,6 @@ When we say add tags to your videos, it does not mean you should add any tag to 
 Tags will help YouTube understand the kind of video you’re uploading, and it’ll help you maintain the quality of not just your videos but your YouTube channel.
 
 ![make youtube video discoverable 4](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-19.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Use Keywords in Your Videos**
 
@@ -426,13 +423,6 @@ Using rich keywords in your YouTube videos is a great way to increase the chance
 ## Part 3: YouTube Must-Have Tools: What Are They?
 
 Congratulations on creating your YouTube channel. But, before you get over-excited, there are essential tools you need as a YouTuber to help you stand out in the industry. These tools include the following;
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. [Video Editor – Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -456,13 +446,6 @@ Step2 Click Effects from the top of the screen. Select AI Portrait from the left
 
 ![select ai portrait filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-23.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139558/4704" target="_top" id="2139558">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139558" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139558/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Adjust the effect starting and ending point of where you want the AI Portrait effect to be displayed.
 
 Step3 Again, adjust the AI Portrait effect settings by double-clicking on it, then, from the pop-up, apply the preferred settings.
@@ -473,6 +456,10 @@ Step4 You can also add a “Subscribe” watermark to your YouTube video. To do 
 
 ![click element filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-25.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Select the ‘Social Media Show Element 07’ Effects. Then, drag-n-drop it to the Timeline.
 
 ![add subscribe watermark filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-26.jpg)
@@ -480,13 +467,6 @@ Select the ‘Social Media Show Element 07’ Effects. Then, drag-n-drop it to t
 Step5 Lastly, preview the edited video, and if you’re okay with it, click Export from the top bar and select Burn DVD from the drop-down list.
 
 ![preview edited video filmora](https://images.wondershare.com/filmora/article-images/2022/11/how-to-create-a-youtube-channel-and-make-money-27.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880976/19272" target="_top" id="1880976">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880976/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 From the pop-up window that appears on your PC screen, select the Folder Path and give the video file a preferred name. Then, click Export to complete the operation.
 
@@ -497,6 +477,10 @@ From the pop-up window that appears on your PC screen, select the Folder Path an
 The Google keyword planner is vital to help you do keyword research and see the trends of how a particular keyword is searched in a particular month, within a given year, or more. It’ll help you understand how people are searching for a particular keyword and what time of the year it usually has more searches from folks.
 
 By using Google Keyword planner, you’ll put yourself ahead of your competitors by using the right keyword that you need for your SEO and PPC strategies at the right time. From search volume to trends, CPC, competition scores, and more, it’s crucial you have this tool at your fingertips. Besides, it’s 100% free to use.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. [YouTube Studio](https://studio.youtube.com/)
 
@@ -559,16 +543,18 @@ That’s all you need to know about creating a successful YouTube channel. If yo
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-revealing-the-top-six-where-to-grab-your-snack-videos/"><u>[New] 2024 Approved Revealing the Top Six Where to Grab Your Snack Videos</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-exploring-twittrends-2023s-hot-tweets-uncovered/"><u>[Updated] 2024 Approved Exploring TwitTrends 2023’S Hot Tweets Uncovered</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-capture-your-games-in-stunning-detail-on-windows-11/"><u>[Updated] Capture Your Games in Stunning Detail on Windows 11</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-crafting-quality-videos-a-guide-to-apple-device-screen-recording/"><u>[Updated] In 2024, Crafting Quality Videos A Guide to Apple Device Screen Recording</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-the-essential-guide-to-tracking-igtv-viewership-metrics/"><u>[Updated] In 2024, The Essential Guide to Tracking IGTV Viewership Metrics</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-transform-your-streams-adopting-these-four-recording-approaches/"><u>[Updated] Transform Your Streams Adopting These Four Recording Approaches</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-unlocking-past-mysteries-top-10-historical-channels-for-learners/"><u>2024 Approved Unlocking Past Mysteries Top 10 Historical Channels for Learners</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nt-creators-earnings-timeline-on-youtube-for-2024/"><u>Content Creators’ Earnings Timeline on YouTube for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>Full Guide to Fix iToolab AnyGO Not Working On Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/on-view-achievement-and-its-monetary-benefit/"><u>Million View Achievement and Its Monetary Benefit</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/navigating-the-world-of-electronics-with-toms-expertise/"><u>Navigating the World of Electronics with Tom's Expertise</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-effortless-offline-access-best-youtube-playlist-downloaders/"><u>[New] In 2024, Effortless Offline Access Best YouTube Playlist Downloaders</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-navigate-motion-sickness-in-virtual-reality-with-ease/"><u>[New] Navigate Motion Sickness in Virtual Reality with Ease</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-curating-tunes-a-comprehensive-guide-to-youtube-lists/"><u>[Updated] 2024 Approved Curating Tunes A Comprehensive Guide to YouTube Lists</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-enhance-phantom-flying-top-11-add-on-gear/"><u>[Updated] 2024 Approved Enhance Phantom Flying Top 11 Add-On Gear</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/updated-chromatic-confluence-music-and-photography-online/"><u>[Updated] Chromatic Confluence Music & Photography Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-template-to-tutorial-gamers-channel-design-for-2024/"><u>[Updated] From Template to Tutorial Gamers' Channel Design for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-imageslice-cutter/"><u>[Updated] In 2024, ImageSlice Cutter</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-art-of-the-end-scene-tutorials-and-templates-for-youtube/"><u>[Updated] In 2024, The Art of the End Scene Tutorials & Templates for YouTube</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/crafting-prime-valorant-video-thumbnails-on-youtube/"><u>Crafting Prime Valorant Video Thumbnails on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-add-custom-thumbnails-to-your-youtube-videos/"><u>How To Add Custom Thumbnails to Your YouTube Videos</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-itel-a05s-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Itel A05s? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://media-tips.techidaily.com/the-ultimate-guide-to-the-best-mp3-converter-for-seamless-video-and-audio-file-transformation/"><u>The Ultimate Guide to the Best MP3 Converter for Seamless Video and Audio File Transformation</u></a></li>
 </ul></div>
 

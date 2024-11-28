@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Master the Art of Budget-Friendly YouTubes Intros and Ends for 2024\""
-date: 2024-09-01T11:57:55.894Z
-updated: 2024-09-02T11:57:55.894Z
+date: 2024-11-20T23:14:08.602Z
+updated: 2024-11-28T02:39:35.544Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/749189d3cf96e07116b3345727ad3fbca6dd8d53d
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,22 +147,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/uide-to-streamline-yt-playlist-integration-in-htmlcss-for-2024/"><u>[New] Guide to Streamline YT Playlist Integration in HTML/CSS for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-youtube-editing-made-easy-shortening-video-lengths/"><u>[New] In 2024, YouTube Editing Made Easy Shortening Video Lengths</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-the-complete-guide-for-snapchats-friendly-pins/"><u>[New] The Complete Guide for Snapchat's Friendly Pins</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlock-the-potential-of-youtube-videos-with-these-simple-gif-creation-steps-pcmobile/"><u>[New] Unlock the Potential of YouTube Videos with These Simple GIF Creation Steps (PC/Mobile)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-channel-personality-complimentary-youtube-graphics/"><u>[Updated] Channel Personality Complimentary YouTube Graphics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unveiling-the-secrets-of-successful-travel-vloggers-for-2024/"><u>[Updated] Unveiling the Secrets of Successful Travel Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ing-streaming-giants-vimeo-youtube-or-dailymotion-for-2024/"><u>Choosing Streaming Giants Vimeo, YouTube, or DailyMotion for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/unes-essential-background-scores-for-viral-yt-shorts/"><u>Hot Tunes Essential Background Scores For Viral YT Shorts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-fix-the-notorious-memory-error-12707-in-call-of-duty-modern-warfare-3-a-step-by-step-guide/"><u>How to Fix the Notorious 'Memory Error 12707' In Call of Duty Modern Warfare 3: A Step-by-Step Guide</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-whatsapp-from-apple-iphone-se-2020-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-whatsapp-from-ios-transfer-whatsapp-from-ios/"><u>How To Transfer WhatsApp From Apple iPhone SE (2020) to other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-3-ways-of-how-to-get-someones-apple-id-off-apple-iphone-11-without-password-by-drfone-ios/"><u>In 2024, 3 Ways of How to Get Someones Apple ID Off Apple iPhone 11 without Password</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-deciphering-slug-lines-in-scriptwriting/"><u>In 2024, Deciphering Slug Lines in Scriptwriting</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-shape-individualistic-online-humorous-pieces/"><u>In 2024, Shape Individualistic Online Humorous Pieces</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-snappy-vids-guide-essential-info/"><u>In 2024, Snappy Vids Guide Essential Info</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/intels-new-driver-pack-optimize-your-pc-with-iris-xe-windows-1011-support/"><u>Intel's New Driver Pack: Optimize Your PC with Iris Xe Windows 10/11 Support</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/sion-in-upload-a-deep-dive-into-youtube-video-size-settings-for-2024/"><u>Precision in Upload A Deep-Dive Into YouTube Video Size Settings for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/um-capture-hardware-lists-for-optimal-streaming-experience-for-2024/"><u>Premium Capture Hardware Lists for Optimal Streaming Experience for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/ready-yourself-for-youtube-video-production-finalcut-pro-techniques/"><u>Ready Yourself for YouTube Video Production - FinalCut Pro Techniques</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/siri-gets-smarter-in-apples-long-game-plan-with-major-upgrades-slated-and-beyond-digital-chronicle/"><u>Siri Gets Smarter in Apple's Long Game Plan with Major Upgrades Slated and Beyond | Digital Chronicle</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->

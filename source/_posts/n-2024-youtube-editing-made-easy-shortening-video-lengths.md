@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, YouTube Editing Made Easy  Shortening Video Lengths\""
-date: 2024-11-12T01:26:53.438Z
-updated: 2024-11-17T20:52:27.887Z
+date: 2024-11-21T23:28:08.952Z
+updated: 2024-11-27T18:53:18.432Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,10 @@ The world’s largest video sharing platform currently has nearly two billion ac
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Trim a Video After You Upload it to Your YouTube Channel?
 
 The **YouTube Studio** is no longer in beta phase, which means that the feature is here to stay. This is good news for all video creators who frequently update their YouTube videos after they upload them, as they no longer have to go through the endless uploads just because they wanted to trim a video.
@@ -48,6 +52,10 @@ The **YouTube Studio** is no longer in beta phase, which means that the feature 
 Make sure that you’re signed into your YouTube channel, then click on your **profile picture** and select the **YouTube Studio (Beta)** option. On the left side of the screen, you’ll be able to see a menu that contains different subcategories like **Analytics, Dashboard or Videos**, so just click on the **Videos** option and proceed to select a video you’d like to trim. After the Videos submenu appears on the screen you should click on the **Editor** option and the video you selected will open in the YouTube’s video editor.
 
 ![Trim YouTube videos after uploading ](https://images.wondershare.com/filmora/article-images/youtube-video-editor-youtube-studio.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the **Trim button** to start trimming the video and drag the **blue bars** located at the start and the end of the file to designate the portion of the video you’d like to remove. Preview the changes and confirm what you’ve made by clicking on the **Save** button located in the upper right corner of the screen and the new shortened version of the video will become available within a couple of hours.
 
@@ -58,13 +66,6 @@ In this way, you don’t need to take down the original video, edit it and re-up
 ## Trimming a Video Before Posting On YouTube with [Filmora Video Editor](https://tools.techidaily.com/wondershare/filmora/download/) \[4 Ways\]
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134223/18498" target="_top" id="2134223">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134223" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134223/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### Method 1: Trim on Timeline
 
@@ -91,10 +92,7 @@ The **Instant Cutter Tool** enables you to quickly trim or merge high-resolution
 ![Trim YouTube Videos with Filmora Instant Cutter Tool](https://images.wondershare.com/filmora/article-images/instant-cutter-filmora-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Using Online Video Editing Platforms to Trim YouTube Videos
@@ -104,10 +102,7 @@ In case you’re looking for a tool that lets you save extracts of scenes from Y
 ![Trim YouTube Videos online ](https://images.wondershare.com/filmora/article-images/yt-cutter-youtube-trimmer.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This online video editing platform is remarkably easy to use since you just have to **copy** **the link to the YouTube video** you’d like to trim into **YT Cutter’s URL box** and then select how long the new video should be. Click on the **Start and End buttons** to set the duration of the video and click on the **Download button** to choose if you want to create **a video, GIF or an audio file**. The trimmed YouTube video will be available for download as soon as the platform processes it, and you just need to specify a folder on your hard drive before clicking on **the Save button**.
@@ -123,10 +118,7 @@ There’re many [online video trimmers](https://tools.techidaily.com/wondershare
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -150,21 +142,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-effortless-guide-never-see-youtube-shorts-again/"><u>[New] 2024 Approved Effortless Guide Never See YouTube Shorts Again</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-the-most-crucial-info-for-new-youtube-tv-users/"><u>[New] 2024 Approved The Most Crucial Info for New YouTube TV Users</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/est-bits-of-bulb-tech-top-17-choices/"><u>[New] Best Bits of Bulb Tech - Top 17 Choices</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-elite-road-warriors-game-list/"><u>[New] Elite Road Warriors' Game List</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-embedding-youtube-playlists-step-by-step-guide-for-2024/"><u>[New] Embedding YouTube Playlists Step-by-Step Guide for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nveiling-the-art-of-choosing-high-impact-youtube-channels/"><u>[New] Unveiling the Art of Choosing High-Impact Youtube Channels</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-easy-to-follow-guide-to-using-youtube-tv-effectively-for-2024/"><u>[Updated] Easy-to-Follow Guide to Using YouTube TV Effectively for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-elevate-engagement-top-video-release-slots-for-2024/"><u>[Updated] Elevate Engagement Top Video Release Slots for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-banishing-dark-pixels-from-youtube-views/"><u>[Updated] In 2024, Banishing Dark Pixels From YouTube Views</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-professional-drone-selection-guide-top-5/"><u>[Updated] In 2024, Professional Drone Selection Guide (Top 5)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-top-10-yt-tickets-most-watched-videos-hour-by-hour/"><u>2024 Approved Top 10 YT Tickets Most Watched Videos, Hour by Hour</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/customizing-your-faithful-phone-tunes/"><u>Customizing Your Faithful Phone Tunes</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/download-updated-wlan-drivers-for-seamless-connectivity-on-windows-11-10-8-and-eight-versions/"><u>Download Updated WLAN Drivers for Seamless Connectivity on Windows 11, 10, 8 & Eight Versions</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/how-to-bypass-activation-lock-on-apple-watch-or-apple-iphone-14-plus-by-drfone-ios/"><u>How To Bypass Activation Lock On Apple Watch Or Apple iPhone 14 Plus?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/methods-to-change-gps-location-on-samsung-galaxy-s24-drfone-by-drfone-virtual-android/"><u>Methods to Change GPS Location On Samsung Galaxy S24 | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/oming-youtube-disqualification/"><u>Overcoming YouTube Disqualification</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-channeling-success-the-essential-elements-for-profitable-video-trailers/"><u>[New] 2024 Approved Channeling Success The Essential Elements for Profitable Video Trailers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-elite-group-16-youtube-entries-boosting-views/"><u>[New] 2024 Approved Elite Group 16 YouTube Entries Boosting Views</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-increase-watch-time-win-viewers-on-youtube/"><u>[New] 2024 Approved Increase Watch Time, Win Viewers on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-quick-guide-overcoming-youtube-short-hurdles/"><u>[New] 2024 Approved Quick Guide Overcoming YouTube Short Hurdles</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-cashing-in-on-content-the-carminati-effect-ajay/"><u>[New] Cashing In on Content The Carminati Effect (AJay)</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-distinguished-directory-top-ranked-websites-for-snatching-snapalert-melodies/"><u>[Updated] 2024 Approved Distinguished Directory Top-Ranked Websites for Snatching SnapAlert Melodies</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-engaging-audiences-with-wirecast-hosted-facebook-streams/"><u>[Updated] 2024 Approved Engaging Audiences with Wirecast-Hosted Facebook Streams</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-converting-graphics-to-iconic-messages-a-complete-tutorial-for-chat-apps/"><u>[Updated] Converting Graphics to Iconic Messages A Complete Tutorial for Chat Apps</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/drafting-a-compelling-closing-statement-for-tiktok-for-2024/"><u>Drafting a Compelling Closing Statement for TikTok for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-proven-6-best-video-grabbers-for-your-mac/"><u>In 2024, Proven 6 Best Video Grabbers for Your Mac</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/spotlight-subject-erase-bg-in-photo-editing-for-2024/"><u>Spotlight Subject, Erase Bg in Photo Editing for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/step-by-step-methods-for-amassing-tiktok-videos/"><u>Step-by-Step Methods for Amassing TikTok Videos</u></a></li>
+<li><a href="https://discover-fantastic.techidaily.com/techniques-pour-copier-des-images-a-partir-dun-mac-vers-un-hdd-extern-guide-complet/"><u>Techniques Pour Copier Des Images À Partir D'un Mac Vers Un HDD Extern: Guide Complet</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-at-war-yts-top-10-gamers-for-2024/"><u>Women at War YT's #Top 10 Gamers for 2024</u></a></li>
 </ul></div>
 

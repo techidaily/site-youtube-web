@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Mastering Zero-Cost YouTube Intros  Essential Tips & Templates\""
-date: 2024-08-28T08:53:01.772Z
-updated: 2024-08-29T08:53:01.772Z
+date: 2024-11-25T01:25:55.261Z
+updated: 2024-11-27T20:13:05.002Z
 tags:
   - ai video
   - ai youtube
@@ -84,6 +84,10 @@ You need not be a tech-savvy person to operate the program as it is self-explana
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### The Process to create your own YouTube intro by Filmora?
 
 If you want to make intro using Filmora then it is advised to follow the steps as under to get the best outcome.
@@ -93,17 +97,15 @@ If you want to make intro using Filmora then it is advised to follow the steps a
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-import-media-interface.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=11224199&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/copy_boxshot_lyricvideo.png" border="0">Lyric Video Creator Professional Version</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Step 2:** Head over to “Title” and you can add them to you YouTube intro with ease:
 
 **Step 3:** To add opener you need to head to “Opener” under Titles and right-click the one you want to select. Click apply and it will be added to the timeline.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-openers.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 **Step 4:** You can also change the duration of the title effects. Drag its edge on the timeline you can also click the clock icon and enter new duration.
 
 **Step 5:** Under the style tab you can change the font, text type, and other settings.
@@ -111,11 +113,16 @@ If you want to make intro using Filmora then it is advised to follow the steps a
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-text.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296740&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/biu/Nero_BackItUp_Screen_2.webp" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **Step 6:** To edit the intro, even more, click the “Advanced” button to access the advanced editing panel. Add text boxes, shapes and other effects from here.
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/how-to-make-intro-step.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 7:** Under “Effects” you can access the filters and overlays to add to your project.
 
@@ -129,9 +136,6 @@ Step 8: The default length of the filter is 5 seconds that can be extended by dr
 
 ![how to make an intro by Filmora step](https://images.wondershare.com/filmora/article-images/filmora-export-mp4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 It's very easy right? Download Filmora and make a click-driven intro now!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -170,9 +174,6 @@ HD and the high quality intro is the key to your channel’s success. It is high
 
 It is again important to note that technically the intro that has been made is sound and is to the point. From transitions to fade and from animations to PIP there are a lot of details that should be taken care of. It will make sure that you get the intro that is highly professional and specialized.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Popular YouTube Intro Styles and Templates
 
 If you think making a intro yourself is too complex and time-consuming, I also find some popular YouTube intro templates for you. Some of the coolest YouTube intro styles are as follows.
@@ -220,22 +221,20 @@ The program is known for the awesome workability as well as viability kudos to t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -244,4 +243,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-mastering-fb-reel-creation-step-by-step-guide/"><u>[New] In 2024, Mastering FB Reel Creation Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-dive-into-youtube-tv-tips-and-tricks-for-optimal-viewing-for-2024/"><u>[Updated] Dive Into YouTube TV Tips & Tricks for Optimal Viewing for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-child-prodigy-who-conquered-currency-with-content/"><u>[Updated] In 2024, The Child Prodigy Who Conquered Currency with Content</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-apowersoft-picks-top-pc-screen-recorder-reviewed/"><u>2024 Approved Apowersoft Picks Top PC Screen Recorder Reviewed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/youtube-introduction-design-tips-and-tricks-for-2024/"><u>Easy YouTube Introduction Design Tips and Tricks for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/elevate-your-package-prelude/"><u>Elevate Your Package Prelude</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-tactics-for-crafting-immersive-mukbang-sessions/"><u>Evolving Tactics for Crafting Immersive Mukbang Sessions</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/first-steps-in-spanish-kids-from-preschoolers-to-fifth-graders/"><u>First Steps in Spanish: Kids From Preschoolers to Fifth Graders</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-intuitive-camera-roll-consolidation-step-by-step-snapchat-guide/"><u>In 2024, Intuitive Camera Roll Consolidation Step-by-Step Snapchat Guide</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unveiling-youtubes-mechanism-post-upload/"><u>In 2024, Unveiling YouTube's Mechanism Post-Upload</u></a></li>
+<li><a href="https://some-tips.techidaily.com/my-passion-for-starry-jewelry-denied-by-samsung-a-tale-of-cosmic-aspirations-and-tech-restrictions/"><u>My Passion for Starry Jewelry Denied by Samsung – A Tale of Cosmic Aspirations and Tech Restrictions</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-vivo-s18e-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Vivo S18e Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ling-8-superior-mirrorless-cameras-for-video-content-for-2024/"><u>Unveiling 8 Superior Mirrorless Cameras for Video Content for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] Navigating Vlogging Nuances with Confidence and Clarity for 2024"
-date: 2024-11-14T05:44:21.047Z
-updated: 2024-11-17T20:41:51.821Z
+date: 2024-11-22T00:00:25.219Z
+updated: 2024-11-28T01:06:05.518Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ When we watch the most popular YouTubers, the traits that make them successful a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **1\. Be Authentic**
 
 People opt to watch vlogs because they want to see something real.
@@ -46,10 +50,7 @@ There will be an urge for you to mimic other vloggers, talking and acting the wa
 Don’t focus on your image, but instead focus on your voice. What makes you different? That is how you will build a proper reputation.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148637/16836" target="_top" id="2148637">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148637" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148637/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Tell A Story**
@@ -62,6 +63,10 @@ Once all the pieces of the story are captured — including your storytelling, b
 
 Take a look at this example from [Tiffany Alvord](https://www.youtube.com/user/TiffanyAlvord) and notice how there are jump cuts both to skip information that can be assumed by the audience and add the tension to the story she’s telling.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **3\. Surprise and Delight Your Audience**
 
 There is a saying that a great ending to a story is that it is [surprising, yet inevitable](https://www.huffingtonpost.com/david-kudler/writing-the-inevitable-bu%5Fb%5F1630419.html).
@@ -71,10 +76,7 @@ The ending needs to be justified even if there is a twist. Everything before tha
 The gold standard example of a surprising, yet inevitable end is Casey Neistat's bike lane video. Everything in the video is leading up to the end, but when you watch it the first time it’s unexpected, and that’s why it’s so good.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148643/16836" target="_top" id="2148643">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148643" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148643/16836" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **4\. Be Inviting**
@@ -84,6 +86,10 @@ A common trait of successful vloggers is that they are welcoming. They share the
 Unlike being invited to a party, there is no obligation when it comes to YouTube. Your viewers can continue to live vicariously through you or they may be inspired by your experience and dare to try it themselves.
 
 The opposite of inviting is rejecting, and when you are a vlogger, you don’t want to reject anyone from enjoying your videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **5\. Compose the Shot**
 
@@ -96,13 +102,6 @@ The great thing about vlogging is that you will get a lot of practice framing sh
 Check out this example from [Rosanna Pansino](https://www.youtube.com/channel/UCjwmbv6NE4mOh8Z8VhPUx1Q), where she gives a tour of her bedroom.
 
  The camera follows her fluidly throughout the video, but it is her eyes that guide both the camera moves and what she wants our attention to be directed to. Don’t hesitate to let the viewer know what you want them to see.
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
-  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **6\. Be Prepared**
 
@@ -123,13 +122,6 @@ If you speak on camera in a monotone voice, you are not being expressive. Your f
 Consider your audience: they are coming home from school or work, where there were classes and meetings, and the last thing they want to watch is a video of your speaking without energy.
 
 Want to see a vlogger that is awesome at being expressive on camera? Check out [Emma Chamberlain](https://www.youtube.com/channel/UC78cxCAcp7JfQPgKxYdyGrg), if you haven’t already. Every word she says in her video is layered with emotion. We know exactly how she feels.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **8\. Stay Organized**
 
@@ -178,20 +170,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/est-youtube-livestreaming-screen-recorders/"><u>[New] Best YouTube Livestreaming Screen Recorders</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-capturing-attention-sharing-tweets-as-snaps/"><u>[New] Capturing Attention Sharing Tweets as Snaps</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/urture-harmony-and-well-being-the-finest-yogic-channels-alive/"><u>[New] Nurture Harmony & Well-Being - The Finest Yogic Channels Alive</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-streamlined-solution-for-gifs-to-videos-top-5-online-services/"><u>[New] Streamlined Solution for GIFs to Videos Top 5 Online Services</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-abletons-art-of-softening-soundscapes/"><u>[Updated] 2024 Approved Ableton's Art of Softening Soundscapes</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-extracting-youtube-images-online-desktop-tools-and-terminal-tactics-for-2024/"><u>[Updated] Extracting YouTube Images Online, Desktop Tools & Terminal Tactics for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-leading-online-convertor-audio-to-written-text-for-2024/"><u>[Updated] Leading Online Convertor Audio to Written Text for 2024</u></a></li>
-<li><a href="https://some-skills.techidaily.com/updated-top-tech-picks-for-entering-and-thriving-in-the-metaverse/"><u>[Updated] Top Tech Picks for Entering and Thriving in the Metaverse</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/1723209123405-diagnosing-and-correcting-the-frequent-disconnection-problem-in-your-personal-computer-mouse/"><u>Diagnosing and Correcting the Frequent Disconnection Problem in Your Personal Computer Mouse.</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/fx-library-to-enhance-youtube-productions-in-2024/"><u>Free FX Library to Enhance YouTube Productions, In 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/get-ahead-of-the-game-rainbow-six-sieges-exciting-2024-line-up-what-to-look-forward-to/"><u>Get Ahead of the Game: Rainbow Six Siege’s Exciting 2024 Line-Up – What to Look Forward To</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-how-to-edit-youtube-videos-in-windows-movie-maker/"><u>In 2024, How to Edit YouTube Videos in Windows Movie Maker</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-with-an-apple-watch-and-what-to-do-if-it-doesnt-work-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 With an Apple Watch & What to Do if It Doesnt Work | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-the-art-of-keeping-your-audience-attentive-and-committed-top-6-methods-revealed/"><u>In 2024, The Art of Keeping Your Audience Attentive & Committed Top 6 Methods Revealed</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/ways-to-trade-pokemon-go-from-far-away-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>Ways to trade pokemon go from far away On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-easy-efficient-and-essential-top-23-tools-to-downgrade-youtube-audios/"><u>[New] In 2024, Easy, Efficient, and Essential Top 23 Tools to Downgrade YouTube Audios</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ightning-share-youtube-playlist-hacks-for-2024/"><u>[New] Lightning Share YouTube Playlist Hacks for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/horts-fix-completed-no-more-anxiety-for-2024/"><u>[New] Shorts Fix Completed – No More Anxiety for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-elevate-sound-with-these-asmr-apps/"><u>[Updated] Elevate Sound with These ASMR Apps</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-ultimate-capture-app-windows-10-edition/"><u>[Updated] Ultimate Capture App - Windows 10 Edition</u></a></li>
+<li><a href="https://win-answers.techidaily.com/dota-2-performance-boosting-tips-for-seamless-gameplay/"><u>Dota 2 Performance Boosting Tips for Seamless Gameplay</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/dynamic-animated-and-personalized-filmora-subscribe-button-for-youtube/"><u>Dynamic, Animated, and Personalized Filmora Subscribe Button for YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/techniques-for-reordering-youtube-video-queues-for-2024/"><u>Fast Techniques for Reordering YouTube Video Queues for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-xiaomi-redmi-12-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Xiaomi Redmi 12</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-enhance-creativity-with-6-premium-and-complimentary-video-downloaders/"><u>In 2024, Enhance Creativity With 6 Premium and Complimentary Video Downloaders</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-first-steps-in-virtual-conferencing-with-zoom/"><u>In 2024, First Steps in Virtual Conferencing with Zoom</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-wave-goodbye-to-costs-with-our-50-free-banners-offer/"><u>In 2024, Wave Goodbye to Costs with Our 50 Free Banners Offer!</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/solving-your-television-troubles-tackling-the-topmost-issues/"><u>Solving Your Television Troubles: Tackling the Topmost Issues</u></a></li>
+<li><a href="https://howto.techidaily.com/super-easy-ways-to-deal-with-meizu-21-pro-unresponsive-screen-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Super Easy Ways To Deal with Meizu 21 Pro Unresponsive Screen | Dr.fone</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/why-stellar-repair-for-video-doesnt-work-properly-on-some-of-my-files/"><u>Why Stellar Repair for Video Doesn’t Work Properly on Some of My Files?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/s-highest-paying-streamer-for-2024/"><u>World's Highest Paying Streamer for 2024</u></a></li>
 </ul></div>
 

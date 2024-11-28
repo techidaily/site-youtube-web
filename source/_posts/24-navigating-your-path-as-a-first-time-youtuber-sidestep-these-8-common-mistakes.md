@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Navigating Your Path as a First-Time YouTuber  Sidestep These 8 Common Mistakes\""
-date: 2024-11-16T20:54:36.386Z
-updated: 2024-11-18T02:56:23.059Z
+date: 2024-11-21T01:36:14.745Z
+updated: 2024-11-27T17:57:42.682Z
 tags:
   - ai video
   - ai youtube
@@ -35,13 +35,14 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
@@ -56,6 +57,10 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Coming up with titles that won't get searched
 
 Many new YouTubers make the mistake of titling their videos in an ineffective way. Rather than coming up with titles that more people might search, they either come up with titles that summarize what the video is about as a whole or title their videos the way big YouTubers do.
@@ -64,25 +69,11 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 4\. Failing to have a thumbnail strategy
 
 New YouTubers tend to think about their thumbnail images after they’ve finished editing their videos together. This is way too late in the process for something that is so incredibly important in getting views.
 
 Even before filming, you should think about how you’re going to title your video to get the most views. After that, you should then try to picture, in your head, a thumbnail image that matches your title and creates curiosity and excitement. When you go into filming, you can then make sure to include some footage of you recreating that image.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Making weak intros
 
@@ -91,6 +82,10 @@ After you’ve managed to get someone to click on your video through your effect
 New YouTubers often make the mistake of having weak intros. Starting at the beginning of a story makes sense, right? The beginning, however, is not always the most exciting. Consequently, new YouTubers lose their audience’s attention too early on.
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Forgetting to engage with subscribers
 
@@ -115,10 +110,7 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -142,16 +134,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-google-meet-on-youtube-streaming-made-easy-step-by-step/"><u>[New] In 2024, Google Meet on YouTube Streaming Made Easy, Step by Step</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-social-media-sovereigns-ranked-by-youtube-subscribers/"><u>[New] Social Media Sovereigns Ranked by YouTube Subscribers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-get-free-green-screen-effects-from-4-youtube-channels/"><u>[Updated] 2024 Approved Get Free Green Screen Effects From 4 YouTube Channels</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-maximizing-reach-strategies-from-seasoned-tubebuddy-experts/"><u>[Updated] Maximizing Reach Strategies From Seasoned TubeBuddy Experts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-dream-weavers-the-marvel-interactive-sculptors/"><u>2024 Approved Dream Weavers The Marvel Interactive Sculptors</u></a></li>
-<li><a href="https://howto.techidaily.com/android-screen-stuck-general-infinix-hot-40-pro-partly-screen-unresponsive-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Screen Stuck General Infinix Hot 40 Pro Partly Screen Unresponsive | Dr.fone</u></a></li>
-<li><a href="https://discover-help.techidaily.com/die-top-5-besten-gratiskunstliche-intelligenzprogramme-zur-fotorestauration/"><u>Die Top 5 Besten Gratiskünstliche IntelligenzProgramme Zur Fotorestauration</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-tecno-pova-5-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Tecno Pova 5? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-gearing-up-for-youtube-success-cross-platform-strategies/"><u>In 2024, Gearing Up for YouTube Success Cross-Platform Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-unlock-6-figure-visibility-on-youtube-via-optimal-hashtags/"><u>In 2024, Unlock 6-Figure Visibility on YouTube via Optimal Hashtags</u></a></li>
-<li><a href="https://fox-http.techidaily.com/the-art-of-obtaining-flawless-visual-content-for-2024/"><u>The Art of Obtaining Flawless Visual Content for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-statistical-sweep-illuminating-youtubes-data-diversity-2e17/"><u>[New] 2024 Approved Statistical Sweep! Illuminating YouTube's Data Diversity (2E17)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-backward-playbook-youtubes-video-flip/"><u>[New] 2024 Approved The Backward Playbook YouTube's Video Flip</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-essential-guide-to-anime-style-youtube-subscribe-buttons-using-filmora/"><u>[New] 2024 Approved The Essential Guide to Anime-Style YouTube Subscribe Buttons Using Filmora</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ultimate-gear-for-youtube-content-makers/"><u>[New] 2024 Approved Ultimate Gear for YouTube Content Makers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-youtubers-advanced-toolkit-studio-selection-over-beta/"><u>[New] 2024 Approved YouTuber's Advanced Toolkit Studio Selection Over Beta</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-unpublished-photography-scrutiny-and-complementary-selections-for-2024/"><u>[New] Unpublished Photography Scrutiny & Complementary Selections for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-unlocking-personalized-vocal-elements-on-instagram/"><u>[Updated] 2024 Approved Unlocking Personalized Vocal Elements on Instagram</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-initiate-social-media-exploration-with-a-new-twitter/"><u>[Updated] In 2024, Initiate Social Media Exploration with a New Twitter</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-on-your-iphone-14-pro-max-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID On Your iPhone 14 Pro Max</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-7-best-free-online-youtube-tag-extractors/"><u>In 2024, 7 Best Free Online YouTube Tag Extractors</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/cting-the-craft-of-youtube-short-video-making/"><u>Perfecting the Craft of YouTube Short Video Making</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-battle-of-apple-tabs-analyzing-the-contrasts-between-ipad-mini-and-ipad-air/"><u>The Battle of Apple Tabs: Analyzing the Contrasts Between iPad Mini & iPad Air</u></a></li>
+<li><a href="https://fox-http.techidaily.com/understanding-the-impact-of-macos-11-big-sur-on-users/"><u>Understanding the Impact of macOS 11 Big Sur on Users</u></a></li>
+<li><a href="https://driver-error.techidaily.com/windows-navigate-and-fix-your-qualcomm-atheros-bluetooth-driver-problems-now/"><u>Windows Navigate and Fix Your Qualcomm Atheros Bluetooth Driver Problems Now</u></a></li>
 </ul></div>
 
