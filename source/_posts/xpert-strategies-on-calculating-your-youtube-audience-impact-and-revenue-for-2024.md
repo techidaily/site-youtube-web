@@ -1,7 +1,7 @@
 ---
 title: "[New] Expert Strategies on Calculating Your YouTube Audience Impact and Revenue for 2024"
-date: 2024-11-21T02:02:06.392Z
-updated: 2024-11-27T22:16:56.458Z
+date: 2024-12-06T01:03:39.286Z
+updated: 2024-12-07T05:46:43.049Z
 tags:
   - ai video
   - ai youtube
@@ -64,9 +64,17 @@ Brands can sponsor your videos to reach their target audience. YouTube videos ar
 
 YouTubers help brands increase sales by encouraging their viewers to shop at the company's store or visit its specific product pages. They then earn a commission (30%-35%) on products that people buy after clicking an affiliate link.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Crowdfunding
 
 Today many people use crowdfunding websites to raise money for personal, channel-related projects. Most YouTubers are doing it to generate steady cash flow. Some of them use this source to fund their YouTube videos so that it increases quality and engagement.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Merchandise Shelf
 
@@ -75,10 +83,6 @@ Your merchandise represents and feeds your audience's connection with you. Your 
 ### Channel Membership
 
 YouTube has a plan that allows you to charge your subscribers for membership on your YouTube channel. Members get access to exclusive live chats, badges, emojis, etc. Subscribers must give a set amount every month to a channel that makes a steady monthly income for YouTubers.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Calculate YouTube income by YouTube Money Calculator
 
@@ -117,14 +121,6 @@ Step4 The result will show you the 'Number of Total Video Views', and 'Estimated
 
 ![total earnings by video](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-5.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [Aux mode](https://auxmode.com/suiteoffreetools/youtube-views-to-money-calculator/)
 
 ![aux mode calculator](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-6.jpg)
@@ -154,10 +150,6 @@ Step3 On your right, you'll find estimated results in real time. You can also en
 
 ![enter email to get results](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [Tunepocket](https://www.tunepocket.com/youtube-money-calculator/)
 
 ![tunepocket interface](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-10.jpg)
@@ -184,6 +176,10 @@ Step2 Scroll down and you'll find another calculator that requires specific vide
 Step3 The last calculator is about the estimated revenue for a channel. You need to paste the channel URL to find the results. It includes, Number of Total Subscribers, Number of Total Videos, Number of Total Video Views, Channel Title, and Estimated Total Earnings
 
 ![youtube channel url](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Estimated your YouTube earning by YouTube revenue reports
 
@@ -259,6 +255,10 @@ It is important to know that in some countries, making money off YouTube is extr
 
 Some other factors, e.g., it's worth comparing the RPM of your country and other countries, different rules and prices of YouTube Ads depending on your country.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus tip: Increase YouTube earnings with a powerful video editing software
 
 Are you tired of your boring, run-of-the-mill videos? Are you looking for ways to improve your YouTube earnings? Then let's look at some of the best editing software to help create your next great content.
@@ -283,13 +283,13 @@ Step3 Change Aspect Ratio, Resolution, and Frame rate
 
 ![change project settings](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-19.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Drag video to the timeline
 
 ![add video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-20.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step5 Right-click and select Crop to Fit
 
@@ -306,6 +306,10 @@ Step7 Adjust the frame
 Step8 Lastly Export you file
 
 ![select export and check Best](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-24.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Bottom line
 
@@ -367,7 +371,7 @@ The tools below provide a detailed breakdown of the earnings from a specific You
 ![youtube money calculator](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Pros
@@ -397,6 +401,10 @@ Step4 The result will show you the 'Number of Total Video Views', and 'Estimated
 
 ![total earnings by video](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### [Aux mode](https://auxmode.com/suiteoffreetools/youtube-views-to-money-calculator/)
 
 ![aux mode calculator](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-6.jpg)
@@ -417,10 +425,6 @@ Go to [AUX MODE](https://auxmode.com/suiteoffreetools/youtube-views-to-money-cal
 Step1 You can type total video views or, increase or decrease total views with the arrows.
 
 ![type number of views](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-7.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 Below you'll find a slider, you can slide forward to increase views and vice versa.
 
@@ -457,6 +461,10 @@ Step3 The last calculator is about the estimated revenue for a channel. You need
 
 ![youtube channel url](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-13.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Estimated your YouTube earning by YouTube revenue reports
 
 To better understand the best strategies and tactics to optimize your video content, use YouTube analytic reports to help you get a clearer understanding of how your YouTube channel performs. To check your revenue report:
@@ -464,10 +472,6 @@ To better understand the best strategies and tactics to optimize your video cont
 Step1 Login to your [YouTube Studio](https://studio.youtube.com/)
 
 ![login to your youtube studio](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-14.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step2 In the left menu, select Analytics.
 
@@ -511,6 +515,10 @@ The answer to that question can vary widely depending on the type of content you
 
 It's safe to say that most YouTubers earn between $1,000 and $10,000 per month from their ads alone. But there are many other factors to take into consideration when calculating the money, you can make on YouTube:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### The number of views your videos get
 
 The key to making money from videos on YouTube is views. The more views you have, the more chance of getting paid will increase. So you need to create videos that will get viewers to click.
@@ -524,10 +532,6 @@ When building a YouTube channel, the key to success lies in engaging with your a
 ### Your channel type
 
 The YouTube algorithm is set up to favor channels with a high volume of views per video and high-quality content rather than low-quality channels that generate a lot of traffic but don't produce quality videos. So, if you want to increase your revenue from your YouTube videos, try to focus on high-quality content.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Your monetization method
 
@@ -562,10 +566,6 @@ Step2 Open Project Settings
 Step3 Change Aspect Ratio, Resolution, and Frame rate
 
 ![change project settings](https://images.wondershare.com/filmora/article-images/2022/11/how-to-calculate-youtube-views-to-money-19.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 Drag video to the timeline
 
@@ -618,24 +618,20 @@ To do that, use the game-changing Filmora 11 (mentioned in the article) to creat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-crack-the-code-unearthing-hidden-gems-in-youtubes-archive/"><u>[New] In 2024, Crack the Code Unearthing Hidden Gems in YouTube's Archive</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/adies-of-youtube-discovering-top-10-female-influencers-for-2024/"><u>[New] Ladies of YouTube Discovering Top 10 Female Influencers for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-elevate-your-youtube-gaming-content-with-key-freefire-hashtags/"><u>[Updated] 2024 Approved Elevate Your YouTube Gaming Content With Key FreeFire Hashtags</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-from-hits-to-strikes-expert-youtube-studio-editing-strategies/"><u>[Updated] 2024 Approved From Hits to Strikes Expert YouTube Studio Editing Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unlocking-potential-tubebuddy-and-channel-mastery/"><u>[Updated] 2024 Approved Unlocking Potential TubeBuddy & Channel Mastery</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-all-about-youtubes-elite-access-a-complete-breakdown/"><u>[Updated] In 2024, All About YouTube's Elite Access - A Complete Breakdown</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-finding-the-highlighted-online-discourse/"><u>[Updated] In 2024, Finding the Highlighted Online Discourse</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-monetizing-mastery-harness-the-power-of-your-youtube-content-on-mobile-for-2024/"><u>[Updated] Monetizing Mastery Harness the Power of Your YouTube Content on Mobile for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-the-ultimate-guide-to-shooting-phenomenal-igtv-with-dslrsmartphone/"><u>[Updated] The Ultimate Guide to Shooting Phenomenal IGTV with DSLR/Smartphone</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-mastering-srt-editing-a-comprehensive-mac-guide/"><u>2024 Approved Mastering SRT Editing A Comprehensive Mac Guide</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/a-guide-to-leveraging-chatgpt-in-your-companys-success/"><u>A Guide to Leveraging ChatGPT in Your Company's Success</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/discover-toms-comprehensive-computer-hardware-reviews-and-insights/"><u>Discover Tom's Comprehensive Computer Hardware Reviews & Insights</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/eye-on-video-the-premier-cameras-excellence-for-2024/"><u>Eye on Video The Premier Cameras Excellence for 2024</u></a></li>
-<li><a href="https://win-best.techidaily.com/guide-setting-up-a-nas-mirrored-copy-for-file-synchronization-between-two-network-storage-units/"><u>Guide: Setting Up a NAS Mirrored Copy for File Synchronization Between Two Network Storage Units</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/must-have-mac-tts-apps-for-seamless-communication-for-2024/"><u>Must-Have Mac TTS Apps for Seamless Communication for 2024</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-the-best-way-to-trim-vlc-videos-on-mac-maintain-original-quality-for-2024/"><u>New The Best Way to Trim VLC Videos on Mac Maintain Original Quality for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/to-closure-a-producers-primer/"><u>News to Closure A Producer’s Primer</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ct-end-screen-and-cards-strategies-for-yt/"><u>Perfect End Screen & Cards Strategies for YT</u></a></li>
-<li><a href="https://extra-information.techidaily.com/tightening-the-focus-fine-tuning-your-roblox-experience/"><u>Tightening the Focus Fine-Tuning Your Roblox Experience</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-building-a-custom-google-cardboard-for-immersive-experience/"><u>[New] Building a Custom Google Cardboard for Immersive Experience</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-effortless-android-screenshot-and-screen-record/"><u>[New] In 2024, Effortless Android Screenshot & Screen Record</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-harnessing-real-time-trends-for-visionary-video-ideas/"><u>[Updated] Harnessing Real-Time Trends for Visionary Video Ideas</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-funnies-in-a-flash-top-10-quick-and-quirky-video-concepts-for-youtubers/"><u>[Updated] In 2024, Funnies in a Flash Top 10 Quick & Quirky Video Concepts for YouTubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-leveraging-view-counts-for-financial-freedom-online/"><u>2024 Approved Leveraging View Counts for Financial Freedom Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-top-tips-and-techniques-for-captivating-youtube-video-intros/"><u>2024 Approved Top Tips and Techniques for Captivating YouTube Video Intros</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-change-your-vivo-y17s-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Vivo Y17s Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-nokia-105-classic-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Nokia 105 Classic Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-ultimate-checklist-for-post-editing-and-uploading-your-360-vids-on-youtube/"><u>In 2024, The Ultimate Checklist for Post-Editing & Uploading Your 360 Vids on YouTube</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/no-display-despite-power-on-troubleshoot-steps-for-restoring-visibility-on-your-computer/"><u>No Display Despite Power On - Troubleshoot Steps for Restoring Visibility on Your Computer</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/stellars-photographic-restoration-tool-purchase-and-immediate-use/"><u>Stellar's Photographic Restoration Tool: Purchase & Immediate Use</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-guide-downloading-and-installing-brother-l2540dw-drivers-on-windows-computers/"><u>Step-by-Step Guide: Downloading and Installing Brother L2540DW Drivers on Windows Computers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-up-mr-beasts-earnings/"><u>Tallying Up Mr. Beast's Earnings</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/the-ultimate-mp4-editor-for-windows-8-fast-and-user-friendly-for-2024/"><u>The Ultimate MP4 Editor for Windows 8 Fast and User-Friendly for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-11-applicazioni-gratuite-di-editing-video-piu-utili-sul-mercato/"><u>Top 11 Applicazioni Gratuite Di Editing Video Più Utili Sul Mercato</u></a></li>
 </ul></div>
 

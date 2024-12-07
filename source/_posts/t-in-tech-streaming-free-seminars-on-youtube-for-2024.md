@@ -1,7 +1,7 @@
 ---
 title: "\"Thrift in Tech  Streaming FREE Seminars on YouTube for 2024\""
-date: 2024-11-25T19:38:07.290Z
-updated: 2024-11-27T16:04:33.540Z
+date: 2024-11-30T01:05:01.150Z
+updated: 2024-12-06T21:45:50.787Z
 tags:
   - ai video
   - ai youtube
@@ -36,7 +36,7 @@ An alternative solution is available if your budget is tight, but you'd still li
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The All-in-One Screen Recorder & Video Editor
@@ -57,11 +57,11 @@ For macOS 10.12 or later
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Hosting a Webinar for Free
@@ -95,7 +95,7 @@ Hit the Go Live Now button, when you are ready to start your first webinar and e
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -119,15 +119,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/urating-tunes-a-comprehensive-guide-to-youtube-lists-for-2024/"><u>[New] Curating Tunes A Comprehensive Guide to YouTube Lists for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-following-fades-track-losses-on-insta-for-2024/"><u>[New] Following Fades Track Losses on Insta for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-earnings-breakdown-one-million-glances-at-youtube/"><u>[New] In 2024, Earnings Breakdown One Million Glances at Youtube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-uncover-sites-with-aggregated-ad-spots-on-youtube/"><u>[New] In 2024, Uncover Sites with Aggregated Ad Spots on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/op-voice-modification-tools-for-youtube-creators/"><u>[New] Top Voice Modification Tools for YouTube Creators</u></a></li>
-<li><a href="https://win-workspace.techidaily.com/convertissez-gratuitement-un-fichier-mp4-au-format-mov-sur-internet-movavi/"><u>Convertissez Gratuitement Un Fichier MP4 Au Format MOV Sur Internet - Movavi</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-forgotten-pin-of-your-nokia-g22-by-drfone-android/"><u>In 2024, How to Remove Forgotten PIN Of Your Nokia G22</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/smartest-ways-to-track-wedding-dates-ios-and-android-style/"><u>Smartest Ways to Track Wedding Dates, iOS & Android Style</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/visual-producer-hub/"><u>Visual Producer Hub</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/western-digitals-latest-achievement-in-storage-an-intriguing-review-of-the-4tb-wd-blue-sn50n0-ssd/"><u>Western Digital's Latest Achievement in Storage: An Intriguing Review of the 4TB WD Blue SN50n0 SSD</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-explore-and-download-50-free-youtube-banners/"><u>[New] In 2024, Explore & Download 50 FREE YouTube Banners</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-navigating-the-path-to-apple-podcast-acceptance/"><u>[New] In 2024, Navigating the Path to Apple Podcast Acceptance</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-screen-sharing-on-windows-11-via-zoom/"><u>[New] Mastering Screen Sharing on Windows 11 via Zoom</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ro-youtuber-essentials-studio-choice-over-beta-alternative-for-2024/"><u>[New] Pro YouTuber Essentials Studio Choice Over Beta Alternative for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/imple-steps-for-looped-iphone-videos/"><u>[New] Simple Steps for Looped iPhone Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nveiling-the-past-essential-historical-yt-creators-for-students/"><u>[New] Unveiling the Past Essential Historical YT Creators for Students</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-dialing-in-the-perfect-aspect-ratio-for-youtube-images/"><u>[Updated] 2024 Approved Dialing in the Perfect Aspect Ratio for YouTube Images</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-dissecting-the-financial-strategy-of-t-series-in-video-platforms-for-2024/"><u>[Updated] Dissecting the Financial Strategy of T-Series in Video Platforms for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-top-10-educational-youtube-channels/"><u>[Updated] In 2024, Top 10 Educational YouTube Channels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-perfect-your-youtube-presence-learn-to-create-engaging-ads-and-thumbnails-for-2024/"><u>[Updated] Perfect Your YouTube Presence Learn to Create Engaging Ads & Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-starting-a-youtube-channel-the-ultimate-blueprint/"><u>[Updated] Starting a YouTube Channel The Ultimate Blueprint</u></a></li>
+<li><a href="https://discover-advanced.techidaily.com/access-denied-overcoming-connection-problems-between-wd-my-cloud-and-windows-nx-discover-12-proven-fixes-now/"><u>Access Denied: Overcoming Connection Problems Between WD My Cloud and Windows nX - Discover 12 Proven Fixes Now</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/discover-the-ultimate-6-free-tools-to-clone-your-dvds-including-full-movies-and-hd-content-transfer/"><u>Discover the Ultimate 6 Free Tools to Clone Your DVDs, Including Full Movies and HD Content Transfer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-elevate-your-mobile-surfing-with-these-top-7-blockers/"><u>In 2024, Elevate Your Mobile Surfing with These Top 7 Blockers</u></a></li>
+<li><a href="https://facebook.techidaily.com/navigating-success-sheryls-tenure-at-facebook/"><u>Navigating Success: Sheryl's Tenure at Facebook</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722975389106-radeon-rx-470-driver-downloads-and-update-tutorials-enhance-your-gaming-experience-today/"><u>Radeon RX 470 Driver Downloads & Update Tutorials: Enhance Your Gaming Experience Today</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/swift-remedies-for-chatgpt-log-in-errors/"><u>Swift Remedies for ChatGPT Log-In Errors</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-anti-noise-headset-roundup-24/"><u>Ultimate Anti-Noise Headset Roundup '24</u></a></li>
+<li><a href="https://win-info.techidaily.com/ultimate-walkthrough-on-how-to-start-using-mirallis-action-today/"><u>Ultimate Walkthrough on How to Start Using Mirallis Action Today!</u></a></li>
 </ul></div>
 

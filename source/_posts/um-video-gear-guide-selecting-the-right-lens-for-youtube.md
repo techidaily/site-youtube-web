@@ -1,7 +1,7 @@
 ---
 title: "\"Premium Video Gear Guide  Selecting the Right Lens for YouTube\""
-date: 2024-11-25T17:06:15.546Z
-updated: 2024-11-27T23:39:04.550Z
+date: 2024-11-30T07:08:35.783Z
+updated: 2024-12-07T00:41:31.801Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ A DSLR is the ideal camera for some vlogs, and using a DSLR means you get to cus
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. Understanding Lenses: Zoom lens, Fixed lens, aperture, f-stop
@@ -42,10 +42,6 @@ There are two main categories of camera lenses: ‘zoom’ – lenses that allow
 We have explained the differences between Fixed lens and Zoom lens and advantages of using each lens, check this article: [Zoom Lens vs. Fixed Lenses: Which one is best for YouTuber?](https://tools.techidaily.com/wondershare/filmora/download/) for the detailed information.
 
 Before we get into the recommendations here is a little background information on lenses in general:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Beginner's Guide to Aperture and F-Stops
 
@@ -64,6 +60,10 @@ Light passes through your lens’s aperture on its way to your camera’s sensor
 F-stops are written like ‘f/1.8’ or ‘f/4’ on your lens. For more information on f-stops and blurring your background read “The Best Bokeh Lens - How to Get the Blurred Background for YouTube Videos” and watch Tasha’s video.
 
 **F-stops** or f-numbers indicate how open the aperture is, so for example if your camera is displaying f/32 value it means that your camera is letting very little light to get through to the camera's sensor. The f-number depends on a few other parameters such as shutter speed, exposure or ISO values. Large apertures provide a shallow depth of field which creates a smooth and artistic background blur, while a small aperture enables you to keep both the background and the foreground of your shot in focus.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Types of Camera Lenses
 
@@ -115,7 +115,7 @@ Canon released this lens in 2014 and shortly after it has gained the reputation 
 ![camera lens](https://images.wondershare.com/filmora/article-images/camera-lens-rec01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The EF 50mm is a fixed lens with an f-stop of 1.8, which means it is great for blurring your background and performs well even in poorer lighting conditions. This is a really great lens for an opinion or beauty vlog, where you do not need to move around. You can stay put right where the focus is sharpest and stand out by blurring everything behind you. If you tend to reuse the same sets then you do not really need a zoom feature. If your shooting conditions rarely change then it is just as easy to use a reliable fixed lens like the EF 50mm since you will not need to be rethinking your set up and adjusting.
@@ -131,7 +131,7 @@ Recording **moving objects** from a distance requires you to have a lens that al
 ![camera lens rec02](https://images.wondershare.com/filmora/article-images/camera-lens-rec02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The Tamron's standard zoom lens offers good value at a very reasonable price. The maximum aperture is f/2.8, while the minimum aperture value this lens supports is f/32, which means that its users can easily experiment with different **depths of field.** The lens is **compatible with most Canon cameras** so if you have a camera from another manufacturer you may have to use the lens adapter in order to mount it onto your camera. Like most standard zoom lenses, Tamron SP AF model is **highly versatile** and you can use it to record **a wide range of different scenes**.
@@ -147,7 +147,7 @@ If you are using a 4k camera to shoot your YouTube video, check out [best camera
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -171,18 +171,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-expressive-articulation-examination-iteration-8-for-2024/"><u>[New] Expressive Articulation Examination, Iteration 8 for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-conveniently-remove-downloaded-youtube-media-for-lightweight-devices/"><u>[New] In 2024, Conveniently Remove Downloaded YouTube Media for Lightweight Devices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-spotlight-solutions-the-top-17-vlog-gear-lists/"><u>[New] In 2024, Spotlight Solutions The Top 17 Vlog Gear Lists</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-engineering-an-emotional-movie-segment/"><u>[Updated] 2024 Approved Engineering an Emotional Movie Segment</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-high-revenue-streaming-star-across-the-globe/"><u>[Updated] 2024 Approved High Revenue Streaming Star Across the Globe</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-streamlining-videography-optimize-for-instagram/"><u>[Updated] 2024 Approved Streamlining Videography Optimize For Instagram</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-11-wallet-friendly-vlogging-tools-compiled/"><u>[Updated] 2024 Approved Top 11 Wallet-Friendly Vlogging Tools Compiled</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-secrets-to-stellar-youtube-livestreaming-top-cameras/"><u>[Updated] In 2024, Secrets to Stellar YouTube Livestreaming - Top Cameras</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-how-to-convert-youtube-to-mp4-safely-step-by-step-guide/"><u>2024 Approved How to Convert YouTube to MP4 Safely? [Step by Step Guide]</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-top-10-insights-for-creating-hits-with-music-reaction-videos/"><u>2024 Approved Top 10 Insights for Creating Hits with Music Reaction Videos</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/descubre-como-activar-el-respaldo-de-dvd-en-tu-pc-o-mac-usando-handbrake-e-instalando-libdvdcss-para-windows-11macos-ventana/"><u>Descubre Cómo Activar El Respaldo De DVD en Tu PC O Mac Usando HandBrake E Instalando Libdvdcss Para Windows 11/MacOS Ventana</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/dossier-vierge-et-inaccessible-pourquoi-les-donnees-ne-peuvent-pas-etre-consultees/"><u>Dossier Vierge Et Inaccessible : Pourquoi Les Données Ne Peuvent Pas Être Consultées</u></a></li>
-<li><a href="https://win-latest.techidaily.com/risoluzione-guida-come-trovare-la-cartella-dei-file-perduti-in-windows-11/"><u>Risoluzione Guida: Come Trovare La Cartella Dei File Perduti in Windows 11</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-boost-your-instagram-presence-optimal-tracking-tools-revealed/"><u>[New] In 2024, Boost Your Instagram Presence Optimal Tracking Tools Revealed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-relish-in-9-festive-full-length-films-exclusive-youtube-offering/"><u>[New] In 2024, Relish in 9 Festive, Full-Length Films Exclusive YouTube Offering</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-legality-taking-content-offline/"><u>[New] YouTube Legality Taking Content Offline</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-innovative-cameras-for-high-stakes-athletics/"><u>[Updated] 2024 Approved Innovative Cameras for High-Stakes Athletics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-steady-as-you-go-camera-stability-without-a-tripod/"><u>[Updated] In 2024, Steady as You Go Camera Stability Without a Tripod</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-free-image-savers-optimizing-video-graphics/"><u>2024 Approved FREE Image Savers Optimizing Video Graphics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-streamlining-slides-integrating-youtube-content/"><u>2024 Approved Streamlining Slides Integrating YouTube Content</u></a></li>
+<li><a href="https://blog-min.techidaily.com/dvdmacx-dvd-ripper-pro-100/"><u>DVDコピー用MacX DVD Ripper Pro 正規販売ページ - 100%ユーザーフレンドリーで安全</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-updated-how-to-install-new-toshiba-drivers-on-your-windows-pc/"><u>Get Updated - How to Install New Toshiba Drivers on Your Windows PC</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/209780343-9781633411722-horse-magick/"><u>Horse Magick | Free Book</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/navigating-the-world-of-computing-with-tom-a-hardware-guide/"><u>Navigating the World of Computing with Tom - A Hardware Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-picks-enjoy-family-friendly-films-everyone-loves-disneyplus-july-lineup/"><u>Top Picks: Enjoy Family-Friendly Films Everyone Loves - Disney+ July Lineup</u></a></li>
+<li><a href="https://win-hot.techidaily.com/trier-rapide-de-sauvegarde-le-serveur-windows-server-201n-sur-un-nas/"><u>Trier Rapide De Sauvegarde Le Serveur Windows Server 201N Sur Un NAS</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unlocking-the-power-of-preview-a-complete-user-guide-for-mac-for-2024/"><u>Unlocking the Power of Preview A Complete User Guide for Mac for 2024</u></a></li>
 </ul></div>
 

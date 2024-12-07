@@ -1,7 +1,7 @@
 ---
 title: "In 2024, DIY Tips for Affordable YouTube Intro/End Videos"
-date: 2024-08-28T08:45:31.733Z
-updated: 2024-08-29T08:45:31.733Z
+date: 2024-12-05T01:11:14.404Z
+updated: 2024-12-07T01:10:15.012Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/bbe5738e0d8808e6028f714bcae487dd6fc59c525
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-decoding-the-mechanics-of-subscriber-tracking-for-2024/"><u>[New] Decoding the Mechanics of Subscriber Tracking for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/irst-time-streamers-unite-learn-obs-and-broadcast-to-youtube/"><u>[New] First-Time Streamers Unite Learn OBS & Broadcast to Youtube</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-optimal-budget-free-fb-picturemotion-designer/"><u>[New] In 2024, Optimal Budget-Free FB Picture/Motion Designer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-thrifty-filmmaker-best-economical-camera-lineup/"><u>[New] In 2024, Thrifty Filmmaker Best Economical Camera Lineup</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-2024-approved-speak-the-code-vr-lingo-essentials/"><u>[Updated] 2024 Approved Speak the Code VR Lingo Essentials</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unleash-content-potential-how-to-increase-video-views-on-youtube/"><u>[Updated] 2024 Approved Unleash Content Potential How to Increase Video Views on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-stand-out-as-an-elite-gamer-on-youtube-for-2024/"><u>[Updated] Stand Out as an Elite Gamer on Youtube for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-vintage-tech-upgrade/"><u>[Updated] Vintage Tech Upgrade</u></a></li>
+<li><a href="https://fox-info.techidaily.com/2024-approved-tomtoms-next-gen-adventure-cameras-the-bandit-review/"><u>2024 Approved TomTom’s Next-Gen Adventure Cameras The Bandit Review</u></a></li>
+<li><a href="https://windows11.techidaily.com/avoid-frozen-savers-4-tips-to-fix-windows-issues/"><u>Avoid Frozen Savers: 4 Tips to Fix Windows Issues</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/expert-tips-on-handling-errors-when-winhttpdll-cannot-be-found-or-is-absent/"><u>Expert Tips on Handling Errors When Winhttp.dll Cannot Be Found or Is Absent</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-fix-oem-unlock-missing-on-htc-by-drfone-android/"><u>In 2024, How To Fix OEM Unlock Missing on HTC?</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-transformative-tech-review-magix-vpx-redefines-editing/"><u>In 2024, Transformative Tech Review Magix VPX Redefines Editing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-unlocking-earnings-a-step-by-step-guide-to-youtubes-monetization-on-mobile/"><u>In 2024, Unlocking Earnings A Step-by-Step Guide to YouTube's Monetization on Mobile</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-unpacking-youtubes-income-distribution-from-1m-viewers/"><u>In 2024, Unpacking YouTube's Income Distribution From 1M Viewers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/cket-subscribers-mastering-youtube-traffic-boost-for-2024/"><u>Skyrocket Subscribers Mastering YouTube Traffic Boost for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-guide-to-making-engaging-youtube-video-thumbnails-with-phones-for-2024/"><u>The Ultimate Guide to Making Engaging YouTube Video Thumbnails with Phones for 2024</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-google-pixel-fold-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Google Pixel Fold? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/olds-sway-over-youtube-subscribers/"><u>Who Holds Sway Over YouTube Subscribers?</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->

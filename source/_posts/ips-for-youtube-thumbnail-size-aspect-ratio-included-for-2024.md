@@ -1,7 +1,7 @@
 ---
 title: "[New] Tips for YouTube Thumbnail Size [Aspect Ratio Included] for 2024"
-date: 2024-11-22T23:56:01.533Z
-updated: 2024-11-27T18:58:07.756Z
+date: 2024-12-01T02:37:36.341Z
+updated: 2024-12-06T23:30:03.320Z
 tags:
   - ai video
   - ai youtube
@@ -58,7 +58,7 @@ There are restricted guidelines while designing the YouTube Thumbnail. The width
 ![Thumbnail-sizes](https://images.wondershare.com/filmora/article-images/2022/02/thumbnail-sizes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3 How to Make a Thumbnail on YouTube
@@ -90,10 +90,6 @@ To edit the YouTube Thumbnail using the Filmora application
 Download the program from its official webpage according to your system OS and install it. Then, add the image into the app timeline by tapping the Import media option.
 
 ![Import-file ](https://images.wondershare.com/filmora/article-images/2022/02/import-file.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step2 Resize the image
 
@@ -224,7 +220,7 @@ In this article, you will get valuable insights on the best size of YouTube thum
 ![xxYouTube-Thumbnailx](https://images.wondershare.com/filmora/article-images/2022/02/youtube-thumbnail.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### In this article
@@ -238,6 +234,10 @@ In this article, you will get valuable insights on the best size of YouTube thum
 04 [What happens if YouTube thumbnails are 1920x1080](#Part 4)
 
 05 [YouTube thumbnail formats](#Part 5)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1 What are YouTube Thumbnails?
 
@@ -275,10 +275,6 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 ![download](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To edit the YouTube Thumbnail using the Filmora application
 
 ##### Step1 Install the app and import the image
@@ -295,9 +291,17 @@ Drag and drop the uploaded image into the timeline and tap the ‘Export’ butt
 
 Apart from resizing, you can crop, trim, rotate the images as per your needs using this app. It is a reliable platform that assists to create an impressive impact on the media files. You can edit the videos and reshape them based on the requirements in no time. The Filmora offers a complete solution for audio and video file edits and aids you in creating enlightening media files for your needs.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4 What happens if YouTube thumbnails are 1920x1080
 
 The thumbnail images get pixelated and appear unclear on your YouTube channel. The clarity of the image is affected by uploading image sizes that are not advised by the YouTube guidelines. The video thumbnails on YouTube are crucial to reaching the target audience. It is good to stick to the prescribed width and height of YouTube Thumbnails to avoid unnecessary issues. Due to the dimension mismatch, the pixel elements distort giving out unpleasant images on the screen. To be successful as a YouTuber, it is high time to follow the thumbnail image measurements to avoid the blurred images on your uploaded videos. The distorted thumbnail image reduces the click counts thereby affecting your reputation as a YouTuber.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5 YouTube thumbnail formats
 
@@ -312,11 +316,7 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 ![filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -344,7 +344,7 @@ In this article, you will get valuable insights on the best size of YouTube thum
 05 [YouTube thumbnail formats](#Part 5)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1 What are YouTube Thumbnails?
@@ -355,6 +355,10 @@ While creating a thumbnail image, do not forget to use a reliable editor to make
 
 ![Thumbnail-samples ](https://images.wondershare.com/filmora/article-images/2022/02/thumbnail-samples.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2 Width and Height of YouTube Thumbnail
 
 There are restricted guidelines while designing the YouTube Thumbnail. The width and height of the YouTube thumbnail are important while designing it using a sophisticated program. As per the instructions of YouTube thumbnail, the image sizes must be 1280\*720 pixels and the minimum width is 640 pixels. The ideal aspect ratio is 16:9\. Only if you meet these requirements, you can successfully upload the thumbnail in your videos and publish it in your YouTube channel flawlessly. Scale down the thumbnail images with incredible applications without compromising the quality factors. Edit the images accordingly without disturbing the resolution of the picture. Use efficient programs to edit the YouTube thumbnail images as per your needs.
@@ -362,7 +366,7 @@ There are restricted guidelines while designing the YouTube Thumbnail. The width
 ![Thumbnail-sizes](https://images.wondershare.com/filmora/article-images/2022/02/thumbnail-sizes.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3 How to Make a Thumbnail on YouTube
@@ -395,21 +399,17 @@ Download the program from its official webpage according to your system OS and i
 
 ![Import-file ](https://images.wondershare.com/filmora/article-images/2022/02/import-file.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step2 Resize the image
 
 Drag and drop the uploaded image into the timeline and tap the ‘Export’ button. Here, you will find resizing attributes like Resolution and size. Tap the Settings option and edit these values according to YouTube Thumbnail and click the Export button again to save the edited file at the desired storage location.
 
 ![Resize-file ](https://images.wondershare.com/filmora/article-images/2022/02/resize-file.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Apart from resizing, you can crop, trim, rotate the images as per your needs using this app. It is a reliable platform that assists to create an impressive impact on the media files. You can edit the videos and reshape them based on the requirements in no time. The Filmora offers a complete solution for audio and video file edits and aids you in creating enlightening media files for your needs.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4 What happens if YouTube thumbnails are 1920x1080
 
@@ -452,16 +452,17 @@ Thus, this article has valuable insights into the width and height of YouTube Th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-top-5-alternative-editors-beyond-youtubes-limits/"><u>[New] In 2024, Top 5 Alternative Editors Beyond Youtube's Limits</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-discovering-your-iphones-top-free-photo-arrangement-and-editing-tools/"><u>[Updated] Discovering Your iPhone's Top Free Photo Arrangement & Editing Tools</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-global-leaders-in-real-time-gaming-streams/"><u>[Updated] Global Leaders in Real-Time Gaming Streams</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-gurus-summit-expedition/"><u>[Updated] In 2024, YouTube Gurus Summit Expedition</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-streamline-your-browsing-eliminate-youtube-ads-in-chrome-firefox-ios/"><u>[Updated] Streamline Your Browsing Eliminate YouTube Ads in Chrome, Firefox, iOS</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/2024-approved-deciphering-revenue-sharing-in-youtube-shorts/"><u>2024 Approved Deciphering Revenue Sharing in YouTube Shorts</u></a></li>
-<li><a href="https://win-marvelous.techidaily.com/comprehensive-guide-for-converting-your-hard-disk-to-solid-state-drive-on-a-windows-11-pc/"><u>Comprehensive Guide for Converting Your Hard Disk to Solid State Drive on a Windows 11 PC</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/effective-strategies-for-twitter-marketing-for-2024/"><u>Effective Strategies for Twitter Marketing for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/experiencing-lenovos-revolutionary-thinkpad-x1-fold-a-unique-blend-of-whimsy-and-luxury/"><u>Experiencing Lenovo’s Revolutionary ThinkPad X1 Fold: A Unique Blend of Whimsy & Luxury</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/sharpen-your-scopes-a-comprehensive-guide-to-close-up-roblox-for-2024/"><u>Sharpen Your Scopes A Comprehensive Guide to Close-Up Roblox for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/youtube-shorts-forever-a-step-by-step-guide-for-2024/"><u>Stop YouTube Shorts Forever A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nhancing-watchability-adding-time-stamps-to-youtube-videos-for-2024/"><u>[New] Enhancing Watchability Adding Time Stamps to YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-checklist-for-professional-youtube-clips/"><u>[New] The Ultimate Checklist for Professional YouTube Clips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-navigating-youtube-networking-creating-powerful-channel-backlinks/"><u>[Updated] In 2024, Navigating YouTube Networking Creating Powerful Channel Backlinks</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-brilliant-question-bank-to-entice-audio-enthusiasts/"><u>2024 Approved Brilliant Question Bank to Entice Audio Enthusiasts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-effortless-recordings-at-no-extra-cost-guide-to-top-free-tools/"><u>2024 Approved Effortless Recordings at No Extra Cost – Guide to Top Free Tools</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-the-essential-guide-to-aspect-ratios-on-youtube-platforms/"><u>2024 Approved The Essential Guide to ASPECT RATIOS on YOUTUBE Platforms</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/company-background/"><u>Company Background</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ngs-escalate-500-subscriber-marker-achieved-for-2024/"><u>Earnings Escalate 500-Subscriber Marker Achieved for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-essential-android-ad-blocking-the-top-7-app-list/"><u>In 2024, Essential Android Ad Blocking The Top 7 App List</u></a></li>
+<li><a href="https://driver-download.techidaily.com/lenovo-ideapad-100-driver-update-and-download-guide-for-windows-11-users/"><u>Lenovo IdeaPad 100 Driver Update & Download Guide for Windows 11 Users</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-data-from-magic-vs-2-by-fonelab-android-recover-data/"><u>The way to get back lost data from Magic Vs 2</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/top-iphones-for-gamers-a-comprehensive-ranking/"><u>Top iPhones for Gamers: A Comprehensive Ranking</u></a></li>
 </ul></div>
 

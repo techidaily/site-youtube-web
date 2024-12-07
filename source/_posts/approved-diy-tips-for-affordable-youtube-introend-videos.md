@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  DIY Tips for Affordable YouTube Intro/End Videos\""
-date: 2024-08-28T08:46:05.866Z
-updated: 2024-08-29T08:46:05.866Z
+date: 2024-12-02T19:26:30.036Z
+updated: 2024-12-07T01:27:46.350Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/cec2c63029344d0bb5e1e4c9de0d18ad2dcde0daf
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-easy-screenshot-methods-for-mac-users/"><u>[New] 2024 Approved Easy Screenshot Methods for Mac Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eciphering-youtubes-new-earning-standards/"><u>[New] Deciphering YouTube's New Earning Standards</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/uide-to-secure-and-cost-free-youtube-music-extraction-for-2024/"><u>[New] Guide to Secure and Cost-Free YouTube Music Extraction for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-beyond-vlc-a-comprehensive-look-at-streaming-software/"><u>[New] In 2024, Beyond VLC A Comprehensive Look at Streaming Software</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-fine-tuning-soundtracks-with-garageband-expertise/"><u>[New] In 2024, Fine-Tuning Soundtracks with GarageBand Expertise</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/astering-chapter-division-in-youtube-videos-for-2024/"><u>[New] Mastering Chapter Division in YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-youtube-makeup-craft-color-correction-essentials/"><u>[New] The YouTube Makeup Craft Color Correction Essentials</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-elevate-your-content-pc-video-editing-for-effective-youtube-presentations-for-2024/"><u>[Updated] Elevate Your Content PC Video Editing for Effective YouTube Presentations for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-expert-pick-mics-for-youtube-entrepreneurs/"><u>[Updated] Expert Pick Mics for YouTube Entrepreneurs</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-acoustiquest-investigating-soundscape/"><u>2024 Approved AcoustiQuest Investigating Soundscape</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-explore-the-top-15-scientific-channels-to-grow-wisdom/"><u>2024 Approved Explore the Top 15 Scientific Channels to Grow Wisdom</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/free-up-desktop-real-estate-on-macos-a-comprehensive-tutorial-for-concealing-active-programs-using-stage-manager-features-techwise-blog/"><u>Free Up Desktop Real Estate on macOS: A Comprehensive Tutorial for Concealing Active Programs Using Stage Manager Features | TechWise Blog</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-downloading-from-vimeo-made-simple-software-free-or-not/"><u>In 2024, Downloading From Vimeo Made Simple Software-Free or Not?</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->

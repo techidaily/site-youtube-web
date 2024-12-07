@@ -1,7 +1,7 @@
 ---
 title: "How to Add Video to Text"
-date: 2024-11-23T19:53:06.013Z
-updated: 2024-11-28T01:04:57.261Z
+date: 2024-12-05T07:44:34.324Z
+updated: 2024-12-07T04:16:43.592Z
 tags:
   - ai video
   - ai youtube
@@ -33,6 +33,10 @@ Luckily, video editing and presentation software products offer the tools you wi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Add Video to Text for Free with PowerPoint?
 
 An effective PowerPoint presentation should contain proportionate amounts of textual and visual elements. Using too many images, videos or animations can make following a presentation difficult, just as too much text can render a presentation too static.
@@ -46,7 +50,7 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
@@ -55,17 +59,9 @@ Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
 You can then fine-tune the video playback settings from the Playback tab. Preview the results before you move on to the next slide in your presentation, and make necessary adjustments if you don’t like how the video merged with the text.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Adding Video to Text in Filmora
 
@@ -77,19 +73,23 @@ You should start by creating a new project in Filmora and importing the video yo
 
 ![Add video to text - Filmora9](https://images.wondershare.com/filmora/article-images/add-title-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Set the preferred duration of the title by dragging one of its ends to the left or right after you place it on the timeline, and then double-click on it to customize it. Click on the Advanced button once the Text tab opens and insert the text into the Input Text box.
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -104,7 +104,7 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -128,19 +128,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ising-stars-in-digital-domain/"><u>[New] Rising Stars in Digital Domain</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-optimizing-youtube-banners-with-best-practices-in-mind/"><u>[Updated] 2024 Approved Optimizing YouTube Banners with Best Practices in Mind</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-best-watched-youtube-film-channels-ranked/"><u>[Updated] Best-Watched YouTube Film Channels Ranked</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-overcome-vanished-youtube-minute-media/"><u>[Updated] Overcome Vanished YouTube Minute Media</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-tiktok-shadowban-how-to-get-unshadowbanned-on-tiktok-for-2024/"><u>[Updated] TikTok Shadowban How to Get Unshadowbanned on Tiktok for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-direct-to-device-converting-youtube-tracks-for-idevices/"><u>2024 Approved Direct to Device Converting YouTube Tracks for iDevices</u></a></li>
-<li><a href="https://facebook.techidaily.com/delving-into-the-deepest-dive-2022s-best-rated-podcasts/"><u>Delving Into the Deepest Dive: 2022'S Best-Rated Podcasts</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/enhance-your-content-writing-on-social-platforms-using-chatgpt-techniques/"><u>Enhance Your Content Writing on Social Platforms Using ChatGPT Techniques</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/explore-these-fabul-challenging-game-options-within-chatgpt/"><u>Explore These Fabul Challenging Game Options Within ChatGPT</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 14 Pro Max? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-exploring-advanced-techniques-in-video-thumbnail-creation/"><u>In 2024, Exploring Advanced Techniques in Video Thumbnail Creation</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/in-2024-tweet-snaps-triumph-videos-dominating-discussions/"><u>In 2024, Tweet-Snaps Triumph Videos Dominating Discussions</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-free-split-screen-video-maker-online-and-offline-options-for-2024/"><u>Updated Free Split-Screen Video Maker Online and Offline Options for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rafting-the-ideal-youtube-playlist-an-easy-step-by-step-method/"><u>[New] Crafting the Ideal YouTube Playlist An Easy, Step-by-Step Method</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-exclusive-strategies-for-photovideo-importers-in-win11/"><u>[New] Exclusive Strategies for Photo/Video Importers in Win11</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlimited-editing-discover-these-9-free-cloud-tools/"><u>[New] Unlimited Editing Discover These 9 Free Cloud Tools</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nlock-the-magic-of-capturing-youtube-content-the-no-cost-way-for-2024/"><u>[New] Unlock the Magic of Capturing YouTube Content - The No-Cost Way for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-exploring-streaming-options-vimeo-vs-youtubes-popularity/"><u>[Updated] In 2024, Exploring Streaming Options Vimeo vs YouTube's Popularity</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-optimal-yt-video-cover-images-for-2024/"><u>[Updated] Optimal YT Video Cover Images for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-boosting-engagement-on-youtube-edit-update-and-enhance-metadata/"><u>2024 Approved Boosting Engagement on YouTube Edit, Update & Enhance Metadata</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-guide-the-ultimate-list-of-video-converters/"><u>2024 Approved Guide The Ultimate List of Video Converters</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/complete-analysis-hero4-black-system-for-2024/"><u>Complete Analysis Hero4 Black System for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/expert-opinion-the-nook-glowlight-4-edition-assessment/"><u>Expert Opinion: The Nook Glowlight 4 Edition Assessment</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/exploring-the-iphone-1n-14s-limitations-current-news-unique-aspects-pricing-details-and-detailed-specs-revealed/"><u>Exploring the iPhone 1N-14's Limitations: Current News, Unique Aspects, Pricing Details and Detailed Specs Revealed</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-resolve-among-us-persistent-loading-issue-fixed/"><u>How to Resolve 'Among Us' Persistent Loading Issue - Fixed</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/how-to-turn-off-google-location-to-stop-tracking-you-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>How to Turn Off Google Location to Stop Tracking You on Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-adding-richness-youtube-videos-in-slideshows/"><u>In 2024, Adding Richness YouTube Videos in Slideshows</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-digital-recorder-snap-your-screen-upload-to-youtube-onlinepcmac/"><u>In 2024, Digital Recorder Snap Your Screen, Upload to YouTube Online/PC/Mac</u></a></li>
+<li><a href="https://techtrends.techidaily.com/movavis-online-service-effortlessly-convert-mxf-audio-to-wav-for-free/"><u>Movavi's Online Service - Effortlessly Convert MXF Audio to WAV for Free</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/mp4dvd-flick/"><u>MP4ファイルを正常に再生するためのDVD Flick使用時のトラブルシューティングガイド</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ng-up-for-success-on-youtube-from-newbie-to-noteworthy-net-gain/"><u>Setting Up for Success on Youtube From Newbie to Noteworthy Net Gain</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solving-audio-problems-on-your-astro-a50-headset-quick-solutions-inside/"><u>Solving Audio Problems on Your Astro A50 Headset - Quick Solutions Inside</u></a></li>
 </ul></div>
 

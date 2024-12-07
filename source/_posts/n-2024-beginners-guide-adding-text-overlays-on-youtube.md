@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Beginner's Guide  Adding Text Overlays on YouTube\""
-date: 2024-11-24T17:19:24.364Z
-updated: 2024-11-28T00:14:36.228Z
+date: 2024-12-02T10:34:06.910Z
+updated: 2024-12-07T09:03:53.693Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ This article will first explain how you can turn on subtitles for the videos you
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How To Turn On Captions on YouTube
@@ -44,7 +44,7 @@ In order for you to be able to view subtitles for a YouTube video the uploader o
 ![captions](https://images.wondershare.com/filmora/article-images/captions-how-to-turn-on.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 To toggle subtitles on and off click on the Closed Captioning icon in the bottom right of your video player.
@@ -54,7 +54,7 @@ If the creator of the video has not added captions then you can enable automatic
 If you want to change the language of the subtitles click on the settings icon (the one that looks like a gear) next to the closed captioning icon and choose your language next to   **Subtitles/CC** . If the language you want is not there select **Auto-Translate**  and then pick a language. Google Translate will be used to generate subtitles in your chosen language.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Adding YouTube Captions in 4 Steps
@@ -82,7 +82,7 @@ The easiest way to add subtitles to your videos is to use **Automatic Captioning
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -106,17 +106,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://eaxpv-info.techidaily.com/new-free-mcb-theme-images-templates-and-more-for-2024/"><u>[New] Free MCB Theme Images, Templates & More for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/n-2024-captivate-masses-social-media-strategies-for-youtube/"><u>[New] In 2024, Captivate Masses Social Media Strategies for YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/eize-visual-riches-from-four-premium-youtube-portals/"><u>[New] Seize Visual Riches From Four Premium YouTube Portals</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-leading-luminaries-of-livestreaming-success/"><u>[Updated] 2024 Approved Leading Luminaries of Livestreaming Success</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-audience-wow-factor-the-best-camera-lenses-for-youtube-stars/"><u>2024 Approved Audience Wow Factor The Best Camera Lenses for YouTube Stars</u></a></li>
-<li><a href="https://some-tips.techidaily.com/enhance-your-visuals-with-our-cutting-edge-fork-of-stable-diffusion-perfect-for-creating-large-format-images-effortlessly/"><u>Enhance Your Visuals with Our Cutting-Edge Fork of Stable Diffusion, Perfect for Creating Large Format Images Effortlessly</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/how-does-gpt-4all-work-understanding-the-revolutionary-tool/"><u>How Does GPT-4ALL Work? Understanding the Revolutionary Tool</u></a></li>
-<li><a href="https://android-frp.techidaily.com/how-to-bypass-google-frp-lock-on-meizu-21-pro-devices-by-drfone-android/"><u>How to Bypass Google FRP Lock on Meizu 21 Pro Devices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-mobile-youtube-watching-iphone-and-android-edition/"><u>In 2024, Mobile YouTube Watching IPhone & Android Edition</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-6-best-sim-unlock-services-that-actually-work-on-your-sony-xperia-1-v-device-by-drfone-android/"><u>The 6 Best SIM Unlock Services That Actually Work On Your Sony Xperia 1 V Device</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-in-the-freefire-arena-with-pro-gamers-guide/"><u>Thriving in the FreeFire Arena with Pro Gamers' Guide</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/understanding-and-repairing-microsofts-0x80010108-windows-error-code-guide/"><u>Understanding and Repairing Microsoft's 0X80010108 Windows Error Code Guide</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-cutting-edge-techniques-elevating-your-youtube-edits-using-imovie/"><u>[New] 2024 Approved Cutting-Edge Techniques Elevating Your YouTube Edits Using iMovie</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-chart-a-course-to-success-youtube-studio-blueprint/"><u>[New] In 2024, Chart a Course to Success YouTube Studio Blueprint</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-key-tools-every-new-youtuber-needs/"><u>[New] In 2024, Key Tools Every New YouTuber Needs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/loggers-guide-to-top-5-game-microphones/"><u>[New] Vloggers’ Guide to Top 5 Game Microphones</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-from-novice-to-niche-tripling-your-youtube-fans/"><u>[Updated] 2024 Approved From Novice to Niche Tripling Your Youtube Fans</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-visualize-your-vision-access-no-cost-templates-for-youtube-creators/"><u>[Updated] 2024 Approved Visualize Your Vision – Access No-Cost Templates for YouTube Creators</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-how-to-make-a-creative-split-screen-video-for-youtube/"><u>[Updated] In 2024, How to Make a Creative Split-Screen Video for YouTube?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expressive-beginnings-templates-at-no-charge/"><u>2024 Approved Expressive Beginnings Templates at No Charge</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tlessly-download-your-favorite-youtube-playlists-for-2024/"><u>Effortlessly Download Your Favorite YouTube Playlists for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/exploring-dells-bold-move-with-the-latest-p2715q-monitor-review/"><u>Exploring Dell's Bold Move with the Latest P2715Q Monitor Review</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on OnePlus Open? | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-2-ways-to-monitor-apple-iphone-7-plus-activity-drfone-by-drfone-virtual-ios/"><u>In 2024, 2 Ways to Monitor Apple iPhone 7 Plus Activity | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/mastering-faster-downloads-in-microsofts-app-stores/"><u>Mastering Faster Downloads in Microsoft's App Stores</u></a></li>
+<li><a href="https://driver-download.techidaily.com/quick-and-easy-downloads-of-wacom-device-drivers/"><u>Quick & Easy Downloads of Wacom Device Drivers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-art-of-discrete-audio-erosion-in-audacity-for-2024/"><u>The Art of Discrete Audio Erosion in Audacity for 2024</u></a></li>
 </ul></div>
 

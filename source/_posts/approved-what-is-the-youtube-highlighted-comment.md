@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  What Is the YouTube Highlighted Comment?\""
-date: 2024-11-22T00:36:40.210Z
-updated: 2024-11-27T20:44:05.709Z
+date: 2024-12-04T06:51:41.963Z
+updated: 2024-12-07T01:51:49.801Z
 tags:
   - ai video
   - ai youtube
@@ -42,10 +42,6 @@ If you own a YouTube channel or are starting one, even you can do this. Without 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: What Does The Highlighted Comment Mean On YouTube?
 
 Before you get on with highlighting your comments, you must understand what it means exactly. You may follow comments on the videos posted by several YouTubers, but the highlighted ones are always making it to the top of the list.
@@ -64,7 +60,7 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: What Does The Highlighted Comment Look Like?
@@ -73,20 +69,12 @@ YouTube has been working on improving the navigation of the comment section for 
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
@@ -97,6 +85,10 @@ Thus, anybody who wants to get their YouTube comment an HC tag has to follow a f
 
 For example, if you are a YouTuber who deals in tech information, you need to look for a popular video or channel with a similar genre, in this case, technical knowledge. The more popular the channel is, the more is the chance of a viewer checking the comments on its videos. You will only benefit if you're comment is highlighted on pages of Youtuber's who are huge.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 4: How to Get the URL of Highlighted Comments?
 
 The ways to acquire the URL or link for a highlighted comment are different for both parties- viewer and host.
@@ -104,6 +96,10 @@ The ways to acquire the URL or link for a highlighted comment are different for 
 Suppose you are a viewer who is going through the comments section of a video. If you want to get the highlighted URL for the comment, simply click on the timestamp (e.g., 2 weeks ago) beside the commentator's username.
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
@@ -159,6 +155,10 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -180,24 +180,14 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-discover-the-safest-video-call-options-for-your-smartphone-or-tablet/"><u>[New] 2024 Approved Discover the Safest Video Call Options for Your Smartphone or Tablet</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-10-viral-exercise-routines-to-keep-your-channel-thriving/"><u>[New] In 2024, 10 Viral Exercise Routines to Keep Your Channel Thriving</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-aiming-high-selecting-the-best-webcams-for-live-gameplay-streams/"><u>[New] In 2024, Aiming High Selecting the Best Webcams for Live Gameplay Streams</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-smooth-transition-of-short-videos-to-youtube-device-guide/"><u>[New] In 2024, Smooth Transition of Short Videos to YouTube - Device Guide</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-in-2024-the-artistry-behind-capturing-evening-light-and-people/"><u>[New] In 2024, The Artistry Behind Capturing Evening Light and People</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/hifting-paradigms-non-youtube-video-hosts/"><u>[New] Shifting Paradigms Non-Youtube Video Hosts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-digital-delights-the-finest-15-comedic-channels-on-youtube-for-2024/"><u>[Updated] Digital Delights The Finest 15 Comedic Channels on YouTube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-harnessing-the-power-of-targeted-video-appeal-for-2024/"><u>[Updated] Harnessing the Power of Targeted Video Appeal for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-the-complete-process-for-customizing-video-game-channels/"><u>2024 Approved The Complete Process for Customizing Video Game Channels</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-youtubian-beginnings-unveiled-building-a-business-and-bringing-big-bucks/"><u>2024 Approved Youtubian Beginnings Unveiled Building a Business and Bringing Big Bucks</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-vivo-y100i-power-5g-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Vivo Y100i Power 5G</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>In 2024, Does Life360 Notify When You Log Out On Apple iPhone 6s? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-mastering-youtube-insights-for-channel-expansion/"><u>In 2024, Mastering YouTube Insights for Channel Expansion</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/st-digital-revenue-prognosticator/"><u>No-Cost Digital Revenue Prognosticator</u></a></li>
-<li><a href="https://driver-install.techidaily.com/swift-and-effective-driver-renewal-methods-for-your-hyperx-audio-equipment/"><u>Swift and Effective Driver Renewal Methods for Your HyperX Audio Equipment</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210127143-9781950241835-the-gift-of-courage-3rd-ed/"><u>The Gift of Courage (3rd ed.) | Free Book</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/titre-expert-en-retouches-photo-movavi-achetez-maintenant/"><u>Titre : Expert en Retouches Photo Movavi - Achetez Maintenant</u></a></li>
-<li><a href="https://techtrends.techidaily.com/top-monthly-savings-on-verizon-phone-upgrades-score-your-new-device-today/"><u>Top Monthly Savings on Verizon Phone Upgrades – Score Your New Device Today!</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/what-is-llama-2-and-how-can-you-use-it/"><u>What Is Llama 2 and How Can You Use It?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-effortless-entertainment-looping-youtube-videos-for-tv-viewers/"><u>[New] In 2024, Effortless Entertainment Looping YouTube Videos for TV Viewers</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-perfecting-subtitles-in-media-ultimate-list-of-on-line-aid-sources/"><u>[New] Perfecting Subtitles in Media Ultimate List of On-Line Aid Sources</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-12-real-time-youtube-subscriber-trackers/"><u>[Updated] 2024 Approved Top 12 Real-Time YouTube Subscriber Trackers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-the-premier-source-of-no-cost-creative-tools-in-ae/"><u>[Updated] In 2024, The Premier Source of No-Cost Creative Tools in AE</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-maximize-your-youtube-channels-financial-potential-for-2024/"><u>[Updated] Maximize Your YouTube Channel's Financial Potential for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-mastering-the-art-of-cropping-in-the-digital-age/"><u>2024 Approved Mastering the Art of Cropping in the Digital Age</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/202n4-hivatalos-convert-imovie-filmek-windows-videokonyveszetossegbe-szepsugo/"><u>202N4 HIVATALOS: Convert iMovie Filmek Window's Videokönyveszetösségbe - Szépsugó</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nding-attention-on-digital-platforms-via-custom-designs-for-2024/"><u>Commanding Attention on Digital Platforms via Custom Designs for 2024</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/step-by-step-guide-acquiring-audio-content-for-your-computer/"><u>Step-by-Step Guide Acquiring Audio Content for Your Computer</u></a></li>
 </ul></div>
 

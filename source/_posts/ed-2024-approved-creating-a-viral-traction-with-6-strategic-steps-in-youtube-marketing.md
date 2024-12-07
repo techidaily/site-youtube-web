@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Creating a Viral Traction with 6 Strategic Steps in YouTube Marketing\""
-date: 2024-08-28T08:48:48.612Z
-updated: 2024-08-29T08:48:48.612Z
+date: 2024-12-03T03:38:40.993Z
+updated: 2024-12-06T21:23:17.516Z
 tags:
   - ai video
   - ai youtube
@@ -54,16 +54,17 @@ Loading up your tags with keywords that are relevant to your video and genre wil
 Including the maximum amount of tags possible will help to give YouTube the maximum amount of information to use in order to place your video in the results of different searches or to have it come up as ‘related’ to other videos. Users that only post 3 or 4 tags with each video could be missing out on countless amounts of traffic for their content.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Post a Transcript in Your Video Description
 
 If you have a script or a transcript for your entire video you should consider posting it in the description of your video in order to improve your search engine ranking. This can also help for users that would like to have a written article to accompany your video and for indexing your video in search engine results. There are so many people that don't make proper use of their video descriptions on YouTube that doing so will give you an advantage.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4\. Write Searchable YouTube Video Tiles
 
 By including your 1 or 2 most important keywords in the title of your video you will help YouTube sort your video into the correct search results. Generally, your most important keywords will be things like the name of the game you’re playing or the brand of makeup you’re reviewing.
@@ -73,8 +74,9 @@ Try to write titles that are searchable and which also get potential viewers exc
 Phrases such as ‘review’, ‘how-to’, and ‘tutorial’ get searched for a lot, so always include them in your titles when they apply to your videos.
 
 <!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Optimize your Video Description for YouTube SEO
 
 Video descriptions should generally include around 4000 characters (about 900 words) in which you describe the content of your YouTube video, include important keywords, provide links to your other social media accounts, and ask viewers to subscribe. Using up all the space in your description is a good way to ensure you’re getting the maximum search value out of it.
@@ -82,8 +84,9 @@ Video descriptions should generally include around 4000 characters (about 900 wo
 If you use a lot of products in your videos (i.e. you make cooking videos, so your favorite frying pan is in a lot of shots) then it is a good idea to look into affiliate programs. Amazon has one of the best. If you become an affiliate you can post links to the products you use in your video description and, if a viewer follows one and buys something (even if it’s not the thing you liked to) you’ll earn a commission. This won’t help you with search rankings, but it’s a nice bonus.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Use Custom Video Thumbnails
 
 A [custom thumbnail](https://tools.techidaily.com/wondershare/filmora/download/) is an excellent way to make your videos stand out ([check out these awesome thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/)). A good thumbnail is its own piece of quality, customized, visual content that has the power to draw in audiences from search engine results. Make sure to take thumbnail-specific photos and perfect those images with text and graphics in Photoshop or a free alternative like Canva.
@@ -97,22 +100,20 @@ If you are interested in generating more traffic to any YouTube video be sure to
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -121,4 +122,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/nhancing-video-reach-convert-yt-to-igtv/"><u>[New] Enhancing Video Reach Convert YT to IGTV</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/uick-and-easy-channels-personalize-your-youtube-url-now-in-2024/"><u>[New] Quick and Easy Channels Personalize Your YouTube URL Now, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-drive-engagement-not-farewells-top-strategies-to-keep-your-audience-hooked-on-youtube/"><u>[Updated] 2024 Approved Drive Engagement, Not Farewells Top Strategies to Keep Your Audience Hooked on YouTube</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-secrets-of-storing-whatsapp-conversations/"><u>[Updated] 2024 Approved Secrets of Storing WhatsApp Conversations</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-step-by-step-to-effortless-iphone-screen-recording/"><u>[Updated] 2024 Approved Step-by-Step to Effortless IPhone Screen Recording</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-avoiding-blur-techniques-for-hand-held-stability-for-2024/"><u>[Updated] Avoiding Blur Techniques for Hand-Held Stability for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-dissecting-youtubes-operational-model-post-upload/"><u>[Updated] Dissecting YouTube's Operational Model Post-Upload</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-all-you-need-to-know-about-mega-greninja-for-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, All You Need To Know About Mega Greninja For Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-capture-the-essence-of-your-favorite-series-with-these-extractors/"><u>In 2024, Capture the Essence of Your Favorite Series with These Extractors</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-oppo-a2-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Oppo A2</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/rapid-video-grabber-and-audible-guide-system-for-2024/"><u>Rapid Video Grabber & Audible Guide System for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/safeguard-your-health-limits-of-ai-diagnosis/"><u>Safeguard Your Health: Limits of AI Diagnosis</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/the-ultimate-iphone-photography-playbook-for-2024/"><u>The Ultimate iPhone Photography Playbook for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/will-natural-language-processing-overthrow-se/"><u>Will Natural Language Processing Overthrow SE?</u></a></li>
+</ul></div>
 

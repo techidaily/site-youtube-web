@@ -1,7 +1,7 @@
 ---
 title: "Who Holds Sway Over YouTube Subscribers?"
-date: 2024-11-26T21:19:44.454Z
-updated: 2024-11-27T16:11:54.861Z
+date: 2024-12-01T20:53:26.328Z
+updated: 2024-12-07T00:17:46.121Z
 tags:
   - ai video
   - ai youtube
@@ -56,28 +56,24 @@ In this article, we will take you through the 5 most popular creator channels on
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\.  PewDiePie
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ###  2\.  HolaSoyGerman
 
 ![HolaSoyGerman](https://images.wondershare.com/filmora/article-images/hola-soy-german.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 At the age of 27, Germán Alejandro Garmendia Aranis is the owner of the second most subscribed channel on YouTube with more than 32 million subscribers. Furthermore, HolaSoyGerman’s channel is the most subscribed Spanish-speaking channel today. Germán's second YouTube channel JuegaGerman has made him the only YouTuber ever to receive two diamond play buttons for having over 40 million subscribers on his two channels.
 
@@ -86,10 +82,6 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 ###  3\.  ElrubiusOMG
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
@@ -109,6 +101,10 @@ In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube c
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
 At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 million downloads in the first week. His videos are mostly in Spanish which somewhat limits his audience, but it is safe to say the Fernanfloo channel is among the most popular channels in the Latin American countries since most of his audience comes from Bolivia, Peru, and Ecuador.
@@ -117,15 +113,19 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -148,18 +148,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-cutting-edge-techniques-for-excellent-powerpoint-recordings/"><u>[New] In 2024, Cutting-Edge Techniques for Excellent PowerPoint Recordings</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-navigating-googles-augmented-reality-adornments/"><u>[New] Navigating Google's Augmented Reality Adornments</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-the-ultimate-checklist-to-add-audio-to-your-facebook-vids-for-2024/"><u>[New] The Ultimate Checklist to Add Audio to Your Facebook Vids for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-integrating-interactive-features-for-enhanced-viewers-experience-on-youtube/"><u>[Updated] 2024 Approved Integrating Interactive Features for Enhanced Viewers' Experience on Youtube</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-seamless-transformation-top-tools-for-youtube-videos/"><u>[Updated] 2024 Approved Seamless Transformation Top Tools for YouTube Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/cks-for-instantly-boosting-youtube-subscribers/"><u>5 Tricks for Instantly Boosting YouTube Subscribers</u></a></li>
-<li><a href="https://win-answers.techidaily.com/complete-guide-mastering-every-download-technique-from-simple-links-to-complex-videos/"><u>Complete Guide: Mastering Every Download Technique From Simple Links to Complex Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-more-than-just-watch-time-understanding-youtube-views-calculation/"><u>In 2024, More than Just Watch Time Understanding YouTube Views Calculation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-push-boundaries-with-unique-split-screen-videos-for-youtube/"><u>In 2024, Push Boundaries with Unique Split-Screen Videos for YouTube</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/premier-android-storage-in-the-clouds-list-for-2024/"><u>Premier Android Storage in the Clouds List for 2024</u></a></li>
-<li><a href="https://driver-error.techidaily.com/re-identify-devices-after-adb-failure-in-winnt/"><u>Re-Identify Devices After ADB Failure in WinNT</u></a></li>
-<li><a href="https://extra-information.techidaily.com/ultimate-selection-of-cameras-for-film-production/"><u>Ultimate Selection of Cameras for Film Production</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/wav-3gp-movavi/"><u>WAV 및 3GP 형식으로 원격으로 무료 영상 변환 - Movavi</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-elevating-your-nba-experience-with-advanced-streaming-for-2024/"><u>[New] Elevating Your NBA Experience with Advanced Streaming for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-efficiently-delete-unwanted-video-feedback/"><u>[New] How to Efficiently Delete Unwanted Video Feedback</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-boost-your-channels-following-by-a-thousand/"><u>[New] In 2024, Boost Your Channels' Following by a Thousand</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-in-2024-elevating-selfies-to-artistic-levels-via-ios-11-features/"><u>[New] In 2024, Elevating Selfies to Artistic Levels via iOS 11 Features</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-ultimate-affordable-game-controllers-under-100/"><u>[Updated] 2024 Approved Ultimate Affordable Game Controllers Under $100</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unleash-video-magic-top-7-royalty-free-sounds-for-editors/"><u>[Updated] 2024 Approved Unleash Video Magic Top 7 Royalty-Free Sounds for Editors</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-exploring-significance-and-usage-of-a-blue-emoji-on-messenger/"><u>[Updated] Exploring Significance and Usage of a Blue Emoji on Messenger</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-to-completely-erase-youtube-shorts-footprint-for-2024/"><u>[Updated] How To Completely Erase YouTube Shorts Footprint for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-audiovisual-virtuoso-capturing-emotion-in-harmony/"><u>[Updated] In 2024, Audiovisual Virtuoso Capturing Emotion in Harmony</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-optimal-mac-animation-storer/"><u>2024 Approved Optimal Mac Animation Storer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-saturating-the-market-precision-in-sharing-through-shorts/"><u>2024 Approved Saturating the Market Precision in Sharing Through Shorts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-what-is-the-youtube-highlighted-comment/"><u>2024 Approved What Is the YouTube Highlighted Comment?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-retrieve-lost-pictures-from-oppo-a1x-5g-by-fonelab-android-recover-pictures/"><u>Best Android Data Recovery - Retrieve Lost Pictures from Oppo A1x 5G.</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/er-guide-decoding-youtube-live-image-codes/"><u>Insider Guide Decoding YouTube Live Image Codes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-money-making-enabling-youtube-monetization-for-mobile-devices-for-2024/"><u>Mastering Money-Making Enabling YouTube Monetization for Mobile Devices for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/inside-the-ultimate-list-of-immersive-youtube-vr-content-for-2024/"><u>Step Inside The Ultimate List of Immersive YouTube VR Content for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/step-by-step-solution-eliminating-lag-while-playing-fortnite/"><u>Step-by-Step Solution: Eliminating Lag While Playing Fortnite</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-tutorial-for-assessing-personal-data-usage-habits/"><u>The Ultimate Tutorial for Assessing Personal Data Usage Habits</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-windows-10-users-guide-to-microphones/"><u>The Windows 10 User's Guide to Microphones</u></a></li>
 </ul></div>
 
