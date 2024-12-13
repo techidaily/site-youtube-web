@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Step-by-Step Guide to Elevating Video Presence Through Thumbnails\""
-date: 2024-12-04T09:27:43.314Z
-updated: 2024-12-06T18:08:11.921Z
+date: 2024-12-08T10:53:15.151Z
+updated: 2024-12-12T17:20:45.176Z
 tags:
   - ai video
   - ai youtube
@@ -46,10 +46,6 @@ We have just made a video tutorial about how to make a YouTube video thumbnail, 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Part 1: How to Make a Thumbnail for YouTube and Add Custom Thumbnails to YouTube
 
 After you've verified your account and made your thumbnail, it's finally time to upload it to your video and make a custom thumbnail. To do this, go to Creator Studio and then Video Manager. You'll see a button labeled "Edit" next to each video, and an arrow pointing down. Click **Thumbnail Editor**.
@@ -88,10 +84,6 @@ Check this video tutorial to see how to Make a Youtube Thumbnail using Canva.
 
 Check this video tutorial to see how to make professional Thumbnails for YouTube Videos with Gimp:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Part 3: How to Change A Thumbnail On YouTube
 
 Note: YouTube allows verified YouTube accounts (accounts that provided YouTube with a working phone number) to upload custom thumbnail images and change them accordingly.
@@ -102,10 +94,6 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 ![ YouTube Studio button](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-find-youtube-studio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * On the left side of the page, click on **Videos** and then find your video and click on the **details** button.
 
 ![Change YouTube Video Info](https://images.wondershare.com/filmora/article-images/change-youtube-thumbnail-from-video-details.jpg)
@@ -115,7 +103,15 @@ In this part, we’ll be going over how to change a thumbnail image on YouTube. 
 
 ![Change YouTube Video Thumbnail](https://images.wondershare.com/filmora/article-images/change-thumbnail-on-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you don't have an image to upload but you want to check out some online resources to make your own, check out our [Top YouTube Thumbnail Makers](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: Things You Need to Know Before Making a Custom Thumbnail
 
@@ -133,13 +129,13 @@ To make a creative YouTube video, you may also need a powerful video editing sof
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You may also like: [Best video editing software for YouTube](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5: Tips on How to Make Good YouTube Thumbnails - Get More Clicks
@@ -154,10 +150,6 @@ Very few people intentionally use thumbnails that have nothing to do with the co
 
 ![ YouTube Thumbnail Should be relevant](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-should-stay-on-topic.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _This thumbnail had better be for a kitten’s iPhone review video or people will click away. Fast._
 
 A mistake a lot of creators do make is creating a thumbnail that is meant to evoke an emotion which the video itself does not justify. For example, if you see a picture of a YouTuber looking nervous alongside text that reads ‘My Secret’, you will think they are going to share something deeply personal. You will be curious, and you may even be worried about them. You’ll probably click. Then, if their secret is that they don’t like pineapple on pizza, you’ll probably be angry. This technique gets clicks, but not a lot of watch time and it will lose you subs in the long run.
@@ -171,10 +163,6 @@ Often, they will be looking for the answer to a specific question and will compl
 Sometimes big channels can get away with stuff like this, because large portions of their audiences are interested in them as people and will already be curious about anything they post. This technique will not bring in new viewers, though.
 
 ![ YouTube Thumbnail:  Don’t Be Mysterious ](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-tips-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _If this came up in a search for ‘smoky eye tutorial’, would you click it?_
 
@@ -206,6 +194,10 @@ Beyond simply using colors that are different from other people’s colors, you 
 
 ![ YouTube Thumbnail Making Tips](https://images.wondershare.com/filmora/article-images/youtube-thumbnail-use-color.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Maybe don’t use a lot of green and yellow in the thumbnail for your angry video rant?_
 
 #### 6. Make Your Text Huge
@@ -213,6 +205,10 @@ _Maybe don’t use a lot of green and yellow in the thumbnail for your angry vid
 Usually, you’ll want to use a bit of text in your thumbnail. It might be the full title of your video, or just a keyword or phrase. You don’t want to use a full sentence because you won’t have room for it if you’re using huge text.
 
 The reason you should use huge text is so that people can read it. Remember that when people see your thumbnail in their search results, it will be much smaller than it will look while you are creating it. Text that looks big enough while you are creating your thumbnail will be much smaller when people are actually trying to read it, and that goes double for viewers watching on their small smartphone screens.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Frequently Asked Questions about YouTube Thumbnail
 
@@ -233,6 +229,10 @@ Normally, if you have a good internet connection, you can see the thumbnail is c
 When you get more people watching your video for longer, it increases your watch time and tells YouTube’s search algorithm ‘people like this, rank it higher’. Being ranked higher gets you more views, and even more watch time. It’s a wonderful cycle that all begins with a great thumbnail (paired with a good title and the right tags).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -255,24 +255,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-files.techidaily.com/new-2024-approved-illuminating-photography-with-dynamic-mosaic-creations/"><u>[New] 2024 Approved Illuminating Photography with Dynamic Mosaic Creations</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ow-to-create-a-playlist-on-youtube-a-complete-guide-for-2024/"><u>[New] How to Create a Playlist on Youtube - a Complete Guide for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/avigating-the-intricacies-of-transferring-videos-to-youtube/"><u>[New] Navigating the Intricacies of Transferring Videos to YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-art-of-online-earnings-youtubes-money-matrix-for-2024/"><u>[New] The Art of Online Earnings YouTube's Money Matrix for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unlocking-views-youtube-thumbnail-dimension-strategies/"><u>[Updated] 2024 Approved Unlocking Views YouTube Thumbnail Dimension Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-essential-iphoneandroid-apps-for-aspiring-creators/"><u>[Updated] In 2024, Essential iPhone/Android Apps for Aspiring Creators</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-revel-in-the-power-of-leading-video-rank-tracker-tools/"><u>[Updated] In 2024, Revel in the Power of Leading Video Rank Tracker Tools</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-in-2024-the-comprehensive-users-manual-for-precision-playback/"><u>[Updated] In 2024, The Comprehensive User's Manual for Precision Playback</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-to-subscription-the-youtube-partner-program-route-for-2024/"><u>[Updated] Step-by-Step to Subscription The YouTube Partner Program Route for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-why-youtubes-viewer-numbers-matter-more-than-you-think/"><u>[Updated] Why YouTube's Viewer Numbers Matter More Than You Think</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-7-pulse-pounding-workouts-that-gain-traction-on-social-media/"><u>2024 Approved 7 Pulse-Pounding Workouts That Gain Traction on Social Media</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/2024s-top-list-the-ideal-ultrawide-screens-for-competitive-play/"><u>2024'S Top List: The Ideal Ultrawide Screens for Competitive Play</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-crafting-a-viral-phenomenon-on-igtv-with-savvy-hash-tags/"><u>In 2024, Crafting a Viral Phenomenon on IGTV with Savvy Hash Tags</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-fake-the-location-to-get-around-the-mlb-blackouts-on-samsung-galaxy-a15-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Fake the Location to Get Around the MLB Blackouts on Samsung Galaxy A15 4G | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-apple-iphone-11-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Apple iPhone 11 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-removing-device-from-apple-id-for-your-iphone-12-pro-by-drfone-ios/"><u>In 2024, Removing Device From Apple ID For your iPhone 12 Pro</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-vivo-v29-pro-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Vivo V29 Pro | Dr.fone</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/prime-racing-game-selection-top-five/"><u>Prime Racing Game Selection Top Five</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/tailoring-your-netflix-viewing-experience/"><u>Tailoring Your Netflix Viewing Experience</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-expert-tips-for-optimizing-azure-speech-to-text-functionality-for-2024/"><u>[New] Expert Tips for Optimizing Azure Speech to Text Functionality for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-navigating-the-social-maze-tweets-plus-tumble-videos-for-2024/"><u>[New] Navigating the Social Maze Tweets + Tumble Videos for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-the-finest-places-to-source-high-quality-vectors/"><u>[New] The Finest Places to Source High-Quality Vectors</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlocking-the-prime-youtube-post-hours/"><u>[New] Unlocking the Prime YouTube Post Hours</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-free-7-best-apps-to-go-live-on-youtube-from-iphone-or-android/"><u>[Updated] In 2024, FREE 7 Best Apps to Go Live on YouTube From iPhone or Android</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-transform-text-to-trendy-memes-kapwings-magic-tool/"><u>[Updated] Transform Text to Trendy Memes - Kapwing’s Magic Tool</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-essential-audio-techniques-capturing-clear-sound/"><u>2024 Approved Essential Audio Techniques Capturing Clear Sound</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-top-10-global-youtube-stars-with-mass-following/"><u>2024 Approved Top 10 Global YouTube Stars with Mass Following</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/erated-fortnite-visualization-steps-for-2024/"><u>Accelerated Fortnite Visualization Steps for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-views-essential-hashtags-for-trending-shorts/"><u>Boosting Views Essential Hashtags for Trending Shorts</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/earning-mastery-in-streams-a-comprehensive-review-for-2024/"><u>Earning Mastery in Streams A Comprehensive Review for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-live-streaming-capture-services/"><u>In 2024, Live-Streaming Capture Services</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-revitalize-your-routine-with-these-top-10-yoga-streams-of-note/"><u>In 2024, Revitalize Your Routine with These Top 10 Yoga Streams of Note</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-reaction-videos-boil-down-to-expressing-your-attitude-about-the-topic-you-feel-strongly-about-and-here-are-5-reaction-video-makers-you-sho/"><u>New 2024 Approved Reaction Videos Boil Down to Expressing Your Attitude About the Topic You Feel Strongly About, and Here Are 5 Reaction Video Makers You Should Try</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/perfect-practices-in-livestreaming-athletic-competitions/"><u>Perfect Practices in Livestreaming Athletic Competitions</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/quick-fix-guide-repair-and-enhance-your-iphoneipadmacs-airdrop-for-2024/"><u>Quick-Fix Guide Repair and Enhance Your iPhone/iPad/Mac's AirDrop for 2024</u></a></li>
 </ul></div>
 

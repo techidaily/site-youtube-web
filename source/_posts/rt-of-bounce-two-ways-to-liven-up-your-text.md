@@ -1,7 +1,7 @@
 ---
 title: "\"The Art of Bounce  Two Ways to Liven Up Your Text\""
-date: 2024-12-05T17:22:32.161Z
-updated: 2024-12-06T21:59:44.860Z
+date: 2024-12-05T16:22:56.125Z
+updated: 2024-12-13T04:13:51.093Z
 tags:
   - ai video
   - ai youtube
@@ -32,7 +32,7 @@ Earlier, you learned how to have a **[bounce text effect in Adobe After Effects]
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
@@ -55,19 +55,23 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 4: Export the Final Output**
 
@@ -84,7 +88,7 @@ As explained before, Wondeshare Filmora makes the entire process of creating and
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -98,10 +102,6 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -129,10 +129,6 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -146,6 +142,10 @@ Click your preferred option from next to the **Download As** section to download
 Generating **bounce text** effect is much simpler when you use Wondershare Filmora or any of the online solutions as explained in Method 2\. While the former gives you more flexibility when it comes to customizations, the latter doesn’t require any app to be installed on your PC. In addition, many times the web apps offer their services for free, and therefore they are preferred by the novice users who are not much into post-production processes.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -168,24 +168,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/n-2024-enhancing-your-content-10-exceptional-reacting-techniques/"><u>[New] In 2024, Enhancing Your Content 10 Exceptional Reacting Techniques</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-epicurean-epiphanies-filming-feast-creation/"><u>[New] In 2024, Epicurean Epiphanies Filming Feast Creation</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-peak-psd-opacity-adjustments/"><u>[Updated] 2024 Approved Peak PSD Opacity Adjustments</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unveiling-tseries-youtube-revenue-strategy/"><u>[Updated] 2024 Approved Unveiling TSeries' YouTube Revenue Strategy</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-best-box-personalizing-online-spots-unique-heartfelt-gestures/"><u>[Updated] Best Box-Personalizing Online Spots Unique, Heartfelt Gestures</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-comprehensive-compendium-all-features-of-bublcams-360-degree-lens/"><u>[Updated] Comprehensive Compendium All Features of Bublcam's 360-Degree Lens</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-deciding-on-the-best-videography-camera-type-dslr-or-mirrorless-for-2024/"><u>[Updated] Deciding on the Best Videography Camera Type DSLR or Mirrorless for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-bright-ideas-effective-lighting-in-vlogging/"><u>[Updated] In 2024, Bright Ideas Effective Lighting in Vlogging</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-flip-the-script-unique-approaches-to-retracing-yt-content/"><u>[Updated] In 2024, Flip the Script Unique Approaches to Retracing YT Content</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-visual-power-in-gaming-channels-a-template-guidebook/"><u>[Updated] In 2024, Visual Power in Gaming Channels A Template Guidebook</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-jake-pauls-youtube-odyssey-a-tale-of-growth-for-2024/"><u>[Updated] Jake Paul's YouTube Odyssey A Tale of Growth for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-vintage-video-making-masterclass-complete-tutorial/"><u>2024 Approved Vintage Video Making Masterclass Complete Tutorial</u></a></li>
-<li><a href="https://solve-howtos.techidaily.com/5a6f6kgm5a6m5lqg77ya44op44kk44ow44oj44kt44ol44oh44oz44oi44o744on44od44oi44ov44o844kv44gr5oiq5yqf44gx44gf5o6l57aa54q25owl/"><u>実行完了：ライブドキュメント・ネットワークに成功した接続状態</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/boost-your-gaming-world-with-an-updated-asus-rx-97/"><u>Boost Your Gaming World with an Updated ASUS RX 97</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-guide-to-downloading-the-newest-hp-deskjet-2540-driver-software/"><u>Easy Guide to Downloading the Newest HP Deskjet 2540 Driver Software</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ifying-10-quick-growth-youtube-blogs-that-encourage/"><u>Identifying 10 Quick-Growth YouTube Blogs that Encourage</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-virtualdub-vs-top-competitors-a-comprehensive-comparison/"><u>New In 2024, Virtualdub vs Top Competitors A Comprehensive Comparison</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ssential-manual-to-earning-from-youtube-videos-for-2024/"><u>The Essential Manual to Earning From YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/king-subscriber-success-youtubes-best-practices-for-2024/"><u>Unlocking Subscriber Success YouTube's Best Practices for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mpowering-audiences-the-playlist-sharing-approach-for-2024/"><u>[New] Empowering Audiences The Playlist Sharing Approach for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-get-more-out-of-youtube-with-8-handpicked-download-apps/"><u>[New] In 2024, Get More Out of YouTube with 8 Handpicked Download Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-gathering-of-heartfelt-weddings-youtube-and-vimeo-edition/"><u>[New] The Ultimate Gathering of Heartfelt Weddings - Youtube & Vimeo Edition</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-reviving-past-joy-on-fb-the-look-back-video-editing-path/"><u>[Updated] Reviving Past Joy on FB The Look Back Video Editing Path</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-sifting-through-youtube-rules-vs-creative-commons-guidelines/"><u>2024 Approved Sifting Through Youtube Rules Vs. Creative Commons Guidelines</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-unleash-the-full-potential-of-your-android-device-with-obs-studio/"><u>2024 Approved Unleash the Full Potential of Your Android Device with OBS Studio</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/cutting-edge-editing-advanced-strategies-for-using-the-background-erase-feature/"><u>Cutting Edge Editing Advanced Strategies for Using the Background Erase Feature</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tial-insights-for-asmr-aficionados/"><u>Essential Insights for ASMR Aficionados</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/free-dvd-cloning-tools-ranked-discover-the-top-3-software-options-for-cost-free-dvd-duplication/"><u>Free DVD Cloning Tools Ranked! Discover the Top 3 Software Options for Cost-Free DVD Duplication</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/navigating-the-professional-lands-cooked-by-audacity/"><u>Navigating the Professional Lands Cooked by Audacity</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-in-2024-final-cut-pro-x-power-user-master-40-time-saving-shortcuts/"><u>New In 2024, Final Cut Pro X Power User Master 40 Time-Saving Shortcuts</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/sharpen-your-viewing-experience-mastering-camera-focus-online/"><u>Sharpen Your Viewing Experience Mastering Camera Focus Online</u></a></li>
+<li><a href="https://fox-place.techidaily.com/troubleshooting-sound-card-problems-could-settings-be-the-culprit-insights-by-yl-software-experts/"><u>Troubleshooting Sound Card Problems: Could Settings Be the Culprit? - Insights by YL Software Experts</u></a></li>
 </ul></div>
 

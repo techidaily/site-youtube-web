@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Channel Your Inner Narrative  Impactful Life Stories YT\""
-date: 2024-12-02T17:12:58.804Z
-updated: 2024-12-06T20:48:02.673Z
+date: 2024-12-09T17:02:33.886Z
+updated: 2024-12-12T20:59:44.567Z
 tags:
   - ai video
   - ai youtube
@@ -44,27 +44,39 @@ YouTube is a great platform you can use not only to share your gifts and talents
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\.  Channel Trailer
 
 Before posting any videos on your channel, it can be a great idea to [create a “Channel Trailer”](https://tools.techidaily.com/wondershare/filmora/download/) summarizing who you are and what your channel is all about.
 
 YouTuber Shameless Maya does an excellent job of this. She created a visually appealing and engaging 1-2 minute channel trailer that explains exactly what her channel is all about. Feel free to be as creative as you want to be.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ###  2\.  My YouTube Story
 
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\.  Never Have I Ever Q & A
 
@@ -74,16 +86,12 @@ Who hasn’t played the “Never Have I Ever” game?! Playing this game as a Q 
 
 Get ready with me Q & As are some of my favorite videos to watch because it’s nice to see YouTubers strip-down bare-faced to do their makeup and answer popular questions. It often feels like two old friends sitting down to chat. Jenn, I'm doing a great example of this when she took to twitter asking viewers to ask her questions she would answer on her channel. Not only did she answer the questions but she gave a detailed makeup tutorial and explanation of the products she used as a 2 for 1\. Even if your channel has nothing to do with makeup or fashion, some viewers can still be intrigued to learn more about your fashion and makeup style.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\.  My Depression/Anxiety or Mental Health Story
 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\.  Narrated Autobiopic
@@ -94,10 +102,6 @@ Narrated Autobiopic videos are a great way to share your story or advice in a ci
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
@@ -107,10 +111,6 @@ YouTube live videos are probably the best ways to interact and share your story 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -133,21 +133,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-elite-5-earbuds-youtubes-best-companions/"><u>[New] In 2024, Elite 5 Earbuds YouTube's Best Companions</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/new-in-2024-unleashing-creativity-making-discords-profile-pictures-pop/"><u>[New] In 2024, Unleashing Creativity Making Discord's Profile Pictures Pop</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nveiling-hidden-details-in-asmr-recordings-for-2024/"><u>[New] Unveiling Hidden Details in ASMR Recordings for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nveiling-top-7-adblocker-apps-for-android-users/"><u>[New] Unveiling Top 7 AdBlocker Apps for Android Users</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-academic-history-lovers-guide-to-top-yt-content/"><u>[Updated] 2024 Approved Academic History Lovers' Guide to Top YT Content</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-unveiling-the-secrets-of-vr-filmmaking-with-advanced-techniques-using-adobe-premiere-pro/"><u>[Updated] 2024 Approved Unveiling the Secrets of VR Filmmaking with Advanced Techniques Using Adobe Premiere Pro</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unveiling-the-top-10-youtube-makeup-maestros-to-follow/"><u>[Updated] In 2024, Unveiling the Top 10 YouTube Makeup Maestros to Follow</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-quicksnap-firefox-enhancements/"><u>[Updated] QuickSnap Firefox Enhancements</u></a></li>
-<li><a href="https://techidaily.com/banque-mobile-digitale-meilleures-pratiques-et-strategies-pour-clients-techno-savvy-avec-le-guide-abbyy-ebook/"><u>Banque Mobile Digitale - Meilleures Pratiques Et Stratégies Pour Clients Techno-Savvy Avec Le Guide ABBYY eBook</u></a></li>
-<li><a href="https://techtrends.techidaily.com/effortless-guide-how-to-transform-mp4-videos-into-wmv-format-using-your-mac-including-big-sur-systems/"><u>Effortless Guide: How to Transform MP4 Videos Into WMV Format Using Your Mac, Including Big Sur Systems</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/expert-solutions-to-overcome-netwtw10sys-bsod-error-on-your-computer/"><u>Expert Solutions to Overcome 'Netwtw10.sys' BSoD Error on Your Computer</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/fb-content-takedown-what-are-your-rights-and-recourse-for-2024/"><u>FB Content Takedown What Are Your Rights and Recourse for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/script-to-screen-youtube-studio-editing-workshop-guide-for-2024/"><u>From Script to Screen YouTube Studio Editing Workshop Guide for 2024</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/in-2024-the-best-free-wmv-video-merging-solutions/"><u>In 2024, The Best Free WMV Video Merging Solutions</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-light-on-videography-excellence-for-2024/"><u>Shedding Light on Videography Excellence for 2024</u></a></li>
-<li><a href="https://ai-driven-video-production.techidaily.com/updated-2024-approved-the-ultimate-guide-to-making-lip-sync-videos-with-the-best-apps/"><u>Updated 2024 Approved The Ultimate Guide to Making Lip Sync Videos with the Best Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-effective-legal-strategies-for-content-visibility/"><u>[New] In 2024, Effective, Legal Strategies for Content Visibility</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-saving-on-space-tips-for-storing-mov-in-windows-10-devices/"><u>[Updated] In 2024, Saving on Space Tips for Storing .mov in Windows 10 Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-revenue-realms-of-youtube-from-virtual-viewership-to-banknotes-for-2024/"><u>[Updated] Revenue Realms of YouTube From Virtual Viewership to Banknotes for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-honor-v-purse-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Honor V Purse | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-it-motorola-g54-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Motorola G54 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-update-dell-webcam-drivers-the-correct-way/"><u>How to Update Dell Webcam Drivers the Correct Way</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/iconic-stop-motion-creations-15-greatest-of-all-time/"><u>Iconic Stop-Motion Creations - #15 Greatest of All Time</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/in-2024-beginners-tutorial-setting-up-your-youtube-presence/"><u>In 2024, Beginner's Tutorial Setting Up Your YouTube Presence</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-oneplus-nord-ce-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On OnePlus Nord CE 3 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-ultimate-list-of-best-hashtags-for-yt-view-spikes/"><u>In 2024, The Ultimate List of Best Hashtags for YT View Spikes</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/innovative-posting-add-youtube-to-your-insta-narratives-for-2024/"><u>Innovative Posting Add YouTube to Your Insta Narratives for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ct-your-clips-step-by-step-youtube-editing-tips/"><u>Perfect Your Clips Step-by-Step YouTube Editing Tips</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/screen-snip-pro-the-essential-guide-to-win-os-for-2024/"><u>Screen Snip Pro The Essential Guide to Win OS for 2024</u></a></li>
 </ul></div>
 

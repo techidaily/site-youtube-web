@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, How to Captivate and Expand Your Online Following with Viral YouTube Shorts"
-date: 2024-11-30T20:53:38.528Z
-updated: 2024-12-06T16:10:39.622Z
+date: 2024-12-06T23:30:05.729Z
+updated: 2024-12-12T20:32:23.280Z
 tags:
   - ai video
   - ai youtube
@@ -46,13 +46,13 @@ Comparatively different from other videos, the ones that are added under the ‘
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## A cross-platform for making videos anywhere for all creators
 
 ![filmora-02](https://images.wondershare.com/filmora/filmora12/side_brand_filmora12.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Why your video editing isn't good enough? How about some creative inspo?
 
@@ -71,10 +71,6 @@ Comparatively different from other videos, the ones that are added under the ‘
 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To elaborate, generally, YouTube suggests you a video as per your viewing history, browsing statistics, and other such information that the streaming media giant collects over time. On the other hand, the ‘Featured’ videos are suggested according to what YouTube ‘thinks’ might be of your interest, or could be somehow useful to you.
 
 Therefore, when any clip is added as a ‘Featured’ video, YouTube suggests it to more viewers as compared to those that are published under the ‘Recommended’ category.
@@ -91,19 +87,11 @@ Go to YouTube on your PC’s web browser, sign in to your Google account, click 
 
 ![ Get to YouTube Studio Customization Section](https://images.wondershare.com/filmora/article-images/get-more-views-featured-section-customization.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 2: Add YouTube Shorts**
 
 Click **ADD SECTION** from the **Layout** tab in the right window, and click **Short videos** from the list that appears next to add the YouTube Shorts category.
 
 ![Add Section in Featured Section](https://images.wondershare.com/filmora/article-images/get-more-views-featured-section-add-section.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 3: Add Short videos to Featured sections and Save the Changes**
 
@@ -157,6 +145,14 @@ Make sure to add relevant tags to your short videos. For instance, adding ‘#Sh
 
 ![Filmora logo](https://images.wondershare.com/filmora/logo_icon/wondershare-filmora-logo-horizontal.png) ![filmora product interface](https://images.wondershare.com/filmora/images/common/filmora-product-banner.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Filmora - Best YouTube Shorts Video Editor for PC
 
 * Easily record a video on PC and Mac.
@@ -174,16 +170,16 @@ For macOS 10.12 or later
 
 ![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Analyze YouTube Shorts Performance
@@ -197,6 +193,10 @@ However, because these short videos cannot be monetized, at times you may notice
 Yes. As mentioned above, the view counts and playback durations of YouTube Shorts videos are added to your channel’s statistics. Therefore, with the number of views your short videos get, the overall performance of your YouTube stats is affected accordingly.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -219,20 +219,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ilm-assembly-station-for-2024/"><u>[New] Film Assembly Station for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-the-art-of-bounce-two-ways-to-liven-up-your-text/"><u>[New] In 2024, The Art of Bounce Two Ways to Liven Up Your Text</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-in-2024-windows-snap-shotting-simplified/"><u>[New] In 2024, Windows Snap Shotting Simplified</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/olutions-to-clear-up-black-space-on-youtube-watching/"><u>[New] Solutions to Clear Up Black Space on YouTube Watching</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-the-expert-list-top-10-advanced-recording-software-tools/"><u>[Updated] 2024 Approved The Expert List Top 10 Advanced Recording Software Tools</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-maximize-your-webcam-hp-and-chromebook-strategies/"><u>[Updated] Maximize Your Webcam HP & Chromebook Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-efficiently-isolate-key-moments-in-youtube-footage/"><u>2024 Approved Efficiently Isolate Key Moments in YouTube Footage</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-navigating-the-dynamic-world-of-drone-racing-and-top-5-high-speed-drones/"><u>2024 Approved Navigating the Dynamic World of Drone Racing & Top 5 High-Speed Drones</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-pinpointing-potential-a-youtube-niche-journey/"><u>2024 Approved Pinpointing Potential A Youtube Niche Journey</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/mp4-wmv-movavi/"><u>自由下載移動畫片 MP4 到 WMV 無版權影像編解碼，使用 Movavi 圖形化儲存格式轉換器</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-unlock-creative-potential-with-these-top-9-free-editors/"><u>In 2024, Unlock Creative Potential with These Top 9 Free Editors</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-youtube-stream-mastery-top-rated-tech-and-devices-guide-for-creators/"><u>In 2024, YouTube Stream Mastery Top-Rated Tech & Devices Guide for Creators</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ext-generation-of-video-communities-post-youtube/"><u>The Next Generation of Video Communities Post-YouTube</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/troubleshooting-guide-successfully-connecting-a-wd-ses-drive-using-updated-usb-devices-from-2011-forward/"><u>Troubleshooting Guide: Successfully Connecting a WD SES Drive Using Updated USB Devices From 2011 Forward</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/tutorial-to-change-itel-p40-imei-without-root-a-comprehensive-guide-by-drfone-android/"><u>Tutorial to Change Itel P40 IMEI without Root A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-free-mp3s-galore-10-no-cost-online-tools/"><u>[New] 2024 Approved Free Mp3s Galore 10 No-Cost Online Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-channel-choices-youtube-vs-tiktok-battle/"><u>[New] In 2024, Channel Choices Youtube vs TikTok Battle</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/uick-tips-for-easy-youtube-thumbnail-acquisition-zero-price/"><u>[New] Quick Tips for Easy YouTube Thumbnail Acquisition – Zero Price!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-youtube-mogul-with-maximum-gross-income/"><u>[Updated] 2024 Approved YouTube Mogul with Maximum Gross Income</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-streamers-guide-validating-your-channels-income/"><u>[Updated] In 2024, Streamer's Guide Validating Your Channel's Income</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-the-intricacies-of-crafting-a-virtual-experience/"><u>[Updated] In 2024, The Intricacies of Crafting a Virtual Experience</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-unveiling-the-path-to-your-youtube-comments-on-devices-for-2024/"><u>[Updated] Unveiling the Path to Your YouTube Comments on Devices for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-crafting-team-videos-to-foster-viewership-and-following/"><u>2024 Approved Crafting Team Videos to Foster Viewership and Following</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-customize-your-youtube-view-adjust-speed-settings/"><u>2024 Approved Customize Your YouTube View Adjust Speed Settings</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-integrating-images-into-your-insta-world/"><u>2024 Approved Integrating Images Into Your Insta World</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-xiaomi-redmi-note-13-pro-5g-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Xiaomi Redmi Note 13 Pro 5G Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/bypassing-server-connectivity-issues-in-destiny-2-expert-advice/"><u>Bypassing Server Connectivity Issues in Destiny 2 - Expert Advice</u></a></li>
+<li><a href="https://blog-min.techidaily.com/story-for-incorrect-answer-b-a-speculum-examination-is-always-required-during-a-colposcopy/"><u>Story for Incorrect Answer B (A Speculum Examination Is Always Required During a Colposcopy)</u></a></li>
 </ul></div>
 

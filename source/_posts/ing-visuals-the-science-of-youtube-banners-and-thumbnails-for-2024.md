@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting Visuals  The Science of YouTube Banners & Thumbnails for 2024\""
-date: 2024-08-28T08:43:26.305Z
-updated: 2024-08-29T08:43:26.305Z
+date: 2024-12-10T16:53:48.929Z
+updated: 2024-12-13T02:40:40.841Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/778dacc021ae6d569afd3e62fa61bf15ba6fe429d
  Mar 27, 2024• Proven solutions
 
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Make YouTube Banners and Thumbnails
 
@@ -65,13 +69,25 @@ There are sites online that will allow you to edit images and use them in templa
 
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
 
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -79,14 +95,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -95,8 +108,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/est-buy-top-10-gaming-gpus-for-high-quality-online-viewing-for-2024/"><u>[New] Best Buy Top 10 Gaming GPUs for High-Quality Online Viewing for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/elving-deep-youtubes-revenue-system-from-publisher-to-you/"><u>[New] Delving Deep YouTube's Revenue System From Publisher to You</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-affordable-youtube-intro-designs-and-templates/"><u>[New] In 2024, Affordable YouTube Intro Designs and Templates</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/uickclip-genius-for-2024/"><u>[New] QuickClip Genius for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-how-to-go-viral-on-youtube-with-impressive-music-reaction-content/"><u>[Updated] 2024 Approved How to Go Viral on YouTube with Impressive Music Reaction Content</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-the-essential-guide-to-tapered-music-transitions-in-premiere-pro/"><u>[Updated] 2024 Approved The Essential Guide to Tapered Music Transitions in Premiere Pro</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-thumbnail-tailoring-for-youtube-a-practical-guide-to-image-resizing-and-customization/"><u>[Updated] 2024 Approved Thumbnail Tailoring for YouTube A Practical Guide to Image Resizing and Customization</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-supercharge-your-content-editing-and-enhancing-youtube-tags/"><u>[Updated] In 2024, Supercharge Your Content Editing and Enhancing YouTube Tags</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-infuse-ingenuity-and-fun-make-memes-with-kapwing/"><u>[Updated] Infuse Ingenuity & Fun – Make Memes with Kapwing</u></a></li>
+<li><a href="https://win-tips.techidaily.com/1728468508290-hdd/"><u>「不思議な場所で見つからないファイルを探し出せ!外付けHDDデータ復元ガイド」</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-cutting-edge-design-top-5-3d-intro-makers/"><u>In 2024, Cutting-Edge Design Top 5 3D Intro Makers</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/est-free-video-editing-software-for-youtube-top-8-reviews-for-2024/"><u>The Best Free Video Editing Software for YouTube (Top 8 Reviews) for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/transformar-archivos-flv-a-imagenes-gif-sin-costo-con-el-mejor-convertidor-en-linea-gratuito-de-movavi/"><u>Transformar Archivos FLV a Imágenes GIF Sin Costo Con El Mejor Convertidor en Línea Gratuito De Movavi</u></a></li>
+<li><a href="https://techidaily.com/unlock-android-phone-if-you-don-t-have-nokia-130-music-fingerprint-by-drfone-android-unlock-android-unlock/"><u>Unlock android phone if you don't have Nokia 130 Music fingerprint</u></a></li>
+<li><a href="https://network-issues.techidaily.com/windows-10-and-qualcomm-adapter-wireless-unity/"><u>Windows 10 & Qualcomm Adapter: Wireless Unity</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->

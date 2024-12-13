@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Who Rules the Realm of YouTube?"
-date: 2024-11-30T18:20:03.641Z
-updated: 2024-12-07T02:39:40.660Z
+date: 2024-12-09T05:46:02.640Z
+updated: 2024-12-12T18:10:39.585Z
 tags:
   - ai video
   - ai youtube
@@ -59,6 +59,10 @@ In this article, we will take you through the 5 most popular creator channels on
 
 ![PewDiePie](https://images.wondershare.com/filmora/article-images/pew-die-pie.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 YouTube's most well-known superstar Felix Arvid Ulf Kjellberg was born 1989 in Gothenburg. PewDiePie’s channel has made this Swedish comedian, Vlogger, and gamer based in Brighton, England, a global celebrity whose videos have reached record audiences. Felix created his YouTube channel in 2010 and in only six short years the PewDiePie YouTube channel received over 16 billion views and it is currently among the most viewed channels ever.
 
 The most common videos on Felix's channel are gaming videos in which he comments and reacts to the game as he plays through it. PewDiePie’s videos are full of goofy and genuine content that amuses its spectators. Felix's YouTube channel remains by far the most subscribed channel with more than 57 million subscribers, more than 25 million more than the channel in second. He frequently appears in marketing campaigns and other social media events and is widely considered as the most influential gaming commentator of our time.
@@ -75,21 +79,21 @@ The Chilean YouTube superstar uploaded his first YouTube video in 2011 and by Oc
 
 ![ElrubiusOMG](https://images.wondershare.com/filmora/article-images/elrubius-omg.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 More than 25 million subscribers who follow this gaming commentator. The El Rubius OMG channel was created by Rubén Doblas Gundersen in December 2011 and by February 2013 it reached 1 million subscribers. However, Rubén has been producing videos for his Elrubius channel since 2006\. He simply became more dedicated to the frequent production of YouTube videos in 2011\. Even though the videos featured on the El Rubius OMG channel mostly cover video games, Rubén also produces comedy videos, vlogs, and other interesting and amusing content.
 
 Based in Madrid, El Rubius OMG first became popular in Spanish-speaking countries, and as his fame increased he gained recognition throughout the world. During 2012 his channel became the most subscribed Spanish speaking channel, and on April 21, 2016, El Rubius received the 'YouTuber of the Year' award during the 1st Play Awards celebration in Palma De Mallorca. In addition to being one of the most popular YouTubers of all time, Rubén is also a published author whose first book 'The Troll Book' was the bestselling book in Spain for 8 weeks.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ###  4\.  Smosh
 
 ![Smosh](https://images.wondershare.com/filmora/article-images/smosh.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Originally, Smosh was a channel run by sketch comedy duo Ian Andrew Hecox and Anthony Padilla. They started the Smosh YouTube channel in 2005 and since then they have grown their team to include more creators, and their content to include animation and gaming. Smosh has become much more than two funny guys on YouTube – it is a wildly successful content company.
 
@@ -97,17 +101,9 @@ Most channels that have one viral video do not go on to have sustained success o
 
 In 2017, Anthony Padilla chose to leave Smosh to focus on his own solo YouTube channel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\.  Fernanfloo
 
 ![Fernanfloo](https://images.wondershare.com/filmora/article-images/fernan-floo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Yet another enormously popular YouTuber that comes from a Spanish speaking country whose channel attracted millions of subscribers. A 24-year-old Salvadoran named Luis Fernando Flores Alvarado is the man behind one of the most subscribed YouTube channels of all time. The Fernanfloo channel was created in 2011, and in February 2014 it had only 100,000 subscribers. By August 2014, Alvarado's channel reached 1 million subscribers, making him one of YouTube's biggest success stories. The videos featured on Feranfloo channel mostly cover gaming topics, but with a touch of comedy which makes Alvarado's videos unique.
 
@@ -117,15 +113,19 @@ At the end of 2015, Alvarado launched the Fenanfloo mobile app that had 2.3 mill
 
 Looking for a live [YouTube subscriber chart](https://tools.techidaily.com/wondershare/filmora/download/)?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit YouTube Videos with Full-Featured Video Editing Software
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -148,21 +148,14 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-optimize-social-media-visual-clarity-for-iphoneandroid-users/"><u>[New] In 2024, Optimize Social Media Visual Clarity for iPhone/Android Users</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-social-media-live-showdown-facebook-vs-youtube-and-twitter-periscope/"><u>[New] In 2024, Social Media Live Showdown Facebook Vs. YouTube & Twitter Periscope</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/op-10-tunes-turned-into-wit-wonders-for-2024/"><u>[New] Top 10 Tunes Turned Into Wit Wonders for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-bite-size-broadcasting-battle-which-platform-dominates-in-shorter-videos/"><u>[Updated] 2024 Approved Bite-Size Broadcasting Battle Which Platform Dominates in Shorter Videos?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-examining-youtubes-highlighted-comment-mechanics/"><u>[Updated] Examining YouTube's Highlighted Comment Mechanics</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-harmony-hunt-uncover-the-most-popular-free-downloader-apps-on-youtube-and-android/"><u>2024 Approved Harmony Hunt - Uncover the Most Popular Free Downloader Apps on YouTube and Android</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-photosculptor-kit/"><u>2024 Approved PhotoSculptor Kit</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/catchemall-celebrate-national-pokemon-day-with-virtual-location-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>CatchEmAll Celebrate National Pokémon Day with Virtual Location On Asus ROG Phone 7 Ultimate | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/rt-spotify-playlist-to-youtube-5-best-tools-for-2024/"><u>Convert Spotify Playlist To YouTube 5 Best Tools for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/fixing-the-save-configuration-flaw-pubg-on-windows/"><u>Fixing the Save Configuration Flaw: PUBG on Windows</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/how-to-change-infinix-note-30-vip-lock-screen-clock-in-seconds-by-drfone-android/"><u>How To Change Infinix Note 30 VIP Lock Screen Clock in Seconds</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-honor-magic-v2-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Honor Magic V2 | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-top-10-tips-to-make-your-podcast-teasers-stand-out/"><u>In 2024, Top 10 Tips to Make Your Podcast Teasers Stand Out</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Tecno Spark Go (2023) | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/er-top-15-sci-tech-youtube-channels-for-learners/"><u>Uncover Top 15 Sci-Tech YouTube Channels for Learners</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/updated-in-2024-unlock-stunning-time-lapses-top-rated-apps-for-iphone-and-android/"><u>Updated In 2024, Unlock Stunning Time-Lapses Top-Rated Apps for iPhone and Android</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-essential-videography-the-leading-screen-recorder-apps/"><u>[New] In 2024, Essential Videography The Leading Screen Recorder Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-ultimate-pathway-to-prominence-on-youtube-channel-showcase/"><u>[New] In 2024, The Ultimate Pathway to Prominence on YouTube Channel Showcase</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-kickstart-your-stream-must-have-youtube-tools/"><u>[Updated] 2024 Approved Kickstart Your Stream Must-Have YouTube Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-prime-cinematic-creator-a-symphony-of-sights-and-sounds/"><u>[Updated] 2024 Approved Prime Cinematic Creator A Symphony of Sights & Sounds</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-virtual-adventure-awaits-with-these-top-12-pc-clickers/"><u>[Updated] 2024 Approved Virtual Adventure Awaits with These Top 12 PC Clickers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-initiating-voice-transformations-with-minimal-effort-in-pubg/"><u>[Updated] Initiating Voice Transformations with Minimal Effort in PUBG</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-ultimate-hexa-copter-ranks-unveiled/"><u>[Updated] Ultimate Hexa-Copter Ranks Unveiled</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-6-best-sim-unlock-services-that-actually-work-on-your-tecno-camon-20-premier-5g-device-by-drfone-android/"><u>In 2024, The 6 Best SIM Unlock Services That Actually Work On Your Tecno Camon 20 Premier 5G Device</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/h-free-media-treasures-from-top-4-online-creators/"><u>Snatch Free Media Treasures From Top 4 Online Creators</u></a></li>
 </ul></div>
 

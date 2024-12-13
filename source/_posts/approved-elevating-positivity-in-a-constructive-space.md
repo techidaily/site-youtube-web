@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Elevating Positivity in a Constructive Space\""
-date: 2024-12-04T09:28:37.802Z
-updated: 2024-12-07T11:13:51.688Z
+date: 2024-12-10T20:05:51.455Z
+updated: 2024-12-13T04:07:42.598Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/38a7a5c0a5123e7708eb11aa967d228491b394608
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/38a7a5c0a5123e7708eb11aa967d228491b394608
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,24 +83,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-crafting-allure-in-online-visuals-for-beauty/"><u>[New] In 2024, Crafting Allure in Online Visuals for Beauty</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-how-to-make-youtube-videos-on-your-smartphone/"><u>[New] In 2024, How To Make YouTube Videos on Your Smartphone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-visibility-restored-for-youtube-shorts-post-update/"><u>[New] In 2024, Visibility Restored for YouTube Shorts Post-Update</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ecurely-distributing-exclusive-youtube-videos-through-gmail-for-2024/"><u>[New] Securely Distributing Exclusive YouTube Videos Through Gmail for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-royalty-free-clip-art-strategies-and-sources/"><u>[Updated] 2024 Approved Royalty-Free Clip Art Strategies and Sources</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-groundbreaking-companies-at-the-vr-content-frontier/"><u>[Updated] Groundbreaking Companies at the VR Content Frontier</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-strategize-music-mixes-your-guide-to-youtube-playlists/"><u>[Updated] Strategize Music Mixes Your Guide to YouTube Playlists</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-mastering-youtube-seo-boost-your-video-popularity/"><u>2024 Approved Mastering YouTube SEO Boost Your Video Popularity</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/differences-between-qled-and-oled-televisions-a-detailed-comparison-for-shoppers/"><u>Differences Between QLED and OLED Televisions: A Detailed Comparison for Shoppers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ngs-explosion-boosting-your-youtube-channels-income-via-mobile/"><u>Earnings Explosion Boosting Your YouTube Channel's Income via Mobile</u></a></li>
-<li><a href="https://facebook.techidaily.com/explaining-the-hidden-meaning-behind-fb-messenger-symbols/"><u>Explaining the Hidden Meaning Behind FB Messenger Symbols</u></a></li>
-<li><a href="https://win-blog.techidaily.com/free-online-converter-from-3gp-to-mp4-moveaveer/"><u>Free Online Converter From 3GP to MP4 - Moveaveer</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/garmins-pioneering-ultra-30-camera-a-critical-assessment/"><u>Garmin's Pioneering Ultra 30 Camera - A Critical Assessment</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/guide-to-transforming-ted-talks-into-various-audio-formats-mp3-aac-wav/"><u>Guide to Transforming Ted Talks Into Various Audio Formats (MP3, AAC, WAV)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-hash-tags-that-catapult-you-to-6k-views-on-youtube/"><u>In 2024, Hash Tags That Catapult You to 6K Views on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ng-ground-for-a-wealthy-creator-carryminatis-story-ajey-for-2024/"><u>Proving Ground for a Wealthy Creator CarryMinati's Story (Ajey) for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ming-your-way-to-animated-gifs-from-youtube-videos/"><u>Streaming Your Way to Animated GIFs From YouTube Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/streamline-your-musical-journey-top-6-music-vids-on-android/"><u>Streamline Your Musical Journey - Top 6 Music Vids on Android</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/updated-best-free-gaming-platforms-top-10-sites-for-pc-and-android-downloads/"><u>Updated Best Free Gaming Platforms Top 10 Sites for PC and Android Downloads</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/chieving-profitability-at-half-a-million-viewers-for-2024/"><u>[New] Achieving Profitability at Half a Million Viewers for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-exploring-the-full-features-sony-fdr-x1000-model/"><u>[New] In 2024, Exploring the Full Features Sony FDR-X1000 Model</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-unveiling-t-series-youtube-earnings/"><u>[New] In 2024, Unveiling T-Series' Youtube Earnings</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-transitioning-instagram-video-to-mp3-format-for-2024/"><u>[New] Transitioning Instagram Video to Mp3 Format for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-the-perfect-screen-recording-toolkit-systematic-how-to-manual/"><u>[Updated] 2024 Approved The Perfect Screen Recording Toolkit Systematic How-To Manual</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-transforming-ordinary-interviews-into-impactful-experiences/"><u>[Updated] 2024 Approved Transforming Ordinary Interviews Into Impactful Experiences</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-exploring-the-past-top-10-educational-history-yt-channels/"><u>[Updated] Exploring the Past Top 10 Educational History YT Channels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-guide-to-integrate-youtube-media-into-gslides/"><u>[Updated] Step-by-Step Guide to Integrate YouTube Media Into GSlides</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/effortless-transferring-5-pathways-to-download-igtv-on-computers/"><u>Effortless Transferring 5 Pathways to Download IGTV on Computers</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-htc-u23-pro-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor HTC U23 Pro Activity | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ontent-pioneers-assembly-for-2024/"><u>Top Content Pioneers Assembly for 2024</u></a></li>
 </ul></div>
 

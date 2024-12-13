@@ -1,7 +1,7 @@
 ---
 title: "[New] Delving Into YouTube's Complex Calculation of Viewer Stats"
-date: 2024-08-28T08:39:03.564Z
-updated: 2024-08-29T08:39:03.564Z
+date: 2024-12-10T09:28:50.664Z
+updated: 2024-12-13T05:39:35.051Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ How does YouTube count views? It’s not as simple as the number of clicks your 
 6. [Frozen YouTube View Counts](#six)
 7. [The 301 Mark](#seven)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Best YouTube Video Editor - Filmora
 
 After you have created your YouTube channel, do you want to edit videos and upload your first video? Here we recommend using Filmora to easily edit YouTube videos.
@@ -49,8 +53,9 @@ YouTube doesn’t provide a clear definition of what counts as a view, but we kn
 ![how YouTube counts view](https://images.wondershare.com/filmora/article-images/how-youtube-count-view.JPG)
 
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 2\. How Does YouTube Count Views?
 
 YouTube wants to be sure that views are coming from humans and not bots. So, during the first couple of hours after you publish a video, YouTube seems to be stricter about what they count. The views which are counted are the ones that YouTube believes to be legitimate. Sometimes, it ends up skipping legitimate views for the sake of discretion.
@@ -63,8 +68,9 @@ You May Also Like:
 [ 5 Tips To Get More Views With YouTube Optimization \[Free Checklist\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. How Does YouTube’s View Count Algorithm Work?
 
 Termed by many as one of the most boggling algorithms of all time, it is really hard to decode the complete dynamics of the YouTube view count algorithm.
@@ -90,15 +96,17 @@ One way that [YouTube might flag an account as a potential bot](https://support.
 Any bot-like action will result in an account’s views do not be added to your view count.
 
 <!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. The Skip & Skim
 
 It’s not uncommon for viewers to watch a video for say five seconds, skip forwards a bit and watch for another ten seconds as they look for a specific part. It is hard to say whether skipping through a video, but watching a scattered 30 seconds, would count as a view or not.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 6\. Frozen YouTube View Counts
 
 Sometimes YouTube will freeze a view count in order to check that it is accurate. When the count is unfrozen, the count may jump up as views are validated or it can go down if YouTube detects a problem.
@@ -113,9 +121,6 @@ This is why view counts are often frozen at 301\. The employees at YouTube then 
 
 During the period when the view count is frozen every legitimate view is still counted, just not added immediately. Once the YouTube team is sure that your videos are not getting fake traffic, your view count will be updated to include views that were registered during the frozen phase. However, [YouTube says](https://www.theverge.com/2015/8/5/9100759/youtube-301-view-count-freeze-going-away) it won't flag videos at 301 views anymore.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 In short, we know YouTube expects a viewer to watch a video for around 30 seconds before it counts a view, that views from suspicious accounts are not counted, and that YouTube can decide to freeze your view count while they review your views. They are protecting the site from becoming saturated with videos that only look popular because of bots. Ultimately, ‘how does YouTube count views’ isn’t a question anyone but YouTube can answer for sure, but we do know it isn’t as simple as ‘a view is someone clicking on your video’.
@@ -126,23 +131,17 @@ If you want to engage your audience with cool effects and Filmora is the best ch
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -151,4 +150,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/nnovators-roundtable-for-youtube/"><u>[New] Innovators’ Roundtable for YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-editors-toolkit-elevating-your-youtube-videos-via-windows-pc-for-2024/"><u>[New] The Editor's Toolkit Elevating Your YouTube Videos via Windows PC for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-start-saving-youtube-videos-as-screen-captures-today-completely-free/"><u>[Updated] 2024 Approved Start Saving YouTube Videos as Screen Captures Today - Completely Free</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-charting-a-course-for-youtube-success-viewer-numbers-and-income/"><u>[Updated] Charting a Course for YouTube Success Viewer Numbers and Income</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-craft-a-powerhouse-channel-with-studio-expertise/"><u>[Updated] Craft a Powerhouse Channel with Studio Expertise</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elevating-positivity-in-a-constructive-space/"><u>2024 Approved Elevating Positivity in a Constructive Space</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-seamlessly-retrieve-tags-list-of-7-premium-free-youtube-extractors/"><u>2024 Approved Seamlessly Retrieve Tags List of 7 Premium Free YouTube Extractors</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/-and-banners-discovering-premium-dj-templates/"><u>Beats & Banners Discovering Premium DJ Templates</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/comprehensive-review-why-the-ring-video-doorbell-pro-is-a-clever-choice-for-home-security/"><u>Comprehensive Review: Why the Ring Video Doorbell Pro Is a Clever Choice for Home Security</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eering-captivating-video-teasers-for-online-presence/"><u>Engineering Captivating Video Teasers for Online Presence</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-10-final-cut-pro-plug-ins/"><u>In 2024, 10 Final Cut Pro-Plug-Ins</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-motorola-razr-40-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Motorola Razr 40 | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/large-scale-language-models-unpacked/"><u>Large-Scale Language Models Unpacked</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-from-still-to-stunning-how-to-create-stop-motion-videos-on-instagram/"><u>New 2024 Approved From Still to Stunning How to Create Stop Motion Videos on Instagram</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/revamped-google-news-feeds-understanding-the-new-layout-and-functionality/"><u>Revamped Google News Feeds: Understanding the New Layout & Functionality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-guide-to-downloading-youtube-media/"><u>The Ultimate Guide to Downloading YouTube Media</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/your-portal-to-pristine-tiktok-downloads-free-and-simple-for-2024/"><u>Your Portal to Pristine TikTok Downloads - Free & Simple for 2024</u></a></li>
+</ul></div>
 

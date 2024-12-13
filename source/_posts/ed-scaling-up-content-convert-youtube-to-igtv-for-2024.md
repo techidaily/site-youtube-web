@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Scaling Up Content  Convert YouTube to IGTV for 2024\""
-date: 2024-08-28T08:41:26.914Z
-updated: 2024-08-29T08:41:26.914Z
+date: 2024-12-12T07:51:44.390Z
+updated: 2024-12-13T12:00:32.383Z
 tags:
   - ai video
   - ai youtube
@@ -44,6 +44,10 @@ Once you have the file, you can **create a new project** in Filmora and then aft
 
 ![Filmora  Project Settings](https://images.wondershare.com/filmora/article-images/filmora-project-settings-window.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Click on the **Import button** to add a YouTube video to your project and then place it on the timeline. Your video will be displayed in the **Preview Panel**, and you’ll be able to see that the video is positioned at the center of the panel and that its top and bottom are black.
 
 Go to the **Effects tab** and click on the **Background Blur** submenu if you want to blur the empty areas of the frame. Add the **Basic Blur effect** to the timeline and drag one of its sides to position it over the entire video.
@@ -54,15 +58,27 @@ In case you are working with a video that already has a 16:9 aspect ratio, you c
 
 ![Filmora  convert YouTube to IGTV with transform](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-to-convert-youtube-igtv.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Filmora lets you create vertical videos in just a few quick steps, which makes it a perfect choice for influencers and marketers who want to share video content on YouTube and IGTV.
 
 Latest News: In Filmora V10.5 and later versions, there is a new feature called Auto-Reframe. This feature allows users to convert one video for different social media platforms based on the aspect ratio changing, and its features of detecting the moving object. Click the Analyze button, and Filmora will convert this 16:9 YouTube video to vertical 9:16 IGTV video automatically. And I can adjust frames to follow Yasmine’s movement to fine-tune the result.
 
 ![Filmora  Auto-Reframe YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/auto-reframe-youtube-video-to-vertical-igtv-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 You can watch the video below to find out more information about the Auto-Reframe tool.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Use Kapwing to Convert YouTube to IGTV Online
 
@@ -76,13 +92,14 @@ Pick the **Story (Snap/Insta) or IGTV 9:16 option** and then proceed to **choose
 
 ![Kapwing  Rotate YouTube video to IGTV](https://images.wondershare.com/filmora/article-images/rotate-youtube-video-convert-to-igtv.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 A growing number of IGTV users choose to rotate their videos, instead of resizing them, so if you already have a YouTube video with a 16:9 aspect ratio you can just rotate it and get a video with a 9:16 aspect ratio. Click on the **Rotate**  option and then rotate it **90 degrees clockwise or counterclockwise** and click on the **Create button**. If you opt for this method of creating a vertical video for IGTV, your video will remain the same size, but the viewers will have to hold their phones horizontally in order to view it properly.
 
 **You may also like:** [ How to Convert MKV to MP4 without Losing Quality \[Free Converters Provided\] >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: Changing the Aspect Ratio of a YouTube Video with Final Cut Pro
 
 Editing videos with professional video editing software products like Final Cut Pro or Premiere Pro requires a certain amount of skill. There is more than just one way to change the aspect ratio of a video in Final Cut Pro, but probably the best one is to **set the project resolution to 2160X3840 or any other lower resolution that matches the 9:16 aspect ratio**. During the video editing process, you will have to **resize all of the footage** you want to include in the final version of the video. Planning your shots and composing them differently than you would compose horizontally oriented shots can potentially save you a little time on resizing and repositioning the video clips you’re working with.
@@ -97,23 +114,17 @@ Posting YouTube videos on your IGTV channel is still a somewhat complicated proc
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -122,4 +133,20 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/mplify-views-and-engagement-through-google-analytics-expertise/"><u>[New] Amplify Views & Engagement Through Google Analytics Expertise</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ndroid-advantage-5-unique-playlist-downloaders-reviewed/"><u>[New] Android Advantage 5 Unique Playlist Downloaders Reviewed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/xploring-determinants-of-your-youtube-view-count-status-for-2024/"><u>[New] Exploring Determinants of Your YouTube View Count Status for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-10-youtube-storytelling-techniques-that-work/"><u>[New] In 2024, 10 YouTube Storytelling Techniques That Work</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-how-to-create-youtube-channel-in-mobile-personal-and-business/"><u>[New] In 2024, How to Create YouTube Channel in Mobile [Personal & Business]</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-navigating-the-seo-jungle-top-tools-for-tripling-traffic-for-2024/"><u>[Updated] Navigating the SEO Jungle Top Tools for Tripling Traffic for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-overcoming-connectivity-issues-in-your-live-feed/"><u>[Updated] Overcoming Connectivity Issues in Your Live Feed</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-render-photos-add-inward-radiant-spread-in-photoshop/"><u>2024 Approved Render Photos Add Inward Radiant Spread in Photoshop</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/catch-or-beat-sleeping-snorlax-on-pokemon-go-for-infinix-hot-30-5g-drfone-by-drfone-virtual-android/"><u>Catch or Beat Sleeping Snorlax on Pokemon Go For Infinix Hot 30 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-that.techidaily.com/contact-name-replacement-error-what-to-do-when-phone-numbers-display-on-ios-chat-apps/"><u>Contact Name Replacement Error: What to Do When Phone Numbers Display on iOS Chat Apps</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/24-pro-gamers-equipment-showcase-series/"><u>In 2024, Pro Gamer's Equipment Showcase Series</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/primeval-20-anime-series-opener-music/"><u>Primeval 20 Anime Series Opener Music</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-rated-wi-fi-signal-boosters-your-ultimate-guide-to-2024s-market-leaders/"><u>Top Rated Wi-Fi Signal Boosters - Your Ultimate Guide to 2024'S Market Leaders</u></a></li>
+</ul></div>
 

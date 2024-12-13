@@ -1,7 +1,7 @@
 ---
 title: "Humor at the Helm: Can Artificial Intelligence Craft Funny Lines?"
-date: 2024-12-04T16:38:29.612Z
-updated: 2024-12-06T18:46:10.414Z
+date: 2024-12-11T06:07:45.488Z
+updated: 2024-12-13T10:17:41.335Z
 tags:
   - chatgpt
   - open-ai
@@ -24,6 +24,10 @@ thumbnail: https://thmb.techidaily.com/573a01f636332d7e5c995b169e7da5e56cb9c949c
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Is the Role of ChatGPT in Public Health?
 
  NLP (Natural Language Processing) is not a brand-new concept in the healthcare sector. The industry has been using systems similar to—though not as user-friendly as—ChatGPT for a while to handle the vast amount of data they deal with daily.
@@ -35,7 +39,7 @@ thumbnail: https://thmb.techidaily.com/573a01f636332d7e5c995b169e7da5e56cb9c949c
  What makes ChatGPT special is that it is simpler, user-friendly, and can have human-like conversations. Although both ChatGPT and existing NLP systems in healthcare are not perfect, they can help meet the growing demands of patient care worldwide. NLP is one of the important[medical technologies shaping healthcare's future](https://www.makeuseof.com/medical-technologies-future-healthcare/) .
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Use ChatGPT in Healthcare
@@ -43,24 +47,16 @@ thumbnail: https://thmb.techidaily.com/573a01f636332d7e5c995b169e7da5e56cb9c949c
 ![chatgpt](https://static1.makeuseofimages.com/wordpress/wp-content/uploads/2023/08/jonathan-kemper-mmuzs5qzuus-unsplash.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Currently, ChatGPT is mainly used in the administrative side of healthcare, and it's proving to be a game-changer for healthcare professionals. It can do many things to make their lives easier, like handling paperwork, checklists, and logs. In a recent survey by[Jackson Healthcare](https://www.healthleadersmedia.com/nursing/nurses-say-distractions-cut-bedside-time-25) , most nurses admitted spending 25% of their shift on non-patient tasks, and ChatGPT aims to reduce that burden.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Using ChatGPT to Sort Unstructured Data
 
  Unstructured data in the medical field includes things like clinical notes, patient feedback, and medical literature. While you can read it, it becomes hard to search once it piles up in hundreds of documents saved by doctors. As a result, you can't get valuable insights from this data, which is crucial for diagnosis and medical care.
 
  ChatGPT can quickly analyze massive amounts of data—even diagnostics data. Just ask it a specific question with the sorting criteria you need, and it will give you the structured data you are looking for. You can copy its response, save it on a notepad, and open the file in Microsoft Excel to finish the process—problem solved!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Remote Patient Monitoring With ChatGPT
 
@@ -69,12 +65,16 @@ thumbnail: https://thmb.techidaily.com/573a01f636332d7e5c995b169e7da5e56cb9c949c
  But clinicians receive a lot of vital signs data from patients every single day, which can be overwhelming to examine. Luckily, ChatGPT can analyze the information collected by home health monitoring systems and provide clear insights for both patients and healthcare professionals. All patients have to do is share their results, and ChatGPT will let them know if everything is normal or not. After all, ChatGPT passed the USMLE exam!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### ChatGPT as a Virtual Assistant for Patient Care
 
  ChatGPT can be like having a personal assistant available all the time for doctors. It can handle client communication, schedule appointments, and even help create emails. Moreover, you can rely on it to summarize clinical notes and the patient's medical history, making your preparation for visits much easier. And with ChatGPT-4's plugin feature, using it has become even simpler. Here's[how you can make the most of ChatGPT plugins](https://www.makeuseof.com/how-install-and-use-chatgpt-plugins/) .
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## ChatGPT Has Potential in Healthcare, But Be Careful
 
@@ -97,18 +97,20 @@ thumbnail: https://thmb.techidaily.com/573a01f636332d7e5c995b169e7da5e56cb9c949c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-obs-studio-setting-up-your-skype-recording-environment/"><u>[New] OBS Studio Setting Up Your Skype Recording Environment</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nveiling-youtubes-full-rotation-streaming-potential/"><u>[New] Unveiling YouTube’s Full-Rotation Streaming Potential</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-extract-and-save-video-previews-free-and-easy-for-2024/"><u>[Updated] Extract and Save Video Previews, Free & Easy for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-5-top-android-ps2-game-simulators/"><u>[Updated] In 2024, 5 Top Android PS2 Game Simulators</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-quick-fixes-how-to-shorten-youtube-videos-easily/"><u>[Updated] Quick Fixes How to Shorten YouTube Videos Easily</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-the-power-of-consistency-rising-up-the-charts-on-youtube/"><u>2024 Approved The Power of Consistency Rising Up the Charts on YouTube</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/comment-resoudre-le-probleme-didentification-de-votre-ssd-par-acronis-et-pour-crucial-solutions-rapides/"><u>Comment Résoudre Le Problème D'identification De Votre SSD Par Acronis Et Pour Crucial : Solutions Rapides</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/expected-postponement-initial-release-of-apples-smart-tech-innovations-pushed-to-oct-sources-say-zdnet/"><u>Expected Postponement: Initial Release of Apple's Smart Tech Innovations Pushed to Oct, Sources Say | ZDNet</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/heartfelt-gratitude-paidfree-creative-templates/"><u>Heartfelt Gratitude Paid/Free Creative Templates</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-designing-powerful-youtube-screens-a-step-by-step-guide/"><u>In 2024, Designing Powerful YouTube Screens A Step-by-Step Guide</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-poco-c55-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Poco C55</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-tips-for-fixing-resident-evil-village-crashes-on-windows-pc/"><u>Troubleshooting Tips for Fixing Resident Evil Village Crashes on Windows PC</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/understanding-trojans-cybersecurity-essentials-for-protecting-your-digital-life/"><u>Understanding Trojans: Cybersecurity Essentials for Protecting Your Digital Life</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/remium-microphones-for-videographers/"><u>[New] Premium Microphones for Videographers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-building-wealth-through-video-content-revenue-for-2024/"><u>[Updated] Building Wealth Through Video Content Revenue for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-downloading-videos-directly-to-iphoneipad-youtubes-quick-guide-for-2024/"><u>[Updated] Downloading Videos Directly to iPhone/iPad - YouTube's Quick Guide for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-mastering-live-participation-stepping-into-others-tiktok-sessions/"><u>[Updated] Mastering Live Participation Stepping Into Others' TikTok Sessions</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-elevating-your-style-with-youtubes-best-hauls/"><u>2024 Approved Elevating Your Style with YouTube's Best Hauls</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/7-ways-to-unlock-a-locked-tecno-phantom-v-fold-phone-by-drfone-android/"><u>7 Ways to Unlock a Locked Tecno Phantom V Fold Phone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-intel-integrated-hd-graphics-driver-for-windows-1011/"><u>Download & Install Intel Integrated HD Graphics Driver for Windows 10/11</u></a></li>
+<li><a href="https://fox-making.techidaily.com/expert-guide-saving-your-windows-11-messages-by-moving-them-to-an-external-hard-drive-three-strategies-explained/"><u>Expert Guide: Saving Your Windows 11 Messages by Moving Them to an External Hard Drive – Three Strategies Explained</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/creator-to-kingmaker-ajays-youtube-revenue-revolution/"><u>From Creator to Kingmaker Ajay’s YouTube Revenue Revolution</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/from-monochrome-to-spectrum-modifying-the-look-of-your-windows-11-taskbar/"><u>From Monochrome to Spectrum: Modifying the Look of Your Windows 11 Taskbar</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-conquering-the-labyrinth-of-lesser-known-youtube-content/"><u>In 2024, Conquering the Labyrinth of Lesser-Known YouTube Content</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-how-to-fake-gps-on-android-without-mock-location-for-your-oppo-reno-11-5g-drfone-by-drfone-virtual/"><u>In 2024, How to Fake GPS on Android without Mock Location For your Oppo Reno 11 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-reversing-the-consequences-of-a-youtube-ban/"><u>In 2024, Reversing the Consequences of a YouTube Ban</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-youtube-themes-made-easy-by-the-coolest-logo-and-icon-stores-online/"><u>In 2024, YouTube Themes Made Easy by the Coolest Logo & Icon Stores Online</u></a></li>
+<li><a href="https://win-tips.techidaily.com/resolviendo-el-enigma-del-codigo-de-error-0x80070643-tecnicas-practicas-para-reparar-su-equipo/"><u>Resolviendo El Enigma Del Código De Error 0X80070643: Técnicas Prácticas Para Reparar Su Equipo</u></a></li>
 </ul></div>
 

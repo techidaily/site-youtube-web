@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Crafting Visuals  The Science of YouTube Banners & Thumbnails\""
-date: 2024-12-02T09:02:26.604Z
-updated: 2024-12-06T17:18:14.080Z
+date: 2024-12-12T08:26:35.223Z
+updated: 2024-12-13T07:34:31.652Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/b3073e71d549e5dda027e19f13416a5fe4cf0a11f
 The art on your [YouTube channel](https://tools.techidaily.com/wondershare/filmora/download/) – banners, thumbnails, icons, and watermarks – will help to determine how viewers feel about your vlog. If your art does not look like it all goes together then people will get a sloppy, amateurish, impression of your channel. However, if your different pieces of channel art all seem to complement each other and match the tone and theme of your channel then it will help viewers to have a pleasant browsing experience. They will get the impression that you take your YouTube channel seriously and that they can trust you as a source of information, comedy, or general entertainment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Make YouTube Banners and Thumbnails
@@ -70,7 +70,7 @@ There are sites online that will allow you to edit images and use them in templa
 ![banner n thumb Canva](https://images.wondershare.com/filmora/article-images/banner-n-thumb-Canva.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Canva** has templates you can use to create YouTube banners, as well as a variety of stock images you can use in combination with your own when creating channel art. It is free to edit images on Canva, but they do have some premium features which cost $1 each to access. This service has both a desktop version and an iPad app.
@@ -78,7 +78,7 @@ There are sites online that will allow you to edit images and use them in templa
 ![banner n thumb PicMonkey](https://images.wondershare.com/filmora/article-images/banner-n-thumb-PicMonkey.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **PicMonkey** lets you import images from your computer or social media accounts, edit them, and use them in templates for YouTube banners or other kinds of social media graphics. PicMonkey is free to use, but you can only access their more advanced editing tools if you buy a paid subscription. Monthly subscriptions are $4.99 per month, and yearly subscriptions are $2.75 per month.
@@ -86,7 +86,7 @@ There are sites online that will allow you to edit images and use them in templa
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -110,21 +110,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-perfect-your-crafting-skills-using-these-7-sounds-tracks/"><u>[New] Perfect Your Crafting Skills Using These 7 Sounds Tracks</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-tasty-talent-a-filmmakers-recipe-for-success/"><u>[Updated] 2024 Approved Tasty Talent A Filmmaker's Recipe for Success</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-elevating-youtube-live-with-high-quality-webcam-cameras-for-2024/"><u>[Updated] Elevating YouTube Live with High-Quality Webcam Cameras for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-virtually-profitable-gaming-channels/"><u>[Updated] In 2024, Virtually Profitable Gaming Channels</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-inside-picsarts-new-horizon-the-ultimate-2024-review-and-tutorial/"><u>[Updated] Inside PicsArt's New Horizon – The Ultimate 2024 Review & Tutorial</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-protect-your-data-while-turning-youtube-to-mp3-3-steps/"><u>[Updated] Protect Your Data While Turning YouTube to MP3 - 3 Steps</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-youtube-update-your-shorts-are-visible-again/"><u>[Updated] YouTube Update - Your Shorts Are Visible Again</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/-your-course-to-youtube-riches-the-essential-500-threshold-for-2024/"><u>Chart Your Course to Youtube Riches The Essential 500 Threshold for 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/comprehensive-video-guide-for-mac-users-on-disk-encryptiondecryption-processes/"><u>Comprehensive Video Guide for Mac Users on Disk Encryption/Decryption Processes</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/steps-to-save-youtube-videos-for-2024/"><u>Easy Steps to Save YouTube Videos for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-apple-iphone-xs-drfone-by-drfone-virtual-ios/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Apple iPhone XS? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-key-disparities-in-360-degree-and-vr-videos/"><u>In 2024, The Key Disparities in 360-Degree & VR Videos</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-ultimate-guide-from-iphone-se-icloud-activation-lock-bypass-by-drfone-ios/"><u>In 2024, Ultimate Guide from iPhone SE iCloud Activation Lock Bypass</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ring-youtube-legalities-a-comprehensive-overview/"><u>Mastering YouTube Legalities A Comprehensive Overview</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/reparer-le-demarrage-sous-windows-7-avec-les-commandes-chkdsk-et-bootrec/"><u>Réparer Le Démarrage Sous Windows 7 Avec Les Commandes CHKDSK Et Bootrec</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ower-of-branding-in-video-ranks-and-traffic/"><u>The Power of Branding in Video Ranks and Traffic</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-cutting-edge-cadence-exclusive-perfected-dj-templates-online/"><u>[New] Cutting Edge Cadence Exclusive, Perfected DJ Templates Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-easy-guide-to-youtube-livestreaming-from-google-meet/"><u>[New] In 2024, Easy Guide to YouTube Livestreaming From Google Meet</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-mac-studios-for-top-quality-recordings/"><u>[New] In 2024, Mac Studios for Top-Quality Recordings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/btain-exclusive-free-media-from-elite-4-youtube-clips-for-2024/"><u>[New] Obtain Exclusive Free Media From Elite 4 YouTube Clips for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/trategic-game-plays-with-top-casters-for-2024/"><u>[New] Strategic Game Plays with Top Casters for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-students-guide-to-historical-channels-1-10/"><u>[New] Ultimate Students' Guide to Historical Channels #1-10</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-unleashing-the-full-capabilities-of-macoss-screen-recording-feature/"><u>[Updated] 2024 Approved Unleashing the Full Capabilities of macOS's Screen Recording Feature</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-mechanics-of-parody-video-making-101/"><u>[Updated] In 2024, The Mechanics of Parody Video Making 101</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-unlocking-the-archive-of-yesteryear-how-to-view-facebook-past-content/"><u>[Updated] In 2024, Unlocking the Archive of Yesteryear How To View Facebook Past Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-virtual-studio-compiling-the-best-dj-visuals-for-download/"><u>[Updated] In 2024, Virtual Studio Compiling the Best DJ Visuals for Download</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-voice-of-vogue-establishing-your-channel-in-the-cosmetic-world/"><u>[Updated] Voice of Vogue Establishing Your Channel in the Cosmetic World</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-years-must-see-makeup-vloggers-on-the-web/"><u>[Updated] Year's Must-See Makeup Vloggers on the Web</u></a></li>
+<li><a href="https://win-superb.techidaily.com/hp-secure-erase-effektives-festplattenformatieren-mit-zwei-techniken-fur-optimale-sicherheit/"><u>HP Secure Erase: Effektives Festplattenformatieren Mit Zwei Techniken Für Optimale Sicherheit</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/innovative-techniques-for-maximum-zoom-utility-on-chromebook-for-2024/"><u>Innovative Techniques for Maximum Zoom Utility on Chromebook for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/latest-update-free-download-of-nvidias-geforce-rtx-2070-driver-for-windows-users/"><u>Latest Update: Free Download of NVIDIA's Geforce RTX 2070 Driver for Windows Users</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/mastering-how-to-fix-videos-not-sent-in-facebook-message-apps-for-2024/"><u>Mastering How to Fix Videos Not Sent in Facebook Message Apps for 2024</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/new-horizons-in-workspace-tech-converging-hp-and-laptops-flawlessly/"><u>New Horizons in Workspace Tech - Converging HP and Laptops Flawlessly</u></a></li>
 </ul></div>
 

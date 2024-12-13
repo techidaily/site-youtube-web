@@ -1,7 +1,7 @@
 ---
 title: "[New] Achieving Excellence in Work and Online Content for 2024"
-date: 2024-08-28T08:43:32.984Z
-updated: 2024-08-29T08:43:32.984Z
+date: 2024-12-11T07:59:22.869Z
+updated: 2024-12-12T20:52:43.389Z
 tags:
   - ai video
   - ai youtube
@@ -42,32 +42,34 @@ So, to save you and your viewers some of the same struggles, here are 5 tips I r
 
 [5. Be creative! Create audios (audio-only videos)](#createaudio)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1. Don’t force yourself to post on specific days
 
 I know what you’re thinking - “What?! That’s insane.” The first piece of advice I received about YouTube was to create a schedule of days to post so your viewers look forward to videos. That just doesn’t work for me. Whenever I became too busy with work, I couldn’t stick to my typical Tuesday or Thursday schedule. I think it’s best to focus on how many times you can post in a week rather than a specific day. I try to post at least once a week and that’s my goal. You can always increase as your workload gets lighter or you when you are able to do YouTube full-time.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2. Keep track of all your ideas in one notebook planner
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 5. Be creative! Create audios (audio-only videos)
 
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
@@ -75,8 +77,9 @@ In the event that life gets too crazy, it’s perfectly fine to do just audio. M
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Make a YouTube Video with Wondershare Filmora
 
 Wondershare Filmora is one application that people prefer over any other video editing application due to its easy-to-use editing tools and social media aimed settings. This application can help any beginner with a desire to shoot a movie, achieve his dream even without the availability of high-tech cameras or equipment in his hand. The features like video stabilization feature and lens correction allow removing the major defects that occur while capturing a video. A large number of filters in the application can be used to give the cinematic effect whether it be a short video or a long movie.
@@ -85,33 +88,23 @@ Just try it and create your own YouTube video!
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -120,4 +113,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-essential-fbx-techniques-for-capturing-games/"><u>[New] Essential FBX Techniques for Capturing Games</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ifa-footage-analysis-trendy-video-patterns-for-2024/"><u>[New] FIFA Footage Analysis Trendy Video Patterns for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-elevate-your-channels-optimal-use-of-templated-content-in-yt-descs/"><u>[New] In 2024, Elevate Your Channels Optimal Use of Templated Content in YT Descs</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-the-quest-for-perfection-topiary-angles-in-mobile-photography/"><u>[New] In 2024, The Quest for Perfection Topiary Angles in Mobile Photography</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-prodigious-editing-power-utilizing-inshot-on-devices/"><u>[New] Prodigious Editing Power Utilizing Inshot on Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-6-youtube-outros-made-easy-and-free-guide/"><u>[Updated] 2024 Approved Top 6 YouTube Outros Made Easy & FREE (Guide)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unlocking-success-the-quintessential-youtube-video-strategies/"><u>[Updated] 2024 Approved Unlocking Success The Quintessential YouTube Video Strategies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-a-comprehensive-walkthrough-for-embedding-youtube-plays-in-web-design-for-2024/"><u>[Updated] A Comprehensive Walkthrough for Embedding YouTube Plays in Web Design for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-decoding-the-payment-structure-on-youtube-for-2024/"><u>[Updated] Decoding the Payment Structure on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-plunge-into-the-magic-9-premium-full-length-christmas-movies-for-free/"><u>[Updated] Plunge Into the Magic 9 Premium Full-Length Christmas Movies for Free</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-navigate-youtube-gaming-success-with-right-tags/"><u>2024 Approved Navigate YouTube Gaming Success with Right Tags</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/t-endorsed-asmr-microphones-unveiled-for-2024/"><u>Expert-Endorsed ASMR Microphones Unveiled for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/exploring-the-capabilities-of-microsoft-family-safety/"><u>Exploring the Capabilities of Microsoft Family Safety</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/here-are-some-of-the-best-pokemon-discord-servers-to-join-on-motorola-defy-2-drfone-by-drfone-virtual-android/"><u>Here are Some of the Best Pokemon Discord Servers to Join On Motorola Defy 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-eco-filmmaking-simplified-youtubes-green-screen-wonders/"><u>In 2024, Eco-Filmmaking Simplified YouTube's Green Screen Wonders</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/monitor-misses-full-screen-settings-in-win11/"><u>Monitor Misses Full Screen Settings in Win11</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/1722157800226-public-transit-directions/"><u>Public Transit Directions</u></a></li>
+<li><a href="https://howto.techidaily.com/realme-12-5g-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Realme 12 5G Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://win-webster.techidaily.com/dell-xps-ssd/"><u>ステップバイステップ: Dell XPS SSDの容量拡張方法を学ぶ</u></a></li>
+</ul></div>
 

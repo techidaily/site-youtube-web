@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Shine a Light on Your Content Creation"
-date: 2024-11-30T20:27:31.514Z
-updated: 2024-12-07T05:42:40.730Z
+date: 2024-12-07T03:40:14.947Z
+updated: 2024-12-13T00:54:07.132Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Video Lighting Basics: Three Point Lighting
@@ -42,7 +42,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -58,10 +58,14 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
 
@@ -96,7 +100,7 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
@@ -104,10 +108,6 @@ If you are using all of the lighting options available to you and your video sti
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,21 +130,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/obile-apps-for-top-notch-introduction-videos-on-iosandroid-for-2024/"><u>[New] Mobile Apps for Top-Notch Introduction Videos on iOS/Android for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/couring-for-meaningful-youtube-discussions-for-2024/"><u>[New] Scouring for Meaningful YouTube Discussions for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-cultivate-creativity-10plus-channel-driven-video-suggestions-for-2024/"><u>[Updated] Cultivate Creativity 10+ Channel-Driven Video Suggestions for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-in-2024-best-practices-for-documenting-live-streamed-sporting-matches/"><u>[Updated] In 2024, Best Practices for Documenting Live-Streamed Sporting Matches</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-securing-your-online-discussions/"><u>[Updated] Securing Your Online Discussions</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-transforming-cityscapes-into-sustainable-havens-of-life/"><u>[Updated] Transforming Cityscapes Into Sustainable Havens of Life</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-worldwide-top-earners-in-the-streaming-sphere/"><u>2024 Approved Worldwide Top Earners in the Streaming Sphere</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/first-steps-to-picture-perfection-demystifying-pixels/"><u>First Steps to Picture Perfection Demystifying Pixels</u></a></li>
-<li><a href="https://win-fantastic.techidaily.com/guide-faciles-pour-elaborer-un-disque-dhebergement-personnel-sur-windows-11-a-laide-de-deux-solutions-efficaces/"><u>Guide Faciles Pour Élaborer Un Disque D'Hébergement Personnel Sur Windows 11 À L'aide De Deux Solutions Efficaces</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-samsung-galaxy-s24-ultra-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Samsung Galaxy S24 Ultra If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-fixed-youtubes-missing-minute-media/"><u>In 2024, Fixed YouTube's Missing Minute Media</u></a></li>
-<li><a href="https://discover-bits.techidaily.com/the-unexpected-benefit-of-transaction-delays-in-blockchain-security-as-unveiled-by-yl-software-study/"><u>The Unexpected Benefit of Transaction Delays in Blockchain Security, as Unveiled by YL Software Study</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/for-effortless-eradication-of-unwanted-youtube-discussions-for-2024/"><u>Tips for Effortless Eradication of Unwanted YouTube Discussions for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-motorola-edge-40-pro-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Motorola Edge 40 Pro Users</u></a></li>
-<li><a href="https://apple-account.techidaily.com/why-apple-account-disabled-from-your-iphone-11-how-to-fix-by-drfone-ios/"><u>Why Apple Account Disabled From your iPhone 11? How to Fix</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/daily-diary-staying-fresh-and-avoiding-common-mistakes/"><u>Your Daily Diary Staying Fresh & Avoiding Common Mistakes</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-innovative-techniques-for-flawless-voice-capture-in-facetime-calls/"><u>[New] 2024 Approved Innovative Techniques for Flawless Voice Capture in FaceTime Calls</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/avigating-online-public-opinion-for-video-content-concepts-for-2024/"><u>[New] Navigating Online Public Opinion for Video Content Concepts for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-can-you-make-outstanding-youtube-outro-for-2024/"><u>[Updated] How Can You Make Outstanding YouTube Outro for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-master-windows-11-a-treasure-trove-of-undisclosed-features-for-2024/"><u>[Updated] Master Windows 11 A Treasure Trove of Undisclosed Features for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-the-ultimate-perspective-ranking-the-top-11-multi-angle-cams-for-2024/"><u>[Updated] The Ultimate Perspective Ranking the Top 11 Multi-Angle Cams for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ving-excellence-in-work-and-online-content-for-2024/"><u>Achieving Excellence in Work and Online Content for 2024</u></a></li>
+<li><a href="https://win-help.techidaily.com/aomei-backupper-on-macos/"><u>AOMEI Backupper on macOSでの基本的なバックアップ同期手順</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-dslrs-rivalry-with-mirrorless-for-video-artistry/"><u>In 2024, DSLR's Rivalry with Mirrorless for Video Artistry</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-twist-your-way-through-youtube-mastering-rotation-techniques/"><u>In 2024, Twist Your Way Through YouTube Mastering Rotation Techniques</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/pinnacle-tools-for-audio-infused-photography/"><u>Pinnacle Tools for Audio Infused Photography</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshoot-your-gameplay-fixing-screen-tearing-issues-in-valorant-efficiently/"><u>Troubleshoot Your Gameplay: Fixing Screen Tearing Issues in Valorant Efficiently</u></a></li>
 </ul></div>
 

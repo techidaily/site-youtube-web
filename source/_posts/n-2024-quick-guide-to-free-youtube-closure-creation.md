@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Quick Guide to Free YouTube Closure Creation"
-date: 2024-08-28T08:42:20.961Z
-updated: 2024-08-29T08:42:20.961Z
+date: 2024-12-11T10:19:25.863Z
+updated: 2024-12-12T19:53:38.650Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/a8037b9cb425e19a9ec57f5feba58cc91bfb4e98a
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/iscover-9-easy-no-cost-editing-software-options-for-2024/"><u>[New] Discover 9 Easy, No-Cost Editing Software Options for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-from-blank-page-to-airwaves-writing-engaging-podcast-episodes/"><u>[New] From Blank Page to Airwaves Writing Engaging Podcast Episodes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-free-techniques-for-turning-youtube-watching-into-a-screenshot/"><u>[New] In 2024, Free Techniques for Turning YouTube Watching Into a Screenshot</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/treamlining-audio-integration-in-youtube-videos-for-professionals/"><u>[New] Streamlining Audio Integration in YouTube Videos for Professionals</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/uperrich-streamers-of-the-world/"><u>[New] Superrich Streamers of the World</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-club-chronicles-expertly-picked-dj-videos/"><u>[Updated] 2024 Approved Club Chronicles Expertly Picked DJ Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-navigating-copyright-on-youtube-and-cc/"><u>[Updated] 2024 Approved Navigating Copyright on YouTube & CC</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-start-saving-youtube-videos-as-screen-captures-today-completely-free/"><u>[Updated] 2024 Approved Start Saving YouTube Videos as Screen Captures Today - Completely Free</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-discover-these-27-purely-free-youtube-audio-ripper-tools/"><u>[Updated] In 2024, Discover These 27 Purely Free YouTube Audio Ripper Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-collabs-how-to-find-youtube-collaboration-partners-in-2024/"><u>[Updated] YouTube Collabs How to Find YouTube Collaboration Partners, In 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-innovative-thumbnail-tips-for-mac-users-youtube/"><u>2024 Approved Innovative Thumbnail Tips for Mac Users - YouTube</u></a></li>
+<li><a href="https://solve-lab.techidaily.com/a-beginners-guide-to-swapping-picture-backdrops-in-just-6-steps-movavi/"><u>A Beginner’s Guide to Swapping Picture Backdrops in Just 6 Steps (Movavi)</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/boosting-earnings-with-effective-social-media-video-marketing-techniques/"><u>Boosting Earnings with Effective Social Media Video Marketing Techniques</u></a></li>
+<li><a href="https://techtrends.techidaily.com/convert-spotify-playlist-data-into-editable-text-format-easily/"><u>Convert Spotify Playlist Data Into Editable Text Format Easily</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-acoustic-enhancement-techniques-for-premiere-pro-videographers/"><u>In 2024, Acoustic Enhancement Techniques for Premiere Pro Videographers</u></a></li>
+<li><a href="https://ai-video.techidaily.com/in-2024-how-to-auto-translate-youtube-videos-into-different-languages/"><u>In 2024, How To Auto Translate YouTube Videos Into Different Languages</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-ranking-the-top-value-video-resources-online/"><u>In 2024, Ranking the Top Value Video Resources Online</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-the-hunt-the-best-10-websites-to-assist-in-your-apartment-quest/"><u>Mastering the Hunt: The Best 10 Websites to Assist in Your Apartment Quest</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unboxing-mastery-the-soundtrack-selection-guidebook-for-2024/"><u>Unboxing Mastery The Soundtrack Selection Guidebook for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->

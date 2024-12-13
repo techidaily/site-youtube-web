@@ -1,7 +1,7 @@
 ---
 title: "[Updated] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-12-03T21:03:19.205Z
-updated: 2024-12-06T23:04:12.219Z
+date: 2024-12-07T10:36:08.131Z
+updated: 2024-12-13T11:05:19.776Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ thumbnail: https://thmb.techidaily.com/1a08c8dedd48664d90b507bda304483e40c9a1d2d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part1: Intros
@@ -78,7 +78,7 @@ You can create a simple intro card in **Filmora**.
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
@@ -91,7 +91,7 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: End Cards
@@ -130,7 +130,7 @@ Some creators will leave their end cards at that and play music overtop, but it 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -154,18 +154,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-expert-choice-5-time-lapse-capturers/"><u>[New] Expert Choice 5 Time-Lapse Capturers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/itching-your-video-trailers-to-youtube-success/"><u>[New] Hitching Your Video Trailers to YouTube Success</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-in-2024-the-science-of-hashtags-how-they-drive-instagram-success/"><u>[New] In 2024, The Science of Hashtags How They Drive Instagram Success</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-top-font-picks-to-elevate-your-youtube-thumbnail-impact/"><u>[New] In 2024, Top Font Picks to Elevate Your YouTube Thumbnail Impact</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-future-earning-potential-in-gaming-videos/"><u>[Updated] 2024 Approved Future Earning Potential in Gaming Videos</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-ultimate-guide-top-8-convertors-for-sub-to-srt-harmony/"><u>[Updated] Ultimate Guide Top 8 Convertors for Sub to Srt Harmony</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/deconstructing-5-misguided-assumptions-in-language-learning/"><u>Deconstructing 5 Misguided Assumptions in Language Learning</u></a></li>
-<li><a href="https://win-popular.techidaily.com/dual-page-zoom-functionality-in-flip-pdfs-created-with-flipbuilder-a-step-by-step-guide/"><u>Dual-Page Zoom Functionality in Flip PDFs Created with FlipBuilder - A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/tial-10-boosters-for-multi-device-use/"><u>Essential 10 Boosters for Multi-Device Use</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/immediate-methods-for-facebook-photomontage/"><u>Immediate Methods for Facebook Photomontage</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-intelligent-digital-diary-with-mematic-services/"><u>In 2024, Intelligent Digital Diary with Mematic Services</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-canva-blueprint-to-neat-and-clean-image-edges/"><u>In 2024, The Canva Blueprint to Neat and Clean Image Edges</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/innovative-insights-into-the-ring-doorbell-pro-a-breakdown-of-its-intelligent-design/"><u>Innovative Insights Into the Ring Doorbell Pro: A Breakdown of Its Intelligent Design</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-from-silent-videos-to-engaging-content-swiftly-add-captions-on-fb-for-2024/"><u>[New] From Silent Videos to Engaging Content Swiftly Add Captions on FB for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-how-to-apply-a-classic-video-transition-with-camtasia-9-for-2024/"><u>[New] How to Apply a Classic Video Transition with Camtasia 9 for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-boost-your-channels-following-by-a-thousand/"><u>[New] In 2024, Boost Your Channels' Following by a Thousand</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-unraveling-the-secrets-to-captivating-asmr-scenarios-and-effects/"><u>[New] In 2024, Unraveling the Secrets to Captivating ASMR Scenarios and Effects</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-tips-on-using-uavs-creatively-in-filmmaking-for-2024/"><u>[New] Tips on Using UAVs Creatively in Filmmaking for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-ig-boomerangs-crafting-compelling-circular-content/"><u>[Updated] 2024 Approved IG Boomerangs Crafting Compelling Circular Content</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-information-what-is-blue-video-icon-on-facebook-messenger/"><u>[Updated] 2024 Approved Information | What Is Blue Video Icon on Facebook Messenger?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unleash-video-magic-top-7-royalty-free-sounds-for-editors/"><u>[Updated] 2024 Approved Unleash Video Magic Top 7 Royalty-Free Sounds for Editors</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-enhancing-viewer-interest-with-accurate-time-stamping-for-2024/"><u>[Updated] Enhancing Viewer Interest with Accurate Time Stamping for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-audiovisual-virtuoso-capturing-emotion-in-harmony/"><u>[Updated] In 2024, Audiovisual Virtuoso Capturing Emotion in Harmony</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-itel-p55-5g-by-drfone-android/"><u>10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Itel P55 5G</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-saturating-the-market-precision-in-sharing-through-shorts/"><u>2024 Approved Saturating the Market Precision in Sharing Through Shorts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-this-years-most-iconic-music-video-responses-for-2024/"><u>Exploring This Year's Most Iconic Music Video Responses for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/1722900256798-journey-through-gadgets-and-genres-master-your-laptop-phone-and-expand-your-reading-universe/"><u>Journey Through Gadgets & Genres: Master Your Laptop, Phone & Expand Your Reading Universe</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-money-making-enabling-youtube-monetization-for-mobile-devices-for-2024/"><u>Mastering Money-Making Enabling YouTube Monetization for Mobile Devices for 2024</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/preparation-to-beat-giovani-in-pokemon-go-for-apple-iphone-15-plus-drfone-by-drfone-virtual-ios/"><u>Preparation to Beat Giovani in Pokemon Go For Apple iPhone 15 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/inside-the-ultimate-list-of-immersive-youtube-vr-content-for-2024/"><u>Step Inside The Ultimate List of Immersive YouTube VR Content for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ling-the-best-3-video-hosts-post-youtube-era/"><u>Unveiling the Best 3 Video Hosts Post-YouTube Era</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/aif-mp3-convert/"><u>오픈소스 비용 없이 AIF 폴리터를 MP3로 Convert: 모바일 함께 사용한다!</u></a></li>
 </ul></div>
 

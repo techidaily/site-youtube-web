@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Guide to Modify Comment Accessibility on YouTube"
-date: 2024-08-28T08:40:40.029Z
-updated: 2024-08-29T08:40:40.029Z
+date: 2024-12-07T23:25:52.260Z
+updated: 2024-12-12T18:09:09.671Z
 tags:
   - ai video
   - ai youtube
@@ -29,6 +29,10 @@ YouTube comments are enabled by default, and if they aren’t, learning **how to
 As a brand, it is imperative to thoroughly read all the comments that your YouTube videos receive. This not only helps you do sentimental analysis; it also enables you to understand what the viewers expect from you, and where should you focus more while recording and editing your footage.
 
 Keeping all these points in mind, the following sections explain **how to enable comments on YouTube** and **how to turn off comments on YouTube**. Here you will also get to know what other types of security and privacy options are there that you can use to filter the comments posted by the disturbing elements.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
@@ -70,6 +74,10 @@ Back on the **YouTube Studio** page, click **Content** from the left pane. From 
 
 ![ Turn on or off YouTube content commnets settings](https://images.wondershare.com/filmora/article-images/turn-on-off-channel-content-comments-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### **Additional Info about Comments Options**
 
 The four options that become available when you allow the comments on your YouTube channel along with their meaning are:
@@ -110,11 +118,12 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -132,8 +141,9 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -149,22 +159,20 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -173,4 +181,23 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/he-editors-toolkit-elevating-your-youtube-videos-via-windows-pc-for-2024/"><u>[New] The Editor's Toolkit Elevating Your YouTube Videos via Windows PC for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-guidelines-to-broaden-youtube-content-area/"><u>[Updated] 2024 Approved Guidelines to Broaden YouTube Content Area</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-50plus-youtube-channel-names-for-vloggers-100-new-for-2024/"><u>[Updated] 50+ Youtube Channel Names for Vloggers [100% New] for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-craft-a-powerhouse-channel-with-studio-expertise/"><u>[Updated] Craft a Powerhouse Channel with Studio Expertise</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-optimal-video-balance-top-stabilizer-brands/"><u>[Updated] Optimal Video Balance Top Stabilizer Brands</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elevating-positivity-in-a-constructive-space/"><u>2024 Approved Elevating Positivity in a Constructive Space</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gradual-volume-reduction-in-studio-projects-using-logic-pro/"><u>2024 Approved Gradual Volume Reduction in Studio Projects Using Logic Pro</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/advancing-your-project-with-ai-comprehensive-insights-into-utilizing-anthropics-claude-3-platform/"><u>Advancing Your Project with AI: Comprehensive Insights Into Utilizing Anthropic's Claude 3 Platform</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/fy-your-video-reach-with-these-key-seo-insights-1-11/"><u>Amplify Your Video Reach with These Key SEO Insights (1-11)</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/dissecting-apples-latest-ai-announcements-from-wwdc-surprisingly-dull-but-could-it-be-for-the-best-gadget-digest/"><u>Dissecting Apple's Latest AI Announcements From WWDC: Surprisingly Dull, But Could It Be for the Best? | Gadget Digest</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-apples-m1-max-attachments-a-detailed-guide/"><u>In 2024, Apple’s M1 Max Attachments A Detailed Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-mac-users-mastering-mp3-conversion-from-youtube/"><u>In 2024, Mac Users Mastering MP3 Conversion From YouTube</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/optimizing-research-the-chatgpt-approach/"><u>Optimizing Research: The ChatGPT Approach</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/step-by-step-guide-to-professional-xbox-gameplay-capture-for-2024/"><u>Step-by-Step Guide to Professional Xbox Gameplay Capture for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-guide-to-downloading-youtube-media/"><u>The Ultimate Guide to Downloading YouTube Media</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/forming-your-videos-for-igtv-excellence-3-methods/"><u>Transforming Your Videos for IGTV Excellence (3 Methods)</u></a></li>
+</ul></div>
 

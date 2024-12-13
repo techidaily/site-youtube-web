@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Guides on Creating Cost-Free YouTube Beginnings & Conclusions\""
-date: 2024-08-28T08:44:16.437Z
-updated: 2024-08-29T08:44:16.437Z
+date: 2024-12-09T16:06:21.301Z
+updated: 2024-12-13T00:39:41.213Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/69a1f779573ffb1d9703aa1f0c2a82407b77bc350
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,18 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ed-diy-youtube-intros-and-ends-without-breaking-the-bank/"><u>[Updated] DIY YouTube Intros & Ends Without Breaking the Bank</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-accessing-global-hitters-the-1-6-short-video-downloaders/"><u>[Updated] In 2024, Accessing Global Hitters The #1-#6 Short Video Downloaders</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-free-video-wizardry-top-8-editing-programs-for-youtube-enthusiasts/"><u>[Updated] In 2024, Free Video Wizardry Top 8 Editing Programs for YouTube Enthusiasts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-navigating-melody-rights-on-instagram-a-full-breakdown/"><u>[Updated] In 2024, Navigating Melody Rights on Instagram A Full Breakdown</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-investigating-freezing-moments-in-photobooth-recordings/"><u>[Updated] Investigating Freezing Moments in Photobooth Recordings</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-the-roadmap-for-effective-advertising-on-facebook-for-2024/"><u>[Updated] The Roadmap for Effective Advertising on Facebook for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/how-to-live-stream-to-instagram-from-obs/"><u>How To Live Stream to Instagram From OBS</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/manual-control-of-drivers-avoid-unwanted-updates-in-windows-n-11/"><u>Manual Control of Drivers: Avoid Unwanted Updates in Windows N 11</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/spices-although-not-traditionally-used-in-large-amounts-in-portuguese-cuisine-spices-like-cinnamon-and-nutmeg-have-been-incorporated-into-sweet-pastries-suc456/"><u>Spices: Although Not Traditionally Used in Large Amounts in Portuguese Cuisine, Spices Like Cinnamon and Nutmeg Have Been Incorporated Into Sweet Pastries (Such as Folar) or Savory Stews to Add Warmth and Depth of Flavor.</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/by-step-tutorial-for-successful-youtube-video-submissions-for-2024/"><u>Step-By-Step Tutorial for Successful YouTube Video Submissions for 2024</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/whats-the-difference-between-adobe-premiere-and-after-effects-a-beginners-guide-for-2024/"><u>Whats the Difference Between Adobe Premiere and After Effects? A Beginners Guide for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

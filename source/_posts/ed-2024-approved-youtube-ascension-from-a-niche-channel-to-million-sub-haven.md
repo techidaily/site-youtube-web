@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Youtube Ascension  From a Niche Channel to Million-Sub Haven\""
-date: 2024-08-28T08:43:14.921Z
-updated: 2024-08-29T08:43:14.921Z
+date: 2024-12-11T22:47:58.199Z
+updated: 2024-12-12T18:55:42.042Z
 tags:
   - ai video
   - ai youtube
@@ -30,9 +30,17 @@ You’ve probably heard of stories about individuals who managed to find financi
 
 Jesse Ridgway is the owner of the vlog [McJuggerNuggets](https://www.youtube.com/user/McJuggerNuggets), which has grown to over 3.4 million subscribers. He makes enough money to live off of YouTube alone. Here is a case study of how he made his first $10,000 on YouTube:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Case Study of McJuggerNuggets
 
 ![Case Study McJugger Nuggets](https://images.wondershare.com/filmora/article-images/case-study-mcjugger-nuggets.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Jesse was one of the earliest YouTubers. He started his channel on December 9, 2006\. Jesse never guessed that he would make enough money to live off of the videos he was creating. Here are some of the ways that he monetized his channel:
 
@@ -82,11 +90,23 @@ Regular research into your target market will help you to create the trendiest n
 
 Timing and luck are definitely two of the biggest factors in becoming a success on YouTube. If you are willing to keep working and don’t get discouraged you will eventually earn profits.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Edit Your Videos with High-Quality Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -94,14 +114,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -110,8 +127,26 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/levating-audience-excitement-with-top-ideas/"><u>[New] Elevating Audience Excitement with Top Ideas</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/n-2024-auditory-artistry-access-to-excellent-dj-video-samples/"><u>[New] In 2024, Auditory Artistry Access to Excellent DJ Video Samples</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-smooth-integration-of-timestamps-into-desktopmobile-youtube-videos/"><u>[New] In 2024, Smooth Integration of Timestamps Into Desktop/Mobile YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-ultimate-guide-for-crafting-engaging-shareable-youtube-shorts/"><u>[New] In 2024, The Ultimate Guide for Crafting Engaging, Shareable YouTube Shorts</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-unlock-video-brilliance-through-advanced-chroma-techniques-11-steps/"><u>[New] In 2024, Unlock Video Brilliance Through Advanced Chroma Techniques (11 Steps)</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-delving-into-ffmpeg-unaltered-audio-extraction/"><u>[Updated] 2024 Approved Delving Into FFmpeg Unaltered Audio Extraction</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-brand-makeover-made-easy-revel-in-our-array-of-over-50-free-online-promotional-artwork-for-2024/"><u>[Updated] Brand Makeover Made Easy Revel in Our Array of over 50 Free Online Promotional Artwork for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-cut-to-perfection-10-premier-online-video-editors-ranked-for-2024/"><u>[Updated] Cut to Perfection 10 Premier Online Video Editors Ranked for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/89165139-updated-in-2024-thriving-as-a-novice-youtuber-sidestep-these-8-crucial-pitfalls/"><u>[Updated] In 2024, Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls!</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-sustainable-growth-developing-a-long-term-personal-brand-on-youtube/"><u>[Updated] Sustainable Growth Developing a Long-Term Personal Brand on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-visual-impact-mastering-thumbnail-dimensions/"><u>[Updated] YouTube Visual Impact Mastering Thumbnail Dimensions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-closing-your-vlog-right-top-6-free-youtube-outro-tools/"><u>2024 Approved Closing Your Vlog Right Top 6 Free YouTube Outro Tools</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-stolen-iphone-xs-in-different-conditionsin-drfone-by-drfone-ios/"><u>How To Unlock Stolen iPhone XS In Different Conditionsin | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-excellence-on-screen-the-top-15-in-stop-motion-cinema/"><u>In 2024, Excellence on Screen The Top 15 in Stop Motion Cinema</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aging-youtube-for-dynamic-instagram-stories/"><u>Leveraging YouTube for Dynamic Instagram Stories</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ate-your-path-to-prominence-a-precise-guide-to-youtubes-featured-listings-for-2024/"><u>Navigate Your Path to Prominence A Precise Guide to Youtube's Featured Listings for 2024</u></a></li>
+<li><a href="https://win-info.techidaily.com/passos-faceis-para-fazer-cuts-no-adobe-after-effects-tutoriais-completos/"><u>Passos Fáceis Para Fazer Cuts No Adobe After Effects - Tutoriais Completos</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-discreet-guide-to-job-hunting-while-retaining-your-present-role-insights-from-zdnet-experts/"><u>The Discreet Guide to Job Hunting While Retaining Your Present Role - Insights From ZDNet Experts</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-review-expert-insights-on-computer-components/"><u>Tom's Tech Review: Expert Insights on Computer Components</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

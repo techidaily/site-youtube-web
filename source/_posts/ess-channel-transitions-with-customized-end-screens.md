@@ -1,7 +1,7 @@
 ---
 title: "Seamless Channel Transitions with Customized End Screens"
-date: 2024-08-28T08:38:31.358Z
-updated: 2024-08-29T08:38:31.358Z
+date: 2024-12-12T03:12:16.711Z
+updated: 2024-12-13T09:17:12.144Z
 tags:
   - ai video
   - ai youtube
@@ -65,6 +65,10 @@ Those who do not have PhotoShop can use Taha Chimar’s end screen designs that 
 
 ![taha-chimar-youtube-end-screen](https://images.wondershare.com/filmora/article-images/taha-chimar-youtube-end-screen.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 To download, you will have to follow a URL link in the description box of the YouTube videos. Be careful, though, as a lot of the links lead to free hosting websites with pop-ups that can harm your computer if you are easily fooled by them.
 
 #### 4. SoapyEdits
@@ -81,6 +85,10 @@ Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
@@ -90,6 +98,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 1\. First, you have to sign up with an e-mail address
 
 ![create-outro-end-screen-with-canva-1](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
@@ -105,6 +117,10 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
@@ -117,11 +133,19 @@ Another way to get your YouTube end screens for free, of course, is to make them
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -129,14 +153,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,8 +166,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-stop-the-mist-secrets-to-a-clean-gopro-shot/"><u>[New] Stop the Mist Secrets to a Clean GoPro Shot</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-financial-impact-of-viewership-on-content-makers/"><u>[Updated] 2024 Approved The Financial Impact of Viewership on Content Makers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-channel-cash-crusade-harnessing-every-device-with-yt-studio/"><u>[Updated] Channel Cash Crusade Harnessing Every Device with YT Studio</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-free-youtube-intro-steps-and-template-guide/"><u>[Updated] Free YouTube Intro Steps and Template Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unraveling-the-mysteries-of-digital-content-optimization-on-youtube/"><u>[Updated] In 2024, Unraveling the Mysteries of Digital Content Optimization on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-speech-to-text-for-media/"><u>[Updated] Speech to Text for Media</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-starlight-and-storms-in-high-fidelity-hdr-sky-websites/"><u>2024 Approved Starlight and Storms in High Fidelity HDR Sky Websites</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/discover-the-musical-bliss-with-nest-audio-the-smart-speaker-tailored-for-avid-musicians/"><u>Discover the Musical Bliss with Nest Audio – The Smart Speaker Tailored for Avid Musicians</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-can-you-retrieve-deleted-facetime-pictures-find-out-here/"><u>How Can You Retrieve Deleted FaceTime Pictures? Find Out Here</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/humor-at-the-helm-can-artificial-intelligence-craft-funny-lines/"><u>Humor at the Helm: Can Artificial Intelligence Craft Funny Lines?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-nail-the-next-best-thing-youtube-studio-editing-mastery/"><u>In 2024, Nail the Next Best Thing YouTube Studio Editing Mastery</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-teacher-friendly-video-capture-options-reviewed/"><u>In 2024, Teacher-Friendly Video Capture Options Reviewed</u></a></li>
+<li><a href="https://common-error.techidaily.com/the-ultimate-troubleshooting-guide-for-stalled-torrent-downloads/"><u>The Ultimate Troubleshooting Guide for Stalled Torrent Downloads</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

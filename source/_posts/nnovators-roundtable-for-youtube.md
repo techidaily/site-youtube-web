@@ -1,7 +1,7 @@
 ---
 title: "[New] Innovators’ Roundtable for YouTube"
-date: 2024-12-02T08:18:57.806Z
-updated: 2024-12-07T04:44:21.119Z
+date: 2024-12-05T22:51:02.069Z
+updated: 2024-12-12T21:25:11.580Z
 tags:
   - ai video
   - ai youtube
@@ -57,7 +57,7 @@ There were some clues as to what the rest of the summit was like hiding amongst 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. A map of Dumbo
@@ -68,9 +68,17 @@ _Tess takes you to some of her favorite places in Dumbo._
 
 Dumbo is home to an interesting mix of ‘past’ and ‘future’. The creators who attended the summit probably had a lot of fun exploring it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. Post Cards
 
 One of the major benefits of attending this summit would have been networking with other creators, but because of how busy everyone was and how awkward it can be to arrange ‘bumping into’ someone YouTube created a way for creators to send each other notes. All they had to do was write a note on one of the postcards YouTube provided them with and stick it in one of the red mailboxes at the event. YouTube took care of making sure the person it was addressed to got it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 3\. S’well bottle
 
@@ -83,14 +91,10 @@ To help them relax after long days at the summit, YouTube provided creators with
 ![Branded slippers - 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-branded-slippers.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _thinknoodles wearing his YouTube slippers._
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Pins, pins, pins
 
@@ -102,10 +106,6 @@ A denim jacket with a play button on it was also in the box. The idea was that c
 
 _![Denim jacket- 2017 YouTube Creator Summit](https://images.wondershare.com/filmora/article-images/youtube-creator-summit-denim-jacket.jpg)_
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Hannah Hart posted this photo from a river cruise she and other YouTubers went on while in New York for the summit._
 
 Most creators here on Filmora are still trying to grow their channels, but one day I hope you’ll be able to attend an event like the YouTube Creator Summit and tell us all about it!
@@ -114,11 +114,11 @@ Want to join the YouTube Creator Summit in the future? We all know that there is
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
 
@@ -141,22 +141,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/nderstanding-the-legality-of-online-video-recordings/"><u>[New] Understanding the Legality of Online Video Recordings</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-sync-splice-and-spruce-pro-video-editing-in-one-tool/"><u>[Updated] 2024 Approved Sync, Splice & Spruce Pro Video Editing in One Tool</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/44959735-updated-charting-your-course-in-youtubing-dodge-these-top-8-common-missteps/"><u>[Updated] Charting Your Course in YouTubing Dodge These Top 8 Common Missteps!</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-comprehensible-guide-to-high-quality-audios-on-youtube/"><u>[Updated] Comprehensible Guide to High-Quality Audios on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-discover-the-best-12-free-and-paid-video-game-openings-for-yt-for-2024/"><u>[Updated] Discover the Best 12 Free and Paid Video Game Openings for YT for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-easy-peasy-automating-the-repetitive-view-of-youtube-videos/"><u>[Updated] Easy Peasy Automating the Repetitive View of YouTube Videos</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-how-to-make-and-convert-slow-motion-videos-on-iphone/"><u>[Updated] In 2024, How to Make and Convert Slow Motion Videos on iPhone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unlock-your-income-potential-youtube-studios-global-reach/"><u>[Updated] In 2024, Unlock Your Income Potential YouTube Studio's Global Reach</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-bringing-text-to-life-a-guide-to-dynamic-animation-methods/"><u>2024 Approved Bringing Text to Life A Guide to Dynamic Animation Methods</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-youtube-shorts-a-comprehensive-marketing-tool/"><u>2024 Approved YouTube Shorts A Comprehensive Marketing Tool</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/3-ways-to-track-tecno-camon-20-pro-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>3 Ways to Track Tecno Camon 20 Pro 5G without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/te-your-content-visibility-discover-6-thumbnail-designers-best-tools/"><u>Elevate Your Content Visibility - Discover 6 Thumbnail Designers' Best Tools</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/gpd-reveals-sneak-peek-of-revolutionary-dual-display-oled-laptop-a-new-contender-against-asus-zenbook-duo/"><u>GPD Reveals Sneak Peek of Revolutionary Dual-Display OLED Laptop, a New Contender Against Asus ZenBook Duo</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-from-apple-iphone-6s-to-samsung-simplified-guide-drfone-by-drfone-transfer-from-ios/"><u>How To Transfer From Apple iPhone 6s to Samsung Simplified Guide | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-on-poco-m6-pro-5g-by-drfone-android/"><u>In 2024, How to Bypass FRP on Poco M6 Pro 5G?</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/24-streamline-your-slides-with-youtube-videos-a-beginners-guide/"><u>In 2024, Streamline Your Slides with YouTube Videos - A Beginner's Guide</u></a></li>
-<li><a href="https://fox-where.techidaily.com/printer-friendly-iphone-contacts-made-easy-discover-four-proven-techniques/"><u>Printer-Friendly iPhone Contacts Made Easy - Discover Four Proven Techniques!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-constructive-communication-leads-to-more-subscribers/"><u>[New] In 2024, Constructive Communication Leads to More Subscribers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-from-novice-to-money-maker-on-youtube/"><u>[New] In 2024, From Novice to Money-Maker on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-how-to-structure-youtube-videos/"><u>[Updated] 2024 Approved How to Structure YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-what-is-filmora-certified-creative-program-and-how-to-become-an-fcc/"><u>[Updated] 2024 Approved What Is Filmora Certified Creative Program and How to Become an FCC</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-building-engagement-the-role-of-youtube-shorts-template-design-for-2024/"><u>[Updated] Building Engagement The Role of YouTube Shorts Template Design for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-gourmet-guides-leading-food-vloggers-online/"><u>[Updated] In 2024, Gourmet Guides Leading Food Vloggers Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elevate-video-exposure-mastering-the-art-of-appropriate-tags/"><u>2024 Approved Elevate Video Exposure Mastering the Art of Appropriate Tags</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-how-to-remove-black-bars-from-existing-youtube-videos/"><u>2024 Approved How to Remove Black Bars From Existing YouTube Videos?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210398609-9781667414218-consciencia-plena-maneja-tus-emociones-y-calma-tu-mente-con-consciencia/"><u>Consciencia plena - maneja tus emociones y calma tu mente con consciencia. | Free Book</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-remove-or-bypass-knox-enrollment-service-on-tecno-pova-5-pro-by-drfone-android/"><u>How To Remove or Bypass Knox Enrollment Service On Tecno Pova 5 Pro</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-phone-number-from-your-apple-id-from-your-apple-iphone-6s-plus-by-drfone-ios/"><u>How To Remove Phone Number From Your Apple ID from Your Apple iPhone 6s Plus?</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-google-chrome-from-tracking-your-location-on-samsung-galaxy-a14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Google Chrome from Tracking Your Location On Samsung Galaxy A14 4G? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-vivo-y100-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Vivo Y100 to Any iOS Devices | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-motorola-edge-40-pro-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Motorola Edge 40 Pro to Gmail | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/master-tips-for-preventing-tower-of-fantasy-pc-disruptions-and-crashes/"><u>Master Tips for Preventing Tower of Fantasy PC Disruptions and Crashes</u></a></li>
+<li><a href="https://os-tips.techidaily.com/step-by-step-guide-customizing-your-iphone-lock-screen-with-widgets/"><u>Step-by-Step Guide: Customizing Your iPhone Lock Screen with Widgets</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/asy-guide-to-youtube-to-avi-conversion-technology-for-2024/"><u>The Easy Guide to YouTube-to-AVI Conversion Technology for 2024</u></a></li>
 </ul></div>
 

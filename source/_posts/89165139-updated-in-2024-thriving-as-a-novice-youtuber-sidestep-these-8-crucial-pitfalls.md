@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Thriving as a Novice YouTuber? Sidestep These 8 Crucial Pitfalls!"
-date: 2024-12-05T00:04:37.371Z
-updated: 2024-12-06T19:04:04.819Z
+date: 2024-12-07T08:43:55.869Z
+updated: 2024-12-12T16:20:57.093Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,14 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Failing to have a long-term vision
@@ -48,7 +52,7 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. Choosing an ineffective custom URL
@@ -56,10 +60,6 @@ If you can think of the kind of content you’ll love to consistently create and
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
 
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
 
@@ -70,7 +70,7 @@ Big YouTubers can take advantage of non-searched, curiosity evoking titles like 
 As an example, let's suppose you vlogged your time backpacking around Europe last summer. Don't title your YouTube video "My Summer Backpacking Trip." Instead, title it "Going Up The Eiffel Tower | Beautiful View of Paris!" This way, all the people who are curious about visiting Paris, the Eiffel Tower, and seeing what the view is like from the top of the Eiffel Tower might find your video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 4\. Failing to have a thumbnail strategy
@@ -93,15 +93,15 @@ An important thing to do as a new YouTuber is engaging with your subscribers. So
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 7\. Not promoting with social media
 
 YouTube isn’t the only social media platform that people are spending their time on. People are spending their time on all kinds of different social media platforms, like Twitter, Facebook, and Instagram. The more content in all of these platforms that you create to promote your video, the more potential your video has to be seen by their users.
 
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 8\. Spamming comments
 
@@ -134,16 +134,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/oost-your-videos-with-these-youtube-seo-tools-for-2024/"><u>[New] Boost Your Videos With These YouTube SEO Tools for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-from-camera-to-chrome-youtube-shorts-video-upload-guide/"><u>[New] In 2024, From Camera to Chrome YouTube Shorts Video Upload Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-a-time-travelers-guide-to-youtube-queue-watch-from-end-to-start/"><u>[Updated] A Time Traveler’s Guide to YouTube Queue Watch From End to Start</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-the-ultimate-list-of-free-vfx-websites-for-2024/"><u>[Updated] The Ultimate List of FREE VFX Websites for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-strategies-to-purge-youtubes-video-buffer-list/"><u>2024 Approved Strategies to Purge YouTube's Video Buffer List</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/conversion-gratuite-du-fichier-aac-au-format-wav-sur-internet-movavi/"><u>Conversion Gratuite Du Fichier AAC Au Format WAV Sur Internet - Movavi</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/elite-choices-in-long-reach-wifi-routers-discover-the-top-picks-of-2eplust24/"><u>Elite Choices in Long-Reach WiFi Routers: Discover the Top Picks of 2E+t24</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/in-2024-account-liberation-freeing-your-fb-identity/"><u>In 2024, Account Liberation Freeing Your FB Identity</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-best-free-youtube-to-mp3-converters-you-should-know-onlinewinmac/"><u>In 2024, Best Free YouTube to MP3 Converters You Should Know [Online/Win/Mac]</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-infinix-smart-8-pro-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Infinix Smart 8 Pro To Phone | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/virtual-jogging-meets-reality-treadmill-evaluations/"><u>Virtual Jogging Meets Reality Treadmill Evaluations</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-high-end-hardware-unveiled-by-gaming-influencers/"><u>[New] In 2024, High-End Hardware Unveiled by Gaming Influencers</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-rejuvenate-your-pictures-the-most-powerful-10-online-edits/"><u>[New] Rejuvenate Your Pictures The Most Powerful 10 Online Edits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unlock-youtube-star-status-becoming-a-self-assured-vlogger/"><u>[Updated] In 2024, Unlock YouTube Star Status Becoming a Self-Assured Vlogger</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-optimize-your-content-youtube-seo-techniques-and-gadgets-for-2024/"><u>[Updated] Optimize Your Content YouTube SEO Techniques and Gadgets for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-generating-wealth-with-makeup-channels/"><u>2024 Approved Generating Wealth with Makeup Channels</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/conquer-online-battles-choosing-high-speed-champions-amongst-gaming-routers/"><u>Conquer Online Battles: Choosing High-Speed Champions Amongst Gaming Routers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/deep-into-the-world-of-creator-studio-for-2024/"><u>Dive Deep Into the World of Creator Studio for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-xiaomi-redmi-note-13-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Xiaomi Redmi Note 13 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-canvas-and-chroma-mastering-color-interaction/"><u>In 2024, Canvas and Chroma Mastering Color Interaction</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-from-commonplace-phones-to-cutting-edge-vr-headsets/"><u>In 2024, From Commonplace Phones to Cutting-Edge VR Headsets</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/in-2024-the-ultimate-guide-to-iphone-photo-watermarks-apps/"><u>In 2024, The Ultimate Guide to iPhone Photo Watermarks Apps</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/mastering-program-installation-management-expert-tips-from-yl-software/"><u>Mastering Program Installation Management - Expert Tips From YL Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/t-video-editor-for-2024/"><u>Pixart Video Editor for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/trabajando-con-av1-en-adobe-premiere-pro-posibilidades-de-transferencia-entre-archivos/"><u>Trabajando Con AV1 en Adobe Premiere Pro: Posibilidades De Transferencia Entre Archivos</u></a></li>
 </ul></div>
 
