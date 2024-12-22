@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Ignite Your Creative Spark  Scriptwriting Tips for YouTube Mastery for 2024\""
-date: 2024-12-09T18:18:38.526Z
-updated: 2024-12-13T05:50:43.968Z
+date: 2024-12-16T16:36:14.863Z
+updated: 2024-12-22T16:18:52.262Z
 tags:
   - ai video
   - ai youtube
@@ -41,12 +41,16 @@ You have a great idea for a video, but you’re just not sure how to express it 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Before You Write Your YouTube Script
 
 Here are some things to do before you start writing your script for YouTube:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 1\. Collect Ideas
 
@@ -60,29 +64,21 @@ Once you have gathered enough ideas for the YouTube video, the next step is to f
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Make sure that the script is well structured
 
@@ -106,6 +102,10 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -121,7 +121,7 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -145,18 +145,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-novel-vlog-talk-points-everyday/"><u>[Updated] 2024 Approved Novel Vlog Talk Points Everyday</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-exploring-easy-to-use-game-recording-and-edit-software-for-2024/"><u>[Updated] Exploring Easy-to-Use Game Recording & Edit Software for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-corrected-clandestine-miniature-video-absence/"><u>[Updated] In 2024, Corrected Clandestine Miniature Video Absence</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-influencer-collaborations-impacting-video-view-counts/"><u>2024 Approved Influencer Collaborations Impacting Video View Counts</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>Can I use iTools gpx file to catch the rare Pokemon On Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/deciding-on-fps-to-opt-for-30-or-go-for-a-sharp-60hz-for-2024/"><u>Deciding on FPS To Opt for 30 or Go For a Sharp 60Hz for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/find-and-download-compatible-broadcom-drivers-for-windows-11-8-or-windows-7-computers/"><u>Find and Download Compatible Broadcom Drivers for Windows 11, 8, or Windows 7 Computers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-ace-your-shots-top-cameras-and-lenses-for-youtubers/"><u>In 2024, Ace Your Shots Top Cameras & Lenses for YouTubers</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/in-2024-discover-the-best-top-rated-video-animation-apps-for-android-iphone-and-ipad/"><u>In 2024, Discover the Best Top-Rated Video Animation Apps for Android, iPhone, and iPad</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-infinix-note-30-drfone-by-drfone-virtual-android/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Infinix Note 30 | Dr.fone</u></a></li>
-<li><a href="https://driver-error.techidaily.com/troubleshoot-and-update-device-drivers-for-seamless-operation-across-windows-7-to-10-platforms-guide/"><u>Troubleshoot and Update Device Drivers for Seamless Operation Across Windows 7 to 10 Platforms [GUIDE]</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/troubleshooting-tips-resolving-the-reset-failed-there-was-an-issue-resetting-your-computer-alert/"><u>Troubleshooting Tips: Resolving the 'Reset Failed - There Was an Issue Resetting Your Computer' Alert</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/what-pokemon-evolve-with-a-dawn-stone-for-nokia-g310-drfone-by-drfone-virtual-android/"><u>What Pokémon Evolve with A Dawn Stone For Nokia G310? | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-tranquil-escapes-top-12-pc-titles/"><u>[New] 2024 Approved Tranquil Escapes Top 12 PC Titles</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/igital-dollars-earn-from-youtubers-in-8-ways/"><u>[New] Digital Dollars Earn From YouTubers in 8 Ways</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-get-hd-quality-quickly-enable-av1-in-youtube-settings/"><u>[New] In 2024, Get HD Quality Quickly Enable AV1 in YouTube Settings</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-breaking-the-mold-unique-anime-creatives-dominating-tiktok/"><u>[Updated] 2024 Approved Breaking the Mold Unique Anime Creatives Dominating TikTok</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-youtube-stream-mastery-top-rated-tech-and-devices-guide-for-creators/"><u>[Updated] 2024 Approved YouTube Stream Mastery Top-Rated Tech & Devices Guide for Creators</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-unlocking-professional-filming-on-windows-macos-ios/"><u>[Updated] In 2024, Unlocking Professional Filming on Windows, macOS, iOS</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-an-intro-to-discovering-youtube-studio-content-creators-dreamland/"><u>2024 Approved An Intro to Discovering YouTube Studio Content Creator's Dreamland</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-unveiling-youtubes-behind-the-scenes-editor-space/"><u>2024 Approved Unveiling YouTube's Behind-the-Scenes Editor Space</u></a></li>
+<li><a href="https://facebook.techidaily.com/behind-the-walls-facebooks-policies-now-visible-via-new-hq/"><u>Behind the Walls: Facebook's Policies Now Visible via New HQ</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-stepping-up-your-game-understanding-mcns-and-their-impact-on-creators/"><u>In 2024, Stepping Up Your Game Understanding MCNs and Their Impact on Creators</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/lost-messages-found-solutions-how-to-recover-any-phones-deleted-texts/"><u>Lost Messages, Found Solutions: How to Recover Any Phone's Deleted Texts</u></a></li>
 </ul></div>
 

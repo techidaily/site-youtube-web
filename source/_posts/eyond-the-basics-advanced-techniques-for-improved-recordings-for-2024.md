@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Beyond the Basics  Advanced Techniques for Improved Recordings for 2024\""
-date: 2024-12-09T20:05:11.297Z
-updated: 2024-12-12T23:19:18.252Z
+date: 2024-12-21T17:08:48.005Z
+updated: 2024-12-22T16:04:48.189Z
 tags:
   - ai video
   - ai youtube
@@ -50,14 +50,6 @@ Wondershare Filmora has great recording features that enable you to [record scre
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### **1\. Silence everything you don’t want your microphone to record**
 
 When you’re recording audio, you have to be more aware of the subtle sounds that drone on in your background. These sounds may include humming from machines with fans, buzzing from lights, and jingling from your pet’s collar. Observe your recording space and find ways to silence everything that you don’t want in your audio recording.
@@ -65,6 +57,10 @@ When you’re recording audio, you have to be more aware of the subtle sounds th
 ### **2\. Put your mobile phone in airplane mode**
 
 Although it may be quite obvious to turn your phone’s ring tone off when you’re recording, it may not be as obvious to put your phone in airplane mode. When phones receive calls or perform searches as part of their background processes, they emit signals that can get picked up by your recording system. Avoid ruining good takes with unwanted sounds of phone signals by putting your phones in airplane mode.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **3\. Minimize echo**
 
@@ -81,7 +77,7 @@ As much as you try to control all the noise in your surroundings, your greatest 
 Need help with deciding on a microphone to buy? Check out our recommended list of microphones.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **6\. Adjust your levels**
@@ -89,7 +85,7 @@ Need help with deciding on a microphone to buy? Check out our recommended list o
 Before pressing the record button, see how loudly your microphone picks up the sound you wish to record. Adjust your levels (sensitivity of your microphone) until the sound sits in between -6 dBs and -12dBs. This range gives the source of your sound some room to get louder without the recorded audio getting clipped. When you first listen to audio recorded within this range, it may sound very quiet. No need to worry though because you can increase the volume later in editing.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### **7\. Start with a sound cue if you’re planning to do some syncing in post**
@@ -99,6 +95,10 @@ If you’re recording separate audio that you plan to sync to your video later i
 ### **8\. Get close to the sound**
 
 Unless you’re aiming to record ambient sound, bring your microphone close to the source of sound you are wanting to record. The closer your microphone is to the source of sound, the lower your sensitivity setting can be on your microphone. As a result of lowering your levels, sounds you are not meaning to record will also sound fainter.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **9\. ADR**
 
@@ -111,7 +111,7 @@ Remember to record ambient sound or “room tone.” You can use these recording
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -135,21 +135,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ritical-game-analysis-from-top-creators/"><u>[New] Critical Game Analysis From Top Creators</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-in-2024-top-free-easy-to-use-srt-translation-services-explored/"><u>[New] In 2024, Top Free, Easy-to-Use SRT Translation Services Explored</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-realize-your-vision-a-comprehensible-list-of-3d-animation-software-for-2024/"><u>[New] Realize Your Vision A Comprehensible List of 3D Animation Software for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-art-of-turning-youtube-media-on-its-head-for-2024/"><u>[New] The Art of Turning YouTube Media on Its Head for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-innovative-templates-for-zero-cost-youtube-intros/"><u>[Updated] 2024 Approved Innovative Templates for Zero-Cost YouTube Intros</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-maximize-your-youtube-impact-mastering-the-art-of-influential-channels-branding/"><u>2024 Approved Maximize Your YouTube Impact Mastering the Art of Influential Channels' Branding</u></a></li>
-<li><a href="https://location-social.techidaily.com/3-things-you-must-know-about-fake-snapchat-location-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>3 Things You Must Know about Fake Snapchat Location On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/forgot-your-htc-u23-lock-screen-pattern-pin-or-password-here-s-what-to-do-by-drfone-android-unlock-android-unlock/"><u>Forgot your HTC U23 lock screen pattern, PIN or password? Here’s what to do</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/game-day-to-hollywood-sports-video-success-story/"><u>From Game Day to Hollywood Sports Video Success Story</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Honor X50 GT? | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-how-to-bypass-frp-from-realme-note-50-by-drfone-android/"><u>In 2024, How to Bypass FRP from Realme Note 50?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-proven-picks-leading-capture-cards-for-enthusiast-streamers/"><u>In 2024, Proven Picks Leading Capture Cards for Enthusiast Streamers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/jargon-free-youtube-chats-for-2024/"><u>Join Jargon-Free YouTube Chats for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/overcoming-game-crashes-in-wolfenstein-ii-resolving-write-error-for-crash-files/"><u>Overcoming Game Crashes in Wolfenstein II - Resolving Write Error for Crash Files</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-google-pixel-fold-drfone-by-drfone-virtual-android/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Google Pixel Fold | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/understanding-modern-communication-channels-insights-into-facebook-twitter-instagram-and-youtube/"><u>Understanding Modern Communication Channels: Insights Into Facebook, Twitter, Instagram & YouTube</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-comprehensive-motion-dynamics-synopsis-for-2024/"><u>[New] Comprehensive Motion Dynamics Synopsis for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tarting-with-a-bang-building-a-youtube-presence/"><u>[New] Starting with a Bang Building a YouTube Presence</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-top-30-trending-tiktok-anime-inspirations-for-2024/"><u>[New] Top 30 Trending TikTok Anime Inspirations for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-8-essential-tools-for-your-youtube-to-avi-needs/"><u>[Updated] In 2024, 8 Essential Tools for Your YouTube-to-AVI Needs</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-tips-for-a-full-screen-facebook-video-experience/"><u>[Updated] In 2024, Tips for a Full-Screen Facebook Video Experience</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultimate-6-tech-for-subtitle-creation-in-video/"><u>[Updated] Ultimate 6 Tech for Subtitle Creation in Video</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-crafting-impactful-youtube-channel-logo-tips/"><u>2024 Approved Crafting Impactful YouTube Channel Logo Tips</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-your-essential-guide-to-unmissable-gaming-adventures/"><u>2024 Approved Your Essential Guide to Unmissable Gaming Adventures</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/best-quality-hd-screensaver-recorders/"><u>Best Quality HD Screensaver Recorders</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-compelling-content-with-personalized-video-setups-for-2024/"><u>Creating Compelling Content with Personalized Video Setups for 2024</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/digital-music-layering-and-editing-suite-for-2024/"><u>Digital Music Layering & Editing Suite for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/te-your-gaming-experience-on-youtube/"><u>Elevate Your Gaming Experience on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-revamp-your-video-exposure-on-youtube-with-these-simple-steps/"><u>In 2024, Revamp Your Video Exposure on YouTube with These Simple Steps</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-the-non-functional-onikuma-headset-mic-solution-found/"><u>Troubleshooting the Non-Functional Onikuma Headset Mic - Solution Found</u></a></li>
 </ul></div>
 

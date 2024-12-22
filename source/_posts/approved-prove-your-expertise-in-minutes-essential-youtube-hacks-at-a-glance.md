@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Prove Your Expertise in Minutes  Essential YouTube Hacks at a Glance\""
-date: 2024-12-10T08:48:31.894Z
-updated: 2024-12-13T08:39:27.539Z
+date: 2024-12-15T16:03:17.946Z
+updated: 2024-12-22T17:11:46.917Z
 tags:
   - ai video
   - ai youtube
@@ -38,7 +38,7 @@ With that said, the following two-columned tables give you detailed information 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 1: YouTube Playback Hotkeys
@@ -69,6 +69,10 @@ If you’re watching videos on YouTube mobile app, you can use double-tap on the
 
 Long press the Video Player and swipe right will navigate the video forward; and long press the video player and wwipe left will navigate the video backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 3: Manage Playback Speed
 
 This category contains information on increasing or decreasing the playback speed of a YouTube video:
@@ -90,10 +94,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -105,7 +105,7 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↓'               | Decrease volume by 5% |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Category 6: Switching Between Screen Modes
@@ -134,6 +134,10 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '-' (Minus Key on Keyboard) | Decrease font size                                    |
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -146,10 +150,6 @@ So, when you press the Shift+? on YouTube, you will see a full list of shortcuts
 
 ![YouTube Shortcut List](https://images.wondershare.com/filmora/article-images/youtube-keyboard-shortcuts-list.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Conclusion**
 
 Watching videos on YouTube is fun, and you can enjoy the clips, movies, tutorials, etc. more if you are well-aware of the important shortcut keys. This not only helps you navigate through the videos faster but also gives you relief from the additional efforts that you would otherwise have to make while grabbing the mouse, and then looking for and using the correct option.
@@ -159,7 +159,7 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -185,18 +185,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-how-to-for-controlling-youtube-playback-speed/"><u>[New] 2024 Approved The Ultimate How-To for Controlling YouTube Playback Speed</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/irectly-stream-google-meet-youtube-edition-steps/"><u>[New] Directly Stream Google Meet - YouTube Edition Steps</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-essential-insights-into-top-10-no-cost-open-source-video-communication-tools-for-2024/"><u>[New] Essential Insights Into Top 10 No-Cost, Open Source Video Communication Tools for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-ultimate-checklist-for-new-channels/"><u>[Updated] 2024 Approved The Ultimate Checklist for New Channels</u></a></li>
-<li><a href="https://extra-support.techidaily.com/updated-mastering-close-up-cinematography-through-zooming/"><u>[Updated] Mastering Close-Up Cinematography Through Zooming</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-quick-pexels-tips-for-visual-explorers-for-2024/"><u>[Updated] Quick Pexels Tips for Visual Explorers for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-webcams-that-win-top-picks-for-youtube-stream-success/"><u>[Updated] Webcams that Win Top Picks for YouTube Stream Success</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-magix-photography-control-an-in-depth-review/"><u>2024 Approved MAGIX Photography Control An In-Depth Review</u></a></li>
-<li><a href="https://win-able.techidaily.com/accelerating-gameplay-tips-for-fixing-prolonged-loading-cycles-in-fallout-4/"><u>Accelerating Gameplay: Tips for Fixing Prolonged Loading Cycles in Fallout 4</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/amd-sata-controller-driver-download-for-windows/"><u>AMD SATA Controller Driver Download for Windows</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-bebop-unleashed-the-parrots-aerial-showcase-review/"><u>In 2024, Bebop Unleashed The Parrot's Aerial Showcase Review</u></a></li>
-<li><a href="https://win-dash.techidaily.com/lighter-than-air-craft/"><u>Lighter than Air Craft</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nedit-pro-for-2024/"><u>VisionEdit Pro for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-decode-your-youtube-preferences-with-these-6-fan-favorite-questionnaires/"><u>[New] 2024 Approved Decode Your YouTube Preferences with These 6 Fan-Favorite Questionnaires</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-how-to-be-a-beauty-guru-on-youtube-beauty-vlogger-set-up/"><u>[New] 2024 Approved How To Be A Beauty Guru on YouTube Beauty Vlogger Set Up</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-how-to-seamlessly-upload-youtube-videos-to-facebook-feed/"><u>[New] 2024 Approved How to Seamlessly Upload YouTube Videos to Facebook Feed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-navigating-youtubes-queue-with-precision-a-comprehensive-tutorial/"><u>[New] 2024 Approved Navigating YouTube's Queue with Precision A Comprehensive Tutorial</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-revenue-revolution-unlocking-the-potential-of-your-youtube-channel-on-mobile/"><u>[New] 2024 Approved Revenue Revolution Unlocking the Potential of Your YouTube Channel on Mobile</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-a-guide-to-the-best-tools-for-shortening-video-content-online-for-2024/"><u>[New] A Guide to the Best Tools for Shortening Video Content Online for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-refining-online-discussions-in-google-meet/"><u>[Updated] 2024 Approved Refining Online Discussions in Google Meet</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/convert-mb4-file-to-mkv-format-free-converter-by-movavi/"><u>Convert MB4 File to MKV Format - Free Converter by Movavi</u></a></li>
+<li><a href="https://network-issues.techidaily.com/customize-windows-11-screen-resolution/"><u>Customize Windows 11 Screen Resolution</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/elite-cyber-retailers-for-perfectly-tailored-presents/"><u>Elite Cyber Retailers for Perfectly Tailored Presents</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-nokia-g22-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Nokia G22 to PC? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-nokia-c210-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Nokia C210 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-picks-of-youtubes-snackable-shorter-videos-free-for-2024/"><u>Prime Picks of YouTube's Snackable Shorter Videos (FREE) for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/will-ispoofer-update-on-realme-c53-drfone-by-drfone-virtual-android/"><u>Will iSpoofer update On Realme C53 | Dr.fone</u></a></li>
 </ul></div>
 

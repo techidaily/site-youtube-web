@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Beyond VidCon - A Guide to the Most Important YouTube Events\""
-date: 2024-08-28T08:36:43.326Z
-updated: 2024-08-29T08:36:43.326Z
+date: 2024-12-19T16:02:47.751Z
+updated: 2024-12-22T16:45:49.854Z
 tags:
   - ai video
   - ai youtube
@@ -52,6 +52,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
 VidCon was founded by the Vlogbrothers in 2010 as a place for internet friends to meet in real life.
@@ -79,6 +83,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/umvX4ZdWbxk?si=tPXL0-Kzf9SQaY8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -138,6 +146,10 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -149,6 +161,10 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -188,6 +204,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -218,14 +238,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -234,8 +251,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/levate-your-traffic-ethically-youtubes-best-practices-for-2024/"><u>[New] Elevate Your Traffic Ethically YouTube's Best Practices for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-unveiling-the-secrets-to-making-spectacular-haul-videos/"><u>[New] In 2024, Unveiling the Secrets to Making Spectacular Haul Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/erfecting-yt-thumbnails-quick-and-simple-guide-for-2024/"><u>[New] Perfecting YT Thumbnails Quick & Simple Guide for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-innovative-strategies-for-top-10-ig-grid-design-software/"><u>[Updated] 2024 Approved Innovative Strategies for Top 10 IG Grid Design Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-masters-choice-the-ultimate-collection-of-downloader-tools/"><u>[Updated] In 2024, Master's Choice The Ultimate Collection of Downloader Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-prime-video-performance-tracer-in-youtube-landscape/"><u>[Updated] In 2024, Prime Video Performance Tracer in YouTube Landscape</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-power-of-video-enhancer-22-for-professionals/"><u>[Updated] Unveiling the Power of Video Enhancer 2.2 for Professionals</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mac-users-launch-your-own-sports-videography-hub/"><u>2024 Approved Mac Users Launch Your Own Sports Videography Hub</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-select-from-the-leading-7-android-apps-to-eradicate-ads/"><u>2024 Approved Select From the Leading 7 Android Apps to Eradicate Ads</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/comprehensive-guide-finding-and-installing-insignias-usb-to-vga-controller-software/"><u>Comprehensive Guide: Finding & Installing Insignia's USB to VGA Controller Software</u></a></li>
+<li><a href="https://fox-pages.techidaily.com/custom-action-sequence-design-optimizing-your-unique-user-experience/"><u>Custom Action Sequence Design: Optimizing Your Unique User Experience</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/fixed-it-how-to-successfully-uninstall-amd-graphics-drivers-in-windows-operating-systems/"><u>Fixed It! How to Successfully Uninstall AMD Graphics Drivers in Windows Operating Systems</u></a></li>
+<li><a href="https://techtrends.techidaily.com/how-to-remove-password-in-windows-10-easily/"><u>How to Remove Password in Windows 10. Easily!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-engaging-viewers-at-the-end-of-a-yt-video/"><u>In 2024, Engaging Viewers at the End of a YT Video</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-pro-choice-top-picks-of-10-premium-vimeo-video-download-tools/"><u>In 2024, Pro Choice Top Picks of 10 Premium Vimeo Video Download Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ts-to-effective-video-tagging-revealed-here/"><u>Secrets to Effective Video Tagging Revealed Here</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/the-most-effective-gamingcomputer-extension-mats-of-202er/"><u>The Most Effective Gaming/Computer Extension Mats of 202Er</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->

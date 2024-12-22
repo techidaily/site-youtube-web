@@ -1,7 +1,7 @@
 ---
 title: "\"From Novice to Pro  How to Evade the Most Critical 8 Mistakes on YouTube for 2024\""
-date: 2024-12-08T21:29:57.351Z
-updated: 2024-12-13T05:32:43.144Z
+date: 2024-12-21T16:01:11.543Z
+updated: 2024-12-22T16:52:51.289Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ In the ten years that I’ve been a YouTuber, I’ve made a lot of mistakes. I l
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###  
 
 ### 1\. Failing to have a long-term vision
@@ -43,6 +47,10 @@ One common mistake that a lot of new YouTubers make is failing to have a long-te
 
 If you can think of the kind of content you’ll love to consistently create and share in the long-run, you’ll not only be able to narrow down your brand and effectively communicate to your audience who you are and what your channel is all about, but you’ll also have a better idea on what to put out next.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Choosing an ineffective custom URL
 
 Another mistake I made with my first YouTube channel was choosing an ineffective custom URL. Because my last name is Kim, I wanted to make my custom URL “YouTube.com/kimagination.” But it wasn’t available. So, I took “kimaginati0n” with a zero where the “o” should be. I thought it was a good idea back then but it was a terrible idea.
@@ -50,7 +58,7 @@ Another mistake I made with my first YouTube channel was choosing an ineffective
 Choose a custom URL with words that can’t be confused with other similar-sounding words. For consistency across all your different social media accounts, try to choose a custom URL that matches the usernames of all your other social media channels. If the username you want isn’t available, then keep on trying to come up with a good name that is available. When you’ve secured the same username across all your different social media channels, you can then very simply promote yourself and all your social media channels by displaying just the social media icons followed by your one username.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 3\. Coming up with titles that won't get searched
@@ -75,19 +83,11 @@ New YouTubers often make the mistake of having weak intros. Starting at the begi
 
 To read more on how some of the most successful YouTubers effectively do their intros, check out my blogpost on “[How To Edit YouTube Videos Like a YouTuber](https://tools.techidaily.com/wondershare/filmora/download/).”
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Forgetting to engage with subscribers
 
 An important thing to do as a new YouTuber is engaging with your subscribers. Some new YouTubers, though, are so focused and busy with the production side of things that they forget to do the community side of things, including responding to comments. By not responding to comments as a new YouTuber, you hurt your potential to get more comments consistently from your subscribers. If your video’s comments section is very active, YouTube ranks your video higher in the videos it recommends to viewers.
 
 Connecting with your audience shouldn’t just be limited to YouTube either. Use your other social media channels to connect with your audience as well.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. Not promoting with social media
 
@@ -96,7 +96,7 @@ YouTube isn’t the only social media platform that people are spending their ti
 New YouTubers sometimes forget to promote their videos and channel using other social media platforms. Consequently, they miss out on the opportunity to get views from multiple sources of social media.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 8\. Spamming comments
@@ -110,7 +110,7 @@ Spam comments annoy YouTubers. It would be much more beneficial to your channel 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -134,20 +134,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/he-most-essential-5-earbuds-for-gaming-for-2024/"><u>[New] The Most Essential 5 Earbuds for Gaming for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/imely-tweets-triumph-in-the-youtube-landscape-for-2024/"><u>[New] Timely Tweets Triumph in the YouTube Landscape for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nlock-8-youtube-fitness-ideas-for-viewers-active-participation-for-2024/"><u>[New] Unlock 8 YouTube Fitness Ideas for Viewers' Active Participation for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-cutting-techniques-for-sports-entertainment-films/"><u>[Updated] 2024 Approved Cutting Techniques for Sports Entertainment Films</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-loop-like-a-pro-detailed-methods-for-youtube-enthusiasts/"><u>[Updated] 2024 Approved Loop Like a Pro Detailed Methods for YouTube Enthusiasts</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-speed-up-photobooks-instructions-for-faster-google-collage-creation/"><u>[Updated] 2024 Approved Speed Up Photobooks Instructions for Faster Google Collage Creation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-youtube-movie-maker-from-beginner-to-pro-edition/"><u>2024 Approved YouTube Movie Maker From Beginner to Pro Edition</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-htc-u23-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset HTC U23 | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1726220310451-m4a-webm-movavi/"><u>在线无成本将 M4A 转换为 WebM - 利用 Movavi 媒体格式转换器</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/deep-dive-into-lg-bp350-display-technology/"><u>Deep Dive Into LG BP350 Display Technology</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/uide-zero-cost-youtube-intros-and-template-usage-for-2024/"><u>DIY Guide Zero Cost YouTube Intros & Template Usage for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/elevate-your-ig-videos-by-infusing-background-beats-a-comprehensive-guide/"><u>Elevate Your IG Videos by Infusing Background Beats - A Comprehensive Guide</u></a></li>
-<li><a href="https://win11.techidaily.com/how-artificial-intelligence-is-revolutionizing-windows-software/"><u>How Artificial Intelligence Is Revolutionizing Windows Software</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/in-2024-trustworthy-tactics-growing-your-youtube-channel-by-a-million-steps/"><u>In 2024, Trustworthy Tactics Growing Your YouTube Channel by a Million Steps</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Honor X9b? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-achieve-more-views-tailoring-and-scaling-youtube-images/"><u>[New] 2024 Approved Achieve More Views Tailoring and Scaling YouTube Images</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-from-video-to-music-youtube-to-mp3-on-macos/"><u>[New] 2024 Approved From Video to Music YouTube to MP3 on MacOS</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-gain-money-on-youtube-understanding-required-number-of-views/"><u>[New] 2024 Approved Gain Money on YouTube Understanding Required Number of Views</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-get-1000-subscribers-for-your-youtube-channel/"><u>[New] 2024 Approved Get 1000 Subscribers for Your YouTube Channel</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-pc-masterys-essential-list-for-video-download-enthusiasts/"><u>[New] 2024 Approved PC Mastery's Essential List for Video Download Enthusiasts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-post-youtube-video-on-the-best-days-to-get-more-view/"><u>[New] 2024 Approved Post Youtube Video on the Best Days to Get More View</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-expert-tips-to-perfectly-utilize-instagrams-sound-stickers-for-2024/"><u>[Updated] Expert Tips to Perfectly Utilize Instagram's Sound Stickers for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-ultimate-budget-friendly-viewer-contests/"><u>[Updated] In 2024, Ultimate Budget-Friendly Viewer Contests</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-high-end-methods-for-monitoring-and-recording-pc-sounds/"><u>2024 Approved High-End Methods for Monitoring and Recording PC Sounds</u></a></li>
+<li><a href="https://howto.techidaily.com/6-fixes-to-unfortunately-whatsapp-has-stopped-error-popups-on-nubia-z50-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Fixes to Unfortunately WhatsApp has stopped Error Popups On Nubia Z50 Ultra | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-your-youtube-presence-with-personalized-annotations-and-card-integration-for-2024/"><u>Boost Your YouTube Presence with Personalized Annotations and Card Integration for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-or-see-text-messages-what-can-you-do-with-life360-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>Can Life360 Track Or See Text Messages? What Can You Do with Life360 On Vivo Y100? | Dr.fone</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/crafting-memes-that-stand-out-the-9gag-way-for-2024/"><u>Crafting Memes that Stand Out The 9GAG Way for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/enhancing-gaming-experience-by-fixing-freezing-glitches-in-code-veam/"><u>Enhancing Gaming Experience by Fixing Freezing Glitches in Code Veam</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/game-changing-homes-in-blocktown-for-2024/"><u>Game Changing Homes in Blocktown for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/get-a-lightning-fast-safari-browser-on-your-iphone-using-these-easy-4-techniques/"><u>Get a Lightning-Fast Safari Browser on Your iPhone Using These Easy 4 Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-expansion-youtube-channels-boosting-brainpower-for-2024/"><u>Rapid Expansion YouTube Channels Boosting Brainpower for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-to-manage-video-watcher-restrictions-on-youtube/"><u>Steps to Manage Video Watcher Restrictions on Youtube</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/understanding-standard-configuration-exploring-default-control-panel-options-with-yl-computing/"><u>Understanding Standard Configuration: Exploring Default Control Panel Options with YL Computing</u></a></li>
 </ul></div>
 

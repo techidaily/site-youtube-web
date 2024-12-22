@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Mastering YouTube's Video Comment Features"
-date: 2024-08-28T08:32:45.373Z
-updated: 2024-08-29T08:32:45.373Z
+date: 2024-12-18T16:54:40.646Z
+updated: 2024-12-22T16:40:11.125Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,10 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 3: Turn Off Comments
 
 From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
@@ -63,6 +67,10 @@ Use the method explained above to get to the channel’s **Advanced settings** b
 Click the **Settings** icon from the bottom of the left pane one more time. On the **Settings** box, go to the **Upload defaults** category from the left pane, and go to **Advanced settings** from the right. From the **Comment visibility** drop-down list under the **Comments** section in the right, choose your preferred comment allowance type, and click **SAVE** to allow the comments on the videos the channel has.
 
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
 
@@ -113,8 +121,9 @@ From under the **Audience** section in the right window of the **Video details**
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## FAQs About YouTube Comments
 
 #### 1\. Why can’t I comment on the YouTube video?
@@ -132,14 +141,9 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -155,22 +159,20 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +181,26 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/hythmic-explorations-the-essential-15-videos-for-musicians-for-2024/"><u>[New] Rhythmic Explorations The Essential 15 Videos for Musicians for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-eco-effect-filmmaking-youtubes-guide-to-green-magic/"><u>[Updated] 2024 Approved Eco-Effect Filmmaking YouTube's Guide to Green Magic</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-premium-youtube-insights-everything-you-must-know/"><u>[Updated] 2024 Approved Premium YouTube Insights Everything You Must Know</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-scale-up-your-youtube-audience-by-the-hundredfold/"><u>[Updated] 2024 Approved Scale Up Your YouTube Audience by the Hundredfold</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-exploring-8-truly-effective-video-marketing-strategies/"><u>[Updated] In 2024, Exploring 8 Truly Effective Video Marketing Strategies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-rapid-routines-to-disrupt-youtube-list-ordering/"><u>[Updated] In 2024, Rapid Routines to Disrupt YouTube List Ordering</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-mastering-youtube-audio-uploads/"><u>[Updated] Mastering YouTube Audio Uploads</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-twitdance-choreographed-videos-go-viral-online-for-2024/"><u>[Updated] TwitDance Choreographed Videos Go Viral Online for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/94750947-2024-approved-quick-and-easy-channels-personalize-your-youtube-url-now/"><u>2024 Approved Quick and Easy Channels Personalize Your YouTube URL Now!</u></a></li>
+<li><a href="https://common-error.techidaily.com/aoc-monitor-malfunction-on-windows-10-solutions-for-a-fixed-display-issue/"><u>AOC Monitor Malfunction on Windows 10 - Solutions for a Fixed Display Issue</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/experience-unlimited-hd-movie-and-tv-show-playback-with-daplayer-your-free-premium-digital-media-softwares/"><u>Experience Unlimited HD Movie & TV Show Playback with DAPlayer: Your Free Premium Digital Media Softwares!</u></a></li>
+<li><a href="https://win-advanced.techidaily.com/gratis-5-alami-terbaik-bagi-menyusun-clone-ssd-rencana-lebih-simpel-untuk-mengubah-hdd-menjadi-ssd-dengan-wajib-bahan-kupas/"><u>Gratis 5 Alami Terbaik Bagi Menyusun Clone SSD: Rencana Lebih Simpel Untuk Mengubah HDD Menjadi SSD Dengan Wajib Bahan Kupas</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-different-methods-to-unlock-your-iphone-xs-drfone-by-drfone-ios/"><u>In 2024, Different Methods To Unlock Your iPhone XS | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/instantaneous-accurate-image-browser-win11/"><u>Instantaneous, Accurate Image Browser Win11</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/1726027162755-mp4/"><u>MP4動画を最高品質で切り取るテクニック: 劣化なし・再エンコードなし</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ears-predictions-rendered-in-infographics-for-2024/"><u>The Year's Predictions Rendered in Infographics for 2024</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-lava-storm-5g-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Lava Storm 5G? | Dr.fone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-5-gaming-smartphones-features-and-reviews-zdnets-expert-picks/"><u>Top 5 Gaming Smartphones - Features & Reviews: ZDNet's Expert Picks</u></a></li>
+</ul></div>
 

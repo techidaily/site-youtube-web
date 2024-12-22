@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Capturing the Best Visuals in Vlogs"
-date: 2024-12-07T06:16:54.236Z
-updated: 2024-12-13T06:28:47.358Z
+date: 2024-12-16T16:23:31.505Z
+updated: 2024-12-22T16:57:54.839Z
 tags:
   - ai video
   - ai youtube
@@ -37,6 +37,10 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
 The brightest source of light is also known as the **key light** which need to be high quality. A window will work, but if you do not have access to one where you are filming then consider an LED panel light or a softbox light like the ones used in portrait photography.
@@ -50,13 +54,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -86,7 +90,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -95,10 +99,6 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,20 +130,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-best-free-downloader-turn-youtube-audio-into-premium-mp3s/"><u>[New] 2024 Approved Best Free Downloader Turn YouTube Audio Into Premium MP3s</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-engaging-viewers-best-practices-and-pitfalls-in-dayly-blogging/"><u>[New] 2024 Approved Engaging Viewers Best Practices & Pitfalls in Dayly Blogging</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-decoding-steps-to-access-your-channels-eyeballs/"><u>[Updated] 2024 Approved Decoding Steps to Access Your Channel's Eyeballs</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-engage-and-inspire-viewers-animated-subscribers-in-filmora-explained/"><u>[Updated] 2024 Approved Engage and Inspire Viewers - Animated Subscribers in Filmora Explained</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-android-developers-choice-premier-tools-for-extracting-fb-videos-for-2024/"><u>[Updated] Android Developer's Choice Premier Tools for Extracting FB Videos for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-dramatic-footage-showdown-hero5-against-star/"><u>2024 Approved Dramatic Footage Showdown Hero5 Against Star</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-mastering-nfts-a-novices-quick-start-strategy/"><u>2024 Approved Mastering NFTs A Novice's Quick-Start Strategy</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/creating-compelling-call-to-actions-utilizing-three-critical-copy-techniques-for-2024/"><u>Creating Compelling Call-To-Actions Utilizing Three Critical Copy Techniques for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-9-powerful-youtube-video-downloader-for-android/"><u>In 2024, 9 Powerful YouTube Video Downloader for Android</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-cutting-edge-professional-guide-to-youtube-editing/"><u>In 2024, Cutting Edge Professional Guide to YouTube Editing</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-a-flash-streamlined-techniques-for-cutting-images-online/"><u>In a Flash Streamlined Techniques for Cutting Images Online</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/instructions-for-windows-11-rgb-lighting/"><u>Instructions for Windows 11 RGB Lighting</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/e-methods-for-youtube-to-mp4-conversion/"><u>Secure Methods for Youtube-to-MP4 Conversion</u></a></li>
-<li><a href="https://common-error.techidaily.com/solved-how-to-enable-bluetooth-detection-on-windows-device-manager/"><u>Solved: How to Enable Bluetooth Detection on Windows Device Manager</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ise-strategies-building-a-playlist-on-youtube/"><u>Stepwise Strategies Building a Playlist on YouTube</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-blitzing-through-images-on-win11/"><u>[New] Blitzing Through Images on Win11</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-audio-conversion-made-simple-youtube-to-mp3-mac-edition/"><u>[New] In 2024, Audio Conversion Made Simple YouTube to MP3, Mac Edition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-strike-gold-on-youtube-peak-hours-guide/"><u>[Updated] In 2024, Strike Gold on YouTube Peak Hours Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-partner-up-strategies-optimal-selection-for-youtube-teams/"><u>[Updated] Partner Up Strategies Optimal Selection for YouTube Teams</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-speedy-resizing-your-youtube-videos-for-mac-view/"><u>[Updated] Speedy Resizing Your Youtube Videos for Mac View</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unravel-the-revenue-riddle-googles-guided-triple-steps-to-youtube-income-analysis/"><u>[Updated] Unravel the Revenue Riddle Google's Guided Triple Steps to YouTube Income Analysis</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-basic-steps-to-hassle-free-high-dynamic-range-hdr/"><u>2024 Approved Basic Steps to Hassle-Free High Dynamic Range (HDR)</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-how-to-smoothly-incorporate-snap-camera-into-your-meet-calls/"><u>2024 Approved How to Smoothly Incorporate Snap Camera Into Your Meet Calls</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-insider-look-at-youtube-revenue-policies/"><u>2024 Approved Insider Look at YouTube Revenue Policies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/it-alternatives-for-finding-youtube-sponsorships-for-2024/"><u>FameBit Alternatives for Finding YouTube Sponsorships for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-8-to-an-older-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone 8 to an Older Version? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-send-and-fake-live-location-on-facebook-messenger-of-your-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How to Send and Fake Live Location on Facebook Messenger Of your Realme 12 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-auto-play-youtube-iphoneandroid-no-notification/"><u>In 2024, Auto-Play YouTube IPhone/Android, No Notification</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-zte-nubia-flip-5g-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For ZTE Nubia Flip 5G</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-elite-insight-engine-highest-chart-tracker/"><u>In 2024, Elite Insight Engine Highest Chart Tracker</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-professional-edge-adding-letterbox-frame-to-your-fb-videos/"><u>In 2024, Professional Edge Adding Letterbox Frame to Your FB Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/mastering-social-media-metrics-the-igtv-hashtag-connection/"><u>Mastering Social Media Metrics The IGTV Hashtag Connection</u></a></li>
 </ul></div>
 

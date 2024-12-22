@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Unleash Creativity with the Right Camera Lenses"
-date: 2024-12-12T01:38:37.199Z
-updated: 2024-12-13T11:16:07.803Z
+date: 2024-12-17T16:23:43.752Z
+updated: 2024-12-22T16:16:08.665Z
 tags:
   - ai video
   - ai youtube
@@ -45,10 +45,6 @@ In this article, I’m going to help you figure that out.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -64,10 +60,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 #### Telephoto Lens
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
 
@@ -91,6 +83,10 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -98,10 +94,6 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -118,17 +110,25 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Aperture
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -151,7 +151,7 @@ But do you even need a fast lens?
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Optical Image Stabilization
@@ -189,24 +189,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/nriching-vlog-topics-to-share-for-2024/"><u>[New] Enriching Vlog Topics to Share for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-breaking-down-the-elements-of-a-youtube-shorts-template/"><u>[New] In 2024, Breaking Down the Elements of a YouTube Shorts Template</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/avigating-the-best-freefire-tips-online-for-2024/"><u>[New] Navigating the Best FreeFire Tips Online for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/kyrocket-your-youtube-traffic-with-effective-outros/"><u>[New] Skyrocket Your YouTube Traffic with Effective Outros</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-the-5-prime-apps-for-clandestine-story-viewers-for-2024/"><u>[New] The 5 Prime Apps for Clandestine Story Viewers for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-proven-techniques-securely-archive-your-instagram-story/"><u>[Updated] 2024 Approved Proven Techniques Securely Archive Your Instagram Story</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-harness-the-power-of-imagery-top-7-free-thumbnail-makers-for-2024/"><u>[Updated] Harness the Power of Imagery Top 7 Free Thumbnail Makers for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-in-2024-digital-painting-prowess-picart-backdrop-exclusion-method/"><u>[Updated] In 2024, Digital Painting Prowess PicArt Backdrop Exclusion Method</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-masterclass-in-eliminating-youtube-content/"><u>[Updated] In 2024, Masterclass in Eliminating YouTube Content</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-skyline-growth-youtubes-top-tactics-with-video-outros/"><u>[Updated] In 2024, Skyline Growth YouTube's Top Tactics with Video Outros</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-inspiring-movies-to-ignite-your-inner-strength-for-2024/"><u>[Updated] Inspiring Movies to Ignite Your Inner Strength for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-elevate-viewership-integrating-twitch-and-facebook/"><u>2024 Approved Elevate Viewership Integrating Twitch and Facebook</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/approved-jumpstart-your-professional-filmmaking-exclusive-cost-free-green-screen-training-from-top-youtube-educators/"><u>2024 Approved Jumpstart Your Professional Filmmaking Exclusive, Cost-Free Green Screen Training From Top YouTube Educators</u></a></li>
-<li><a href="https://extra-information.techidaily.com/audiophiles-windows-companion-for-2024/"><u>Audiophile’s Windows Companion for 2024</u></a></li>
-<li><a href="https://win-answers.techidaily.com/fix-resolved-why-is-r-type-final-2-unstablecrashes-on-windows/"><u>Fix: [RESOLVED] Why Is R-Type Final 2 Unstable/Crashes on Windows?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-secrets-to-stellar-youtube-livestreaming-top-cameras/"><u>In 2024, Secrets to Stellar YouTube Livestreaming - Top Cameras</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/steps-to-develop-a-charismatic-vlog-script/"><u>Steps to Develop a Charismatic Vlog Script</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ditors-guide-to-powerful-notebooks-and-more/"><u>The Editor's Guide to Powerful Notebooks and More</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/toms-tech-insights-unveiling-the-latest-in-computer-hardware/"><u>Tom's Tech Insights: Unveiling the Latest in Computer Hardware</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-a-list-films-must-watch-channel-compilation/"><u>[New] 2024 Approved A-List Films Must-Watch Channel Compilation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-best-freefire-youtube-hashtags-and-tips-for-youtube-gaming-videos/"><u>[New] 2024 Approved Best FreeFire YouTube Hashtags and Tips For YouTube Gaming Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-eclipsing-fears-in-your-first-10-videos/"><u>[New] 2024 Approved Eclipsing Fears in Your First 10 Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-managing-a-day-job-and-your-thriving-youtube-channel/"><u>[New] 2024 Approved Managing a Day Job and Your Thriving YouTube Channel</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-optimal-video-sharing-experience-decide-between-tiktok-and-youtubes-shorts/"><u>[New] 2024 Approved Optimal Video-Sharing Experience Decide Between TikTok & YouTubes' Shorts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-pioneering-the-future-of-video-conferencing-with-google-meet-to-youtube/"><u>[New] 2024 Approved Pioneering the Future of Video Conferencing with Google Meet to YouTube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/new-reformat-and-rename-macs-image-file-transformation-for-2024/"><u>[New] Reformat and Rename Mac's Image File Transformation for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/different-methods-to-unlock-your-apple-iphone-6-by-drfone-ios/"><u>Different Methods To Unlock Your Apple iPhone 6</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/evaluating-the-microsoft-surface-laptop-n-a-balanced-take-on-its-shortcomings-insights-from-zdnet/"><u>Evaluating the Microsoft Surface Laptop N: A Balanced Take on Its Shortcomings - Insights From ZDNet</u></a></li>
+<li><a href="https://win-dash.techidaily.com/experience-better-gaming-and-stability-download-the-latest-nvidia-geforce-rtx-940mx-drivers-today/"><u>Experience Better Gaming and Stability: Download the Latest NVIDIA GeForce RTX 940MX Drivers Today</u></a></li>
+<li><a href="https://win-forum.techidaily.com/exploring-prominent-social-platforms-facebook-twitter-instagram-and-youtube-explained/"><u>Exploring Prominent Social Platforms: Facebook, Twitter, Instagram & YouTube Explained</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/and-easy-building-attractive-youtube-intros-without-expense-for-2024/"><u>Free & Easy Building Attractive YouTube Intros without Expense for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-more-top-education-streams-online/"><u>Learn More Top Education Streams Online</u></a></li>
+<li><a href="https://win-extraordinary.techidaily.com/selective-file-recovery-from-comprehensive-backups-with-aomei-backupper-tutorial/"><u>Selective File Recovery From Comprehensive Backups with AOMEI Backupper Tutorial</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-tutorial-on-creating-copies-of-your-existing-dvd-library/"><u>Step-by-Step Tutorial on Creating Copies of Your Existing DVD Library</u></a></li>
+<li><a href="https://extra-information.techidaily.com/taking-your-aerial-game-to-new-heights-with-dji-spark-reviewed/"><u>Taking Your Aerial Game to New Heights with DJI Spark Reviewed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-marketing-strategies-integrating-logowatermark-for-brand-identity-for-2024/"><u>Video Marketing Strategies Integrating Logo/Watermark for Brand Identity for 2024</u></a></li>
 </ul></div>
 
