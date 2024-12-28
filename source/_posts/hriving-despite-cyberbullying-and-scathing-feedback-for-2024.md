@@ -1,7 +1,7 @@
 ---
 title: "[New] Thriving Despite Cyberbullying and Scathing Feedback for 2024"
-date: 2024-08-23T02:45:00.945Z
-updated: 2024-08-24T02:45:00.945Z
+date: 2024-12-25T05:37:43.052Z
+updated: 2024-12-27T21:20:14.875Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/3dd5b17c533ab88ed9cc0f3b00c7a2aa3b7c864b4
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/3dd5b17c533ab88ed9cc0f3b00c7a2aa3b7c864b4
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ont-power-boosters-secrets-to-stellar-video-thumbnails-for-2024/"><u>[New] Font Power Boosters Secrets to Stellar Video Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-strategic-approach-to-dealing-with-youtube-copyright-claims/"><u>[New] In 2024, Strategic Approach to Dealing With YouTube Copyright Claims</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-editorsuite-ultimate-guide-in-depth-analysis-of-androvid/"><u>[Updated] EditorSuite Ultimate Guide – In-Depth Analysis of AndroVid</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-innovative-strategies-for-altering-pubg-speech-for-2024/"><u>[Updated] Innovative Strategies for Altering PUBG Speech for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-learn-the-role-youtube-shorts-music-plays/"><u>[Updated] Learn the Role YouTube Shorts Music Plays</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-discover-the-power-of-proportions-in-youtube-content-creation/"><u>2024 Approved Discover the Power of Proportions in YouTube Content Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elite-tech-for-saving-your-on-camera-video-memories/"><u>2024 Approved Elite Tech for Saving Your On-Camera Video Memories</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-wealth-of-words-carminati-ajay-and-his-money-making-mantra-on-youtube/"><u>2024 Approved The Wealth of Words Carminati (Ajay) and His Money-Making Mantra on Youtube</u></a></li>
+<li><a href="https://network-issues.techidaily.com/combat-monitor-refresh-rate-glitches/"><u>Combat Monitor Refresh Rate Glitches</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-brother-hl-l2380dw-driver-for-windows-10-and-11/"><u>Download Brother HL-L2380DW Driver for Windows 10 & 11</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/elite-selection-of-advanced-integrated-cooling-solutions-for-pcs/"><u>Elite Selection of Advanced Integrated Cooling Solutions for PCs</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-iphone-12-passcode-without-itunes-without-knowing-passcode-by-drfone-ios/"><u>How to Unlock iPhone 12 Passcode without iTunes without Knowing Passcode?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-wondering-the-best-alternative-to-hola-on-vivo-y100-5g-here-is-the-answer-drfone-by-drfone-virtual-android/"><u>In 2024, Wondering the Best Alternative to Hola On Vivo Y100 5G? Here Is the Answer | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/izing-video-success-on-youtube-long-term-creativity-commons-strategy-for-2024/"><u>Maximizing Video Success on YouTube Long-Term Creativity Commons Strategy for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/navigating-top-10-affordable-mobile-video-services-for-2024/"><u>Navigating Top 10 Affordable Mobile Video Services for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/sculpt-visual-jokes-for-giphy-space/"><u>Sculpt Visual Jokes for Giphy Space</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How To Light Your YouTube Video"
-date: 2024-08-23T02:44:11.364Z
-updated: 2024-08-24T02:44:11.364Z
+date: 2024-12-21T18:31:43.986Z
+updated: 2024-12-28T05:39:18.193Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Below, I’ll go into detail on how you can set up your lighting equipment to ma
 | Table of Contents [Using Light You Already Have](#USING-LIGHT-YOU-ALREADY-HAVE) [Window Lighting](#Window-Lighting)[Home Lighting](#Home-Lighting) [Home Studio Lighting](#HOME-STUDIO-LIGHTING) [Light Control](#Light-Control)[3-Point Lighting](#Three-Point-Lighting)[4-Point Lighting](#four-point-lighting) |
 | ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Using Light You Already Have
 
 Most beginner YouTubers light their videos with what they already have. That’s what I did to start as well. In the past, my video recording space consisted of natural sunlight coming from my window and ceiling light for times when the sunlight wasn’t strong enough.
@@ -49,9 +53,6 @@ Window lighting for me was especially difficult to work with because I live in a
 
 Above are two freeze frames from one of Daniel's past window-lit vlogs. Although these two frames are both from the same vlog, you can see that the image on the right looks brighter due to clearer skies at that moment. These varying amounts of light is what you will have to deal with if you choose to light your YouTube video with window lighting.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2. Home Lighting
 
 Home lighting is another source of light that many new YouTubers use. In the past, when my window light wasn’t strong enough to light my video recording space, I would turn on the ceiling light.
@@ -59,42 +60,36 @@ Home lighting is another source of light that many new YouTubers use. In the pas
 ![Mixed Lighting](https://images.wondershare.com/filmora/article-images/home-lighting-for-youtube-videos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Notice how the color of Daniel's skin looks much more orange here (above) than the color of the skin in the two side-by-side window lighting examples? The side of the face also appears to look bluer. This all happened because he mixed up different color temperatures shining out of the two lights (cooler window light and warmer ceiling light).
 
 Most home lighting is warmer in its color temperature. If you want to use your home lights without everything being orange-tinted, you’ll need to switch out your light bulbs for daytime LED light bulbs.
 
 Ceiling lights are also typically situated in the center of a room in order to light an entire room evenly. This is not likely to be the best location for your filming video. Since the ceiling light was directly above the face in the above example, you can see harder shadows beneath his cheeks.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Home Studio Lighting
 
 If you rather not deal with all the window and home lighting challenges, you can set up studio lighting in your home.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1. Light Control
 
 The first thing you’ll want to do to set up studio lighting in your home is to pick a room to film in and eliminate as much external lighting as you can. Use blinds, curtains, towels, or any thick fabric to block sunlight from shining into your room.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### 2. 3-Point Lighting
 
 The most common setup for studio lighting is 3-point lighting. For this kind of lighting you’ll need three lights: a key light, a fill light, and a back light (also called a hair light).
 
 ![3-Point Lighting](https://images.wondershare.com/filmora/article-images/youtube-lighting-3-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Out of the three lights, the key light should be the brightest. When it is positioned to the left of you (as shown in the diagram above) your right side will have shadows.
 
@@ -110,34 +105,29 @@ What you’ll need to ensure that your background is sufficiently lit is 4-point
 
 For more information on lighting equipment, check out my [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Touch Up YouTube Videos with Filmora
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is one of the best video editing software for YouTube beginners to start the YouTube channel. So, if you find the lighting isn't perfect after recording, you can use the Auto Color Enhancement feature in Filmora to adjust the color with one-click. Or, you can change the white balance, Light, color, and HSL manually. Filmora also features some presets and [LUTs templates](https://tools.techidaily.com/wondershare/filmora/download/), which allows you to apply pre-programmed effects to video for color correction faster.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3727260&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -146,4 +136,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-easeus-screen-recorder-featuresreview/"><u>[New] 2024 Approved EaseUS Screen Recorder Features|Review</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tilizing-youtubes-cc-to-enhance-your-videography/"><u>[New] Utilizing YouTube's CC to Enhance Your Videography</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-decoding-the-art-of-asmr-filmmaking-techniques/"><u>[Updated] 2024 Approved Decoding the Art of ASMR Filmmaking Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-turning-onoff-comments-with-ease-on-youtube-platform/"><u>[Updated] 2024 Approved Turning On/Off Comments with Ease on YouTube Platform</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-search-patterns-to-screenplay-crafting-videos-from-google-data-for-2024/"><u>[Updated] From Search Patterns to Screenplay Crafting Videos From Google Data for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-a-treasury-of-thought-provoking-youtube-content/"><u>[Updated] In 2024, A Treasury of Thought-Provoking YouTube Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-pioneering-profitability-your-videos-vs-competitors-success-stories/"><u>[Updated] In 2024, Pioneering Profitability Your Videos Vs. Competitors' Success Stories</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-decoding-the-earnings-algorithm-of-tseries-online-channel/"><u>2024 Approved Decoding the Earnings Algorithm of TSeries Online Channel</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-understanding-the-basics-of-vsco-filters/"><u>2024 Approved Understanding the Basics of VSCO Filters</u></a></li>
+<li><a href="https://win-able.techidaily.com/defeating-hearthstones-windows-woes-fixing-instability-and-crashes-effectively/"><u>Defeating Hearthstone's Windows Woes: Fixing Instability and Crashes Effectively</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/does-the-tp-link-archer-ax6000-excel-past-the-netgear-nighthawk-ax12-in-depth-review-analysis/"><u>Does the TP-Link Archer AX6000 Excel Past the NETGEAR Nighthawk AX12? In-Depth Review Analysis.</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-fix-apple-iphone-6s-unavailable-issue-with-ease-by-drfone-ios/"><u>How To Fix Apple iPhone 6s Unavailable Issue With Ease</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-exploration-comparison-gopros-hero5-black-and-sessions/"><u>In 2024, Exploration Comparison GoPro's Hero5 Black & Sessions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-top-5-winter-frameworks-for-comfortable-cinematography/"><u>In 2024, Top 5 Winter Frameworks for Comfortable Cinematography</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/optimizing-your-fb-live-on-zoom-stream-for-2024/"><u>Optimizing Your FB Live on Zoom Stream for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-recording-youtube-content-on-your-own-terms/"><u>Start Recording YouTube Content on Your Own Terms</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/wift-video-voyage-navigating-through-the-youtubes-and-tiktok-landscapes-for-2024/"><u>The Swift Video Voyage Navigating Through the YouTubes and TikTok Landscapes for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/top-fullscreen-capturing-software-pcmac-edition/"><u>Top Fullscreen Capturing Software, PC/Mac Edition</u></a></li>
+<li><a href="https://fox-place.techidaily.com/unlocking-blockchain-knowledge-top-resources-and-tools-to-master-cryptocurrency-fundamentals-with-guidance-from-yl-software/"><u>Unlocking Blockchain Knowledge: Top Resources & Tools to Master Cryptocurrency Fundamentals with Guidance From YL Software</u></a></li>
+</ul></div>
 

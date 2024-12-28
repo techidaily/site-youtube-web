@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Making YT Thumbnails Pop  A Mac-Centric Approach\""
-date: 2024-08-23T02:43:07.704Z
-updated: 2024-08-24T02:43:07.704Z
+date: 2024-12-26T00:43:52.298Z
+updated: 2024-12-28T01:56:12.938Z
 tags:
   - ai video
   - ai youtube
@@ -42,19 +42,23 @@ thumbnails are a significant factor in determining the number of views a Youtube
 
 If you don’t create a thumbnail then youtube will generate one by itself which may not be so enticing for viewers. The purpose of the thumbnail is to make your videos stand out among the rest so you need to pay attention to it!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make Youtube Thumbnails on Mac
 
 You can easily create interesting thumbnails for youtube videos using a thumbnail maker like[FilmoraX](https://tools.techidaily.com/wondershare/filmora/download/) . Here is a step by step guide:
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
-</a>
-<!-- affiliate ads end -->
 ### 1. Preview the video and choose the still snapshot
 
 The first step in creating a thumbnail is to import the final video into the FilmoraX editor on your MacBook.
 
 ![import](https://images.wondershare.com/filmora/filmoraX/Guide-Mac/3.import-media-files.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Then, use the thumbnail editor to play your video and choose the snapshot that you want to be appearing as your thumbnail.
 
@@ -63,24 +67,15 @@ You can easily choose the frame from the video or use the preview frame button t
 ![thumbnails editor](https://images.wondershare.com/filmora/Mac-articles/thumbnails-editor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. Add text, shape, and image overlays
 
 Once you’ve chosen the frame for the thumbnail, the next step would be to add text to it to catch the attention of the audience. You can also adjust the thumbnail size as per your requirement, however, the ideal size would be 1280x720 pixels with a minimum width of 640 pixels.
 
 ![add text on thumbnail](https://images.wondershare.com/filmora/Mac-articles/add-text-on-thumbnail.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### 3. Add effects
 
 FilmoraX has a wide range of effects that you can apply to your videos or pictures to make them look more attractive.
@@ -88,11 +83,9 @@ FilmoraX has a wide range of effects that you can apply to your videos or pictur
 ![filter9](https://images.wondershare.com/filmora/guide/filter-9-mac.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### 4. Save the thumbnail
 
 After you are done with all the editing, the final step would be to save the youtube thumbnail by hitting the save button.
@@ -109,20 +102,21 @@ Hopefully, the above-mentioned steps have given you enough insight and clarity o
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +125,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-cloud.techidaily.com/new-diy-alerts-for-instagram-a-step-by-step-sound-guide/"><u>[New] DIY Alerts for Instagram A Step-by-Step Sound Guide</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-ultimate-tutorial-editing-photos-by-cutting-out-the-surround/"><u>[New] In 2024, Ultimate Tutorial Editing Photos by Cutting Out the Surround</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-switching-spotify-playlists-transferring-to-youtube-music-format/"><u>[Updated] 2024 Approved Switching Spotify Playlists Transferring to YouTube Music Format</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-conquer-color-with-pro-techniques-in-photography/"><u>[Updated] Conquer Color with Pro Techniques in Photography</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-search-patterns-to-screenplay-crafting-videos-from-google-data-for-2024/"><u>[Updated] From Search Patterns to Screenplay Crafting Videos From Google Data for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-to-add-timestamp-on-youtube-video-link-desktop-and-mobile/"><u>[Updated] How to Add Timestamp on YouTube Video Link? [Desktop and Mobile]</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-a-treasury-of-thought-provoking-youtube-content/"><u>[Updated] In 2024, A Treasury of Thought-Provoking YouTube Content</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-freefire-gaming-guide-maximizing-video-impact/"><u>[Updated] In 2024, FreeFire Gaming Guide Maximizing Video Impact</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-navigating-legal-boundaries-in-whatsapp-call-recordings/"><u>[Updated] In 2024, Navigating Legal Boundaries in WhatsApp Call Recordings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-prime-guidelines-youtube-respect-and-usage/"><u>[Updated] In 2024, Prime Guidelines YouTube Respect & Usage</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-quickframe-editor-for-2024/"><u>[Updated] QuickFrame Editor for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-beatbell-instructions-making-tamil-music-your-call-alerts/"><u>2024 Approved BeatBell Instructions Making Tamil Music Your Call Alerts</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Oppo A1 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-top-5-winter-frameworks-for-comfortable-cinematography/"><u>In 2024, Top 5 Winter Frameworks for Comfortable Cinematography</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/interactive-entertainment-hacked/"><u>Interactive Entertainment Hacked</u></a></li>
+<li><a href="https://program-issues.techidaily.com/path-of-exile-troubleshooting-connection-issues-to-the-game-server/"><u>Path of Exile: Troubleshooting Connection Issues to the Game Server</u></a></li>
+</ul></div>
 

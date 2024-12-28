@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Earnings Enlightenment  Joshi and YouTube Success Stories\""
-date: 2024-12-17T17:10:52.009Z
-updated: 2024-12-22T16:31:35.011Z
+date: 2024-12-22T06:00:52.052Z
+updated: 2024-12-27T23:01:49.485Z
 tags:
   - ai video
   - ai youtube
@@ -37,10 +37,6 @@ And if you’re into producing content for YouTube, read on to find bonus tips.
 
 ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 An Indian YouTuber, Sourav started his first channel “Sourav Joshi Arts” on the Platform in September, 2015\. You can find drawings of famous people, including Abraham Lincoln on his arts channel.
 
 Later in February, 2019, Sourav started his vlogging channel “Sourav Joshi Vlogs.” And no doubt, he has been successful in his journey and has established himself as a popular YouTuber.
@@ -62,6 +58,10 @@ Later in February, 2019, Sourav started his vlogging channel “Sourav Joshi Vlo
 | Awards & Recognition    | Silver & Gold Play Button           |
 
 Being creative and unique can help you go big on YouTube. With his art videos and fun vlogs, Saurav has proved it, too. Let’s explore how much Saurav Joshi earn from YouTube.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Sourav Joshi YouTube Earnings and Stats
 
@@ -121,6 +121,10 @@ As an artist, Sourav has created some stunning portraits of popular people. But 
 
 ![how to draw hair](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-4.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 His “How I Draw Hairs | Step by Step” got around 13,353, 361 views.
 
 [How I Draw Hairs | Step by step](https://www.youtube.com/watch?v=q4-VDO%5FYPjQ)
@@ -137,19 +141,11 @@ This 13-minute vlog was fun, and viewers can see Sourav enjoying with his younge
 
 ![highway vlog](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 People love watching vlogs, especially when they’re relatable to their personal lives. Many viewers can relate to “Highway Pe Faas Gye” vlog while enjoying it.
 
 [Highway Pe Faas Gye 馃槄 Popat Hi Popat](https://www.youtube.com/watch?v=YVIRaXMvhI0)
 
 This is one of the most-viewed vlogs by Sourav with 23,431,594 views.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Pro Tips: How to be a YouTuber and Make Videos Like Sourav Joshi
 
@@ -199,6 +195,10 @@ _Color correction of the video_
 
 ![color correction](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-13.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 _Options for audio_
 
 ![options for audio](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-14.jpg)
@@ -215,15 +215,15 @@ _Effects_
 
 ![effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-16.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Find “effects” on the top menu, click, and choose from the list.
 
 _Stock Video_
 
 ![stock media](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-17.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 “Stock video” button is also located on the top menu. Click on it to find more eye-pleasing content for your footage.
 
@@ -283,10 +283,6 @@ Later in February, 2019, Sourav started his vlogging channel “Sourav Joshi Vlo
 
 Being creative and unique can help you go big on YouTube. With his art videos and fun vlogs, Saurav has proved it, too. Let’s explore how much Saurav Joshi earn from YouTube.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Sourav Joshi YouTube Earnings and Stats
 
 Now that you know who Sourav Joshi is and what he does to earn dollars from YouTube, see how YouTube calculates income.
@@ -298,6 +294,10 @@ As an established YouTuber, Sourav makes money from affiliate marketing, sponsor
 Want to know Sourav Joshi's income from YouTube? He’s known to earn $30,000 to $45,000 monthly, and has a current net worth, $1 million.
 
 Sourav receives 320-350 million views monthly on his two YouTube videos that helped him elevate his net worth.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Sourav Joshi YouTube Stats
 
@@ -316,6 +316,10 @@ The views on his videos show him as a popular Indian YouTuber. Not only this, he
 Sourav’s channel was the fastest growing one during the Covid-19 lockdown. Even his Instagram bio says “Most subscribed vlogger of India.”
 
 The vlogger enjoys 3.7M followers on Instagram.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Why is Sourav Joshi Trending on YouTube?
 
@@ -353,6 +357,10 @@ In this 8-minute video clip, you can see him draw hair with absolute perfection,
 
 ![golgappa challenge](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 During the lockdown, Sourav vlogs got massive popularity. One such vlog was “Golgappa CHALLENGE WITH PIYUSH.”
 
 [Golgappa CHALLENGE WITH PIYUSH 馃槏馃構](https://www.youtube.com/watch?v=OWCMiVTCDqg&t=3s)
@@ -360,10 +368,6 @@ During the lockdown, Sourav vlogs got massive popularity. One such vlog was “G
 This 13-minute vlog was fun, and viewers can see Sourav enjoying with his younger brother, too.
 
 ![highway vlog](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 People love watching vlogs, especially when they’re relatable to their personal lives. Many viewers can relate to “Highway Pe Faas Gye” vlog while enjoying it.
 
@@ -400,7 +404,7 @@ In the duration settings, you can adjust the video duration. If there’s need f
 ![fix size and positioning](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-10.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 For this step, you can use editing interface, so you can work on your video’s position. Drag the sliders to the interface and change the size, position, and direction of your footage.
@@ -416,16 +420,12 @@ _Motion effects_
 ![motion effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-11.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Adjustment of video tone_
 
 ![adjust video tone](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-12.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 _Color correction of the video_
 
@@ -460,7 +460,7 @@ _Elements_
 ![elements](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-18.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Go to the top menu and find “elements.” You can add these elements to ensure your video appear interesting and engaging.
@@ -510,24 +510,24 @@ You can try creating a video for YouTube. And use Filmora to make your videos im
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/mplify-engagement-utilizing-youtube-analytics-wisely-for-2024/"><u>[New] Amplify Engagement Utilizing YouTube Analytics Wisely for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-in-2024-engage-enchant-excel-the-art-of-crafting-effective-titles/"><u>[New] In 2024, Engage, Enchant, Excel The Art of Crafting Effective Titles</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-navigating-new-horizinas-in-the-world-of-srt-for-2024/"><u>[New] Navigating New Horizinas in the World of SRT for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/treaming-success-gamers-software-for-2024/"><u>[New] Streaming Success Gamers' Software for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ransparency-in-tracking-youtube-viewers/"><u>[New] Transparency in Tracking YouTube Viewers</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-a-comprehensive-look-editing-and-polishing-yt-videos-via-movie-maker/"><u>[Updated] 2024 Approved A Comprehensive Look Editing and Polishing YT Videos via Movie Maker</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-amassing-audiences-and-assets-launching-a-livestream-business/"><u>[Updated] Amassing Audiences and Assets Launching a Livestream Business</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ultimate-checklist-for-adding-effective-on-screen-captions-to-your-videos/"><u>[Updated] In 2024, The Ultimate Checklist for Adding Effective On-Screen Captions to Your Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-monthly-income-for-content-creators-on-youtube/"><u>[Updated] Monthly Income for Content Creators on YouTube?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-who-are-you-unraveling-youtuber-personalities-in-6-quizzes/"><u>[Updated] Who Are You? Unraveling YouTuber Personalities in 6 Quizzes</u></a></li>
-<li><a href="https://location-fake.techidaily.com/3-ways-to-fake-gps-without-root-on-samsung-galaxy-a05s-drfone-by-drfone-virtual-android/"><u>3 Ways to Fake GPS Without Root On Samsung Galaxy A05s | Dr.fone</u></a></li>
-<li><a href="https://extra-information.techidaily.com/amplify-and-illuminate-online-videos-with-these-5-aids/"><u>Amplify and Illuminate Online Videos with These 5 Aids</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/anticipated-release-latest-rumors-suggest-new-ipad-models-due-in-early-spring-of-2024-tech-news-zdnet/"><u>Anticipated Release: Latest Rumors Suggest New iPad Models Due in Early Spring of 2024 | Tech News - ZDNet</u></a></li>
-<li><a href="https://blog-min.techidaily.com/converti-file-audiovideo-wma-a-formato-3gp-gratuitamente-online-con-movavi/"><u>Converti File Audio/Video WMA a Formato 3GP Gratuitamente Online Con Movavi</u></a></li>
-<li><a href="https://win-premium.techidaily.com/effortless-data-protection-save-and-secure-your-files-on-toshiba-with-windows-11/"><u>Effortless Data Protection: Save & Secure Your Files on Toshiba with Windows 11</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/from-chaos-to-calm-strategic-folder-use-for-chatgpt-control/"><u>From Chaos to Calm: Strategic Folder Use for ChatGPT Control</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-exploring-the-in-depth-world-of-magix-video-pro-x/"><u>In 2024, Exploring the In-Depth World of Magix Video Pro X</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-propel-your-youtube-presence-upwards-by-thousands/"><u>In 2024, Propel Your YouTube Presence Upwards by Thousands</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/echanics-of-youtube-shorts-monetization-for-2024/"><u>The Mechanics of YouTube Shorts Monetization for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-comprehensive-strategies-for-desktop-tiktok-streams/"><u>[New] Comprehensive Strategies for Desktop TikTok Streams</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nd-your-videos-professionally-with-these-free-tools-top-6-for-2024/"><u>[New] End Your Videos Professionally with These Free Tools (Top 6) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ssential-7-apps-for-high-quality-youtube-live-streaming-on-iphones-and-android-for-2024/"><u>[New] Essential 7 Apps for High-Quality YouTube Live Streaming on iPhones & Android for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-propel-your-youtube-presence-upwards-by-thousands/"><u>[Updated] 2024 Approved Propel Your YouTube Presence Upwards by Thousands</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-the-top-7-stardew-valley-improvement-packs/"><u>[Updated] 2024 Approved The Top 7 Stardew Valley Improvement Packs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-enhancing-your-youtube-presence-with-split-screen-techniques/"><u>[Updated] Enhancing Your YouTube Presence with Split-Screen Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-explore-free-youtube-channel-imagery-tools/"><u>[Updated] Explore Free YouTube Channel Imagery Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-streamlining-your-device-by-clearing-youtube-downloads/"><u>[Updated] In 2024, Streamlining Your Device by Clearing YouTube Downloads</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-making-youtube-videos-come-alive-your-ultimate-guide-to-animated-gifs/"><u>2024 Approved Making YouTube Videos Come Alive Your Ultimate Guide To Animated GIFs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-newbies-nook-making-eye-catching-mac-videos-for-youtube/"><u>2024 Approved Newbies' Nook Making Eye-Catching Mac Videos for YouTube</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/free-download-and-installation-guide-for-dell-latitude-e6430-windows-drivers-problem-solved/"><u>Free Download and Installation Guide for Dell Latitude E6430 Windows Drivers - Problem Solved!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/static-to-sprightly-bouncing-text-animations-for-2024/"><u>From Static to Sprightly Bouncing Text Animations for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-best-3-poco-c51-emulator-for-mac-to-run-your-wanted-android-apps-drfone-by-drfone-android/"><u>In 2024, Best 3 Poco C51 Emulator for Mac to Run Your Wanted Android Apps | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-did-your-apple-iphone-x-passcode-change-itself-unlock-it-now-by-drfone-ios/"><u>In 2024, Did Your Apple iPhone X Passcode Change Itself? Unlock It Now</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-the-path-to-cross-media-popularity-via-television-and-fb-live/"><u>In 2024, The Path to Cross-Media Popularity via Television and FB Live</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-unlocking-av1-encoding-insights/"><u>In 2024, Unlocking AV1 Encoding Insights</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/prime-digital-photography-recovery/"><u>Prime Digital Photography Recovery</u></a></li>
+<li><a href="https://techidaily.com/undelete-lost-call-logs-from-c67-4g-by-fonelab-android-recover-call-logs/"><u>Undelete lost call logs from C67 4G</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-premiere-pro-cs6-for-mac-free-download-from-adobe-systems/"><u>Updated In 2024, Premiere Pro CS6 for Mac Free Download From Adobe Systems</u></a></li>
 </ul></div>
 

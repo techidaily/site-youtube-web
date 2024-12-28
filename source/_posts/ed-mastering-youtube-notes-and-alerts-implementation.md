@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering YouTube Notes & Alerts Implementation"
-date: 2024-12-17T16:06:48.988Z
-updated: 2024-12-22T16:44:46.283Z
+date: 2024-12-26T21:19:30.527Z
+updated: 2024-12-28T01:08:40.990Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube Cards
@@ -63,17 +63,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -83,6 +79,10 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to add YouTube annotations
 
@@ -95,13 +95,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -141,10 +145,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,18 +166,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-adv-screen-recorder-review/"><u>[New] 2024 Approved ADV Screen Recorder Review</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-youtube-video-shooting-equipment-list-what-you-need-to-start-recording-videos/"><u>[New] In 2024, YouTube Video Shooting Equipment List What You Need to Start Recording Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-enjoy-uninterrupted-youtube-with-effective-adblocking-methods/"><u>[Updated] 2024 Approved Enjoy Uninterrupted YouTube with Effective Adblocking Methods</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-a-comprehensive-guide-to-previewing-facebooks-hidden-activities/"><u>[Updated] A Comprehensive Guide to Previewing Facebook's Hidden Activities</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-affordable-techniques-to-enhance-written-content-with-media-for-2024/"><u>[Updated] Affordable Techniques to Enhance Written Content with Media for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-capturing-the-moment-expert-tips-for-amazing-android-slow-mo-videos/"><u>[Updated] Capturing the Moment Expert Tips for Amazing Android Slow Mo Videos</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-maximizing-impact-using-youtube-analytics-for-content-strategy/"><u>[Updated] Maximizing Impact Using YouTube Analytics for Content Strategy</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-masterclass-in-15-high-impact-youtube-startups/"><u>2024 Approved Masterclass in 15 High-Impact YouTube Startups</u></a></li>
-<li><a href="https://games-able.techidaily.com/does-steam-level-matter-to-you/"><u>Does Steam Level Matter to You?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/mical-growth-methodology-subscribe-now-in-2024/"><u>Economical Growth Methodology - Subscribe Now, In 2024</u></a></li>
-<li><a href="https://fox-sure.techidaily.com/how-to-identify-and-manage-installed-programs-on-your-computer/"><u>How to Identify and Manage Installed Programs on Your Computer</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/navigating-new-realms-todays-vr-tomorrows-trials-for-2024/"><u>Navigating New Realms Today's VR, Tomorrow's Trials for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/by-step-success-on-youtube-with-spectacision-music-videos-for-2024/"><u>Step-by-Step Success on Youtube with Spectacision Music Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/76263904-new-in-2024-revolutionize-your-branding-50-free-youtube-banners-inside/"><u>[New] In 2024, Revolutionize Your Branding - 50 Free YouTube Banners Inside!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-create-professional-minecraft-graphics-for-2024/"><u>[Updated] Create Professional Minecraft Graphics for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-pioneer-the-future-of-youtube-content-with-tubebuddy/"><u>[Updated] Pioneer the Future of YouTube Content with TubeBuddy</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlock-your-youtube-potential-idea-generation-guide/"><u>[Updated] Unlock Your YouTube Potential Idea Generation Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-affordable-quality-cameras-the-ultimate-buyers-guide/"><u>2024 Approved Affordable, Quality Cameras The Ultimate Buyer's Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-building-blocks-of-virtual-experience-terminology/"><u>2024 Approved Building Blocks of Virtual Experience Terminology</u></a></li>
+<li><a href="https://article-helps.techidaily.com/best-action-cameras-unlocked-your-2023-snorkeling-guide/"><u>Best Action Cameras Unlocked - Your 2023 Snorkeling Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-download-automatic-amd-graphics-drivers-installation-guide/"><u>Easy Download: Automatic AMD Graphics Drivers Installation Guide</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/get-an-apple-aesthetic-at-a-fraction-of-the-cost-with-the-motorola-one-phone-review/"><u>Get an Apple Aesthetic at a Fraction of the Cost with the Motorola One Phone Review</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/how-to-change-your-location-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>How to Change Your Location on Apple iPhone 12 mini | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-step-1-to-50-building-a-foundation-for-mukbang-creation/"><u>In 2024, Step 1 to 50 Building a Foundation for Mukbang Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/cket-your-channel-to-over-a-million-subscribers/"><u>Skyrocket Your Channel to Over a Million Subscribers</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/the-updated-method-to-bypass-nubia-red-magic-9-pro-frp-by-drfone-android/"><u>The Updated Method to Bypass Nubia Red Magic 9 Pro FRP</u></a></li>
+<li><a href="https://win11.techidaily.com/unleash-full-potential-via-admin-terminal-immediate-launch/"><u>Unleash Full Potential via Admin Terminal Immediate Launch</u></a></li>
 </ul></div>
 

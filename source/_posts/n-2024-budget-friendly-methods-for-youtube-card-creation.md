@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Budget-Friendly Methods for YouTube Card Creation\""
-date: 2024-08-23T02:43:56.818Z
-updated: 2024-08-24T02:43:56.818Z
+date: 2024-12-20T23:16:54.553Z
+updated: 2024-12-27T20:15:20.393Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/69d60ad1b0674fb9a6dcacd9cfd5c9b2973dbd0d0
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -76,6 +84,10 @@ You can create a simple intro card in **Filmora**.
 6. Go to the Text/Titles menu and choose an animated title that suits your channel. Drag it into your text track and edit it to include your name.
 7. The last piece of your intro is sound. You can choose a song from Filmora’s library and cut it down to five seconds, or import your sound effect.
 8. Export your video and save it for use in all of your other videos.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: End Cards
 
@@ -112,20 +124,21 @@ Some creators will leave their end cards at that and play music overtop, but it 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -134,8 +147,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ont-power-boosters-secrets-to-stellar-video-thumbnails-for-2024/"><u>[New] Font Power Boosters Secrets to Stellar Video Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-strategic-approach-to-dealing-with-youtube-copyright-claims/"><u>[New] In 2024, Strategic Approach to Dealing With YouTube Copyright Claims</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-screen-free-serenity-top-10-indoor-games-for-non-networked-play-android/"><u>[Updated] 2024 Approved Screen-Free Serenity Top 10 Indoor Games for Non-Networked Play (Android)</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-elevate-your-images-with-quantum-hdr-expertise/"><u>[Updated] Elevate Your Images with Quantum HDR Expertise</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-learn-the-role-youtube-shorts-music-plays/"><u>[Updated] Learn the Role YouTube Shorts Music Plays</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-discover-the-power-of-proportions-in-youtube-content-creation/"><u>2024 Approved Discover the Power of Proportions in YouTube Content Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-manipulate-sound-rate-in-youtube-playback/"><u>2024 Approved Manipulate Sound Rate in YouTube Playback</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-revised-discussion-prompts-for-enhanced-auditory-experience/"><u>2024 Approved Revised Discussion Prompts for Enhanced Auditory Experience</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-wealth-of-words-carminati-ajay-and-his-money-making-mantra-on-youtube/"><u>2024 Approved The Wealth of Words Carminati (Ajay) and His Money-Making Mantra on Youtube</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/altering-screenshot-file-types-on-a-macintosh-for-2024/"><u>Altering Screenshot File Types on a Macintosh for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/excellence-in-viewing-windows-phones-premium-apps-for-2024/"><u>Excellence in Viewing Windows Phone's Premium Apps for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixes-for-persistent-lagging-freezing-and-glitches-in-serious-sam-4-for-pc-gaming/"><u>Fixes for Persistent Lagging, Freezing, and Glitches in Serious Sam 4 for PC Gaming</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/script-to-spectacle-independent-effect-innovation/"><u>From Script to Spectacle Independent Effect Innovation</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/illuminating-pathways-through-mixed-realitys-domain-for-2024/"><u>Illuminating Pathways Through Mixed Reality's Domain for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/izing-video-success-on-youtube-long-term-creativity-commons-strategy-for-2024/"><u>Maximizing Video Success on YouTube Long-Term Creativity Commons Strategy for 2024</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolve-pc-issues-how-to-prevent-battlefront-ii-crashes/"><u>Resolve PC Issues - How to Prevent Battlefront II Crashes</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/transforming-biking-adventures-with-smart-photochromic-glasses-a-game-changing-hud-feature-reviewed/"><u>Transforming Biking Adventures with Smart Photochromic Glasses: A Game-Changing HUD Feature Reviewed</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958379/18409" target="_top" id="1958379"><img src="//a.impactradius-go.com/display-ad/18409-1958379" border="0" alt="" width="856" height="508"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958379/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

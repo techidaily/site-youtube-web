@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Proven Techniques for Counteracting Virtual Insults"
-date: 2024-12-17T16:28:32.479Z
-updated: 2024-12-22T16:36:48.543Z
+date: 2024-12-21T04:20:25.479Z
+updated: 2024-12-27T21:16:54.689Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/53f3a3394ff2579b0b4baf68462fcda182f1a767b
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/53f3a3394ff2579b0b4baf68462fcda182f1a767b
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,19 +83,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-propel-traffic-and-engagement-with-smart-youtube-backlink-strategies/"><u>[New] 2024 Approved Propel Traffic and Engagement with Smart YouTube Backlink Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-power-of-stories-in-youtube-expansion/"><u>[New] 2024 Approved The Power of Stories in YouTube Expansion</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-right-tools-for-your-youtube-journey-camera-lenses-explained/"><u>[New] 2024 Approved The Right Tools For Your YouTube Journey - Camera Lenses Explained</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-roadmap-to-understanding-view-counts-and-money-made/"><u>[New] 2024 Approved The Ultimate Roadmap to Understanding View Counts & Money Made</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-trailblazers-designing-marvels-digital-playground/"><u>[New] 2024 Approved Trailblazers Designing Marvel's Digital Playground</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unveiling-potential-pro-guide-to-crafting-youtube-videos/"><u>[New] 2024 Approved Unveiling Potential Pro Guide to Crafting YouTube Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-what-lies-behind-the-unlisted-tag-on-youtube/"><u>[New] 2024 Approved What Lies Behind the 'Unlisted' Tag on YouTube?</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-audio-capture-for-post-review-for-2024/"><u>[New] Audio Capture for Post-Review for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-best-fun-car-games-for-kids/"><u>[New] Best Fun Car Games for Kids</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/discover-7-online-techniques-to-elevate-your-proficiency-in-prompt-engineering/"><u>Discover 7 Online Techniques to Elevate Your Proficiency in Prompt Engineering</u></a></li>
-<li><a href="https://win-community.techidaily.com/identifying-and-troubleshooting-graphics-card-problems-a-guide-by-yl-computing/"><u>Identifying and Troubleshooting Graphics Card Problems: A Guide by YL Computing</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-a-step-by-step-guide-to-finding-your-apple-id-from-your-iphone-13-pro-by-drfone-ios/"><u>In 2024, A Step-by-Step Guide to Finding Your Apple ID From Your iPhone 13 Pro</u></a></li>
-<li><a href="https://novels-ebooks.techidaily.com/210345138-9781940837710-merging-with-the-infinite/"><u>Merging with the Infinite | Free Book</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/transformer-un-fichier-mp4-en-format-avi-sur-internet-gratuitement-tutorial-movavi/"><u>Transformer Un Fichier MP4 en Format AVI Sur Internet Gratuitement - Tutorial Movavi</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-boost-your-gaming-presence-with-these-top-14-video-ideas/"><u>[New] In 2024, Boost Your Gaming Presence with These Top 14 Video Ideas</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-insiders-guide-to-superior-apps-for-vocal-transformation/"><u>[New] Insider's Guide to Superior Apps for Vocal Transformation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tep-by-step-best-free-online-introduction-systems/"><u>[New] Step-by-Step Best Free Online Introduction Systems</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-storytellers-sanctum-summit-selections/"><u>[New] Storytellers Sanctum – Summit Selections</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-beginners-guide-to-screen-recording-for-dell-computers/"><u>[Updated] Beginner's Guide to Screen Recording for Dell Computers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-optimize-game-console-audio-settings-on-sony-platforms-for-2024/"><u>[Updated] Optimize Game Console Audio Settings on Sony Platforms for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-streamlining-the-process-of-youtube-data-interpretation-for-2024/"><u>[Updated] Streamlining the Process of YouTube Data Interpretation for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unveiling-the-secrets-to-youtube-highlighted-remarks-for-2024/"><u>[Updated] Unveiling the Secrets to YouTube Highlighted Remarks for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/battle-of-the-bots-assessing-coding-skills-in-chatgpt-vs-gemini/"><u>Battle of the Bots: Assessing Coding Skills in ChatGPT Vs. Gemini</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/deciphering-ray-tracing-the-future-of-realistic-graphics/"><u>Deciphering Ray Tracing: The Future of Realistic Graphics?</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-part-of-the-touch-screen-not-working-on-vivo-y100a-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Part of the Touch Screen Not Working on Vivo Y100A | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-detailed-strategies-for-altering-facial-gender-display-in-digital-media/"><u>In 2024, Detailed Strategies for Altering Facial Gender Display in Digital Media</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-pioneering-youtube-visibility-through-strategic-thumbnails/"><u>In 2024, Pioneering YouTube Visibility Through Strategic Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/encers-utopia-summit-for-2024/"><u>Influencers' Utopia Summit for 2024</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/iphone-sms-drucken-zwei-einfache-techniken-erklart/"><u>IPhone-SMS Drucken: Zwei Einfache Techniken Erklärt</u></a></li>
 </ul></div>
 

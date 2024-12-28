@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Streamlining Your Method for Erasing YouTube Post-Comments\""
-date: 2024-12-18T16:18:08.342Z
-updated: 2024-12-22T16:53:36.351Z
+date: 2024-12-23T03:41:02.640Z
+updated: 2024-12-28T01:52:11.929Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,6 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -66,6 +62,10 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 4. Once you reach the target comment, click on the three vertical dots at the bottom corner. There should be an option called Remove. Tap on it.
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from YouTube?
 
 Have you accidentally posted something on a YouTuber’s channel? Are you anxious because you cannot find the comment and delete it?
@@ -77,10 +77,6 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 3. Once there, you need to access your Comment History page. To do this, you can click on the three horizontal lines at the top left corner of your YouTube homepage. Click on History. On the page that opens, click Comments from the panel on the right. It will direct you to your Comment History page. You can also access the YouTube comment history from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 1. When you reach the Comment History page, you will be able to find all comments you have ever posted. Scroll down to the comment you want to delete.
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
 
@@ -117,7 +113,11 @@ To find your History from your desktop, you need to click on the three horizonta
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Delete All Your Posted YouTube Comments?
@@ -129,9 +129,17 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
 
@@ -139,19 +147,11 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Final Thoughts
 
 YouTube can be an unsafe place with unwanted comments everywhere. In this blog, we tried to show how you can get rid of comments on your and on others’ YouTube accounts. The next time you see an offensive comment or post something mistakenly, don’t forget to try our tips and make YouTube a safe platform again.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -174,18 +174,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-recording.techidaily.com/new-2024-approved-the-top-8-windows-screen-recording-applications/"><u>[New] 2024 Approved The Top 8 Windows Screen Recording Applications</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-melodymentor-detailed-sound-review/"><u>[New] In 2024, MelodyMentor Detailed Sound Review</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-iphone-photo-burst-how-to-take-burst-images/"><u>[New] IPhone Photo Burst How to Take Burst Images</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/everaging-social-media-for-increased-video-engagement-on-youtube/"><u>[New] Leveraging Social Media for Increased Video Engagement on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/outube-shorts-mastery-quick-thumbnail-updates-made-simple-for-2024/"><u>[New] YouTube Shorts Mastery Quick Thumbnail Updates Made Simple for 2024</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-essential-tips-for-pc-based-console-game-recording-for-2024/"><u>[Updated] Essential Tips for PC-Based Console Game Recording for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-mini-youtube-content-explained/"><u>[Updated] Mini YouTube Content Explained</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-detailed-walkthrough-to-flawless-youtube-videos-using-imovie-software/"><u>2024 Approved Detailed Walkthrough to Flawless YouTube Videos Using iMovie Software</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-navigating-the-financial-seas-of-youtube-success-carryminati/"><u>2024 Approved Navigating the Financial Seas of YouTube Success (CarryMinati)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-ryan-kajis-riches-the-tale-of-youtubes-youngest-mogul/"><u>2024 Approved Ryan Kaji’s Riches The Tale of YouTube's Youngest Mogul</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-saving-your-iphone-screen-a-step-by-step-approach/"><u>2024 Approved Saving Your iPhone Screen A Step-by-Step Approach</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Honor X9b | Dr.fone</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/streamlining-your-live-events-merging-obs-and-zoom-for-2024/"><u>Streamlining Your Live Events Merging OBS and Zoom for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-screen-saver-successes-a-video-showcase-evaluation/"><u>[New] Screen Saver Successes - A Video Showcase Evaluation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-navigating-the-network-of-youtube-multitasking-mastery/"><u>[Updated] 2024 Approved Navigating The Network Of YouTube Multitasking Mastery</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-quick-clip-creations-role-and-music-tango/"><u>[Updated] 2024 Approved Quick Clip Creations Role & Music Tango</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-harmonizing-your-tunes-step-by-step-playlist-crafting-for-web-and-mobile-users/"><u>[Updated] Harmonizing Your Tunes Step-by-Step Playlist Crafting for Web & Mobile Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-how-to-add-timestamp-on-youtube-video-link-desktop-and-mobile/"><u>2024 Approved How to Add Timestamp on YouTube Video Link? [Desktop and Mobile]</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-saving-strategy-watching-taping-and-tweaking-sports/"><u>2024 Approved Saving Strategy Watching, Taping, and Tweaking Sports</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/all-ages-exploration-of-minecraft-your-go-to-review-resource/"><u>All-Ages Exploration of Minecraft: Your Go-To Review Resource</u></a></li>
+<li><a href="https://win-blog.techidaily.com/beat-the-csgo-no-login-error-with-these-5-proven-fixes/"><u>Beat the CSGO No Login Error with These 5 Proven Fixes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/izing-mobile-profits-enabling-youtubers-revenue/"><u>Maximizing Mobile Profits Enabling YouTubers' Revenue</u></a></li>
+<li><a href="https://win11.techidaily.com/speedy-window-task-completion-via-key-combinations/"><u>Speedy Window Task Completion via Key Combinations</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211166028-9798989182770-the-bible-30-the-6-commandments-of-the-chosen-life/"><u>The Bible 3.0, The 6 Commandments of the Chosen Life | Free Book</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/unlock-high-quality-streaming-with-our-leading-free-mp4-conversion-tool-no-expense-necessary/"><u>Unlock High-Quality Streaming with Our Leading Free MP4 Conversion Tool - No Expense Necessary</u></a></li>
 </ul></div>
 

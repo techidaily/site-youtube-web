@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Analyzing Online Video Discussions"
-date: 2024-08-23T02:44:48.904Z
-updated: 2024-08-24T02:44:48.904Z
+date: 2024-12-25T02:44:17.282Z
+updated: 2024-12-27T20:31:22.623Z
 tags:
   - ai video
   - ai youtube
@@ -30,6 +30,10 @@ Are you trying to search for something on a document or a web page? You know how
 2. Managing and analyzing the vast number of comments can be difficult for as busy a platform as YouTube.
 
 So, if you want to search YouTube comments quickly, what can you do? We will show you in this blog.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Using the Built-in YouTube Studio Feature to Search Comments
 
@@ -74,8 +78,13 @@ You can use the YouTube Comment Search browser extension supported by Google Chr
 ![ YouTube Comment Search Extension](https://images.wondershare.com/filmora/article-images/search-comment-from-specific-user-with-ycs-extension.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Using Comments Search for YouTube Extension
 
 If you are looking for an easy method to search YouTube comments, you can use the Comments Search for YouTube extension. Google Chrome supports this extension that allows you to search comments on YouTube without leaving the website.
@@ -102,9 +111,6 @@ This mode allows you to enter special commands to carry out an advanced search. 
 2. ‘:all’ to see all comments
 3. ‘:creator’ to get comments made by the creator
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ## Part 4: How Do You Search Comments You Have Posted on YouTube?
 
 Did you post a comment on your favorite celebrity’s video? Do you think it may be embarrassing and want to delete it now but cannot find it now amidst so many comments? It is where you can make use of YouTube’s Comment History feature.
@@ -112,8 +118,9 @@ Did you post a comment on your favorite celebrity’s video? Do you think it may
 YouTube has now added this feature which you can see all the comments you ever posted on YouTube in one place.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Use the Comment History feature to Search Comments?
 
 You can see all the comments you have posted in the Comment History in a few quick steps.
@@ -124,14 +131,8 @@ You can see all the comments you have posted in the Comment History in a few qui
 
 ![ YouTube History Comment](https://images.wondershare.com/filmora/article-images/youtube-history-comments-menu.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
-<!-- affiliate ads end -->
 You can also access the Comments History page directly from[here](https://www.youtube.com/feed/history/comment%5Fhistory).
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 5: How to Find Out Who Posts the Most Comments on Your YouTube Videos?
 
 If you are a creator on YouTube, the comments section becomes very important. Subscribers comment words of praise, encouragement, and feedback which help you grow. You may want to keep track of your most loyal followers. The best way to know that is by knowing who comments most on your videos.
@@ -156,22 +157,20 @@ Find feedback or questions. Report offensive comments. If you are a regular YouT
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -180,4 +179,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-tracking-trends-the-systematic-method-for-assessing-youtube-income-flows/"><u>[New] In 2024, Tracking Trends The Systematic Method for Assessing YouTube Income Flows</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oments-best-the-leading-youtube-video-tracks/"><u>[New] Moment's Best The Leading Youtube Video Tracks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-cost-sound-transformation-ultimate-10-youtube-tools-for-2024/"><u>[New] No-Cost Sound Transformation Ultimate 10 YouTube Tools for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/kyrocket-views-on-youtube-in-minutes-2-strategies/"><u>[New] Skyrocket Views on YouTube in Minutes (2 Strategies)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-enlightenment-echoes-best-ed-tutorials-yt/"><u>[Updated] 2024 Approved Enlightenment Echoes Best Ed Tutorials YT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-monetization-verification-maximizing-streamer-incomes/"><u>[Updated] 2024 Approved Monetization Verification Maximizing Streamer Incomes</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-novice-to-master-the-ultimate-periscope-handbook/"><u>[Updated] From Novice to Master The Ultimate Periscope Handbook</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-in-2024-best-camcorders-for-deer-stalking-success/"><u>[Updated] In 2024, Best Camcorders for Deer Stalking Success</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-balancing-acts-reducing-shakiness-for-better-gopro-vids/"><u>2024 Approved Balancing Acts Reducing Shakiness for Better GoPro Vids</u></a></li>
+<li><a href="https://techidaily.com/complete-tutorial-for-realme-c33-2023-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Complete Tutorial for Realme C33 2023 Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-professional-filming-techniques-via-youtube-studio-editor/"><u>In 2024, Professional Filming Techniques via YouTube Studio Editor</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/innovating-the-future-of-driving-renault-and-googles-collaboration-on-a-digital-vehicle-platform-explored-by-zdnet/"><u>Innovating the Future of Driving: Renault and Google's Collaboration on a Digital Vehicle Platform, Explored by ZDNet</u></a></li>
+<li><a href="https://driver-download.techidaily.com/install-gigaware-crosspoint-usb-to-rs232485-serial-communication-driver-for-win10-and-win7win8/"><u>Install Gigaware Crosspoint USB to RS232/485 Serial Communication Driver for Win10 & Win7/Win8</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/romers-exceptional-rechargeable-outdoor-flashlight-a-must-have-reviewed-luminary/"><u>Romer'#s Exceptional Rechargeable Outdoor Flashlight: A Must-Have Reviewed Luminary</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/spot-the-signs-of-phony-friends-tips-on-recognizing-false-facebook-invitations/"><u>Spot the Signs of Phony Friends: Tips on Recognizing False Facebook Invitations</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Key Tools Every New YouTuber Needs"
-date: 2024-12-16T17:07:38.747Z
-updated: 2024-12-22T16:48:35.394Z
+date: 2024-12-21T20:40:36.725Z
+updated: 2024-12-28T02:35:31.430Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,10 @@ On one end of the spectrum, you have basic smartphone cameras and web cameras, w
 
 If you already have a DSLR camera then it’s a good idea to familiarize yourself with it. You have far more freedom to adjust the settings and achieve a professional look for your videos with a DSLR, but that does mean it’ll take some time to become an expert at using it. Ultra-high resolution is not required for YouTube, but it certainly won’t hurt to have additional sharpness and more detail in the scene. If you’re shopping for a DSLR, look for one with a flip screen that allows you to quickly check what your viewers see.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YouTube Microphone and Audio
 
 **The short version:** Audio quality is extremely important. If you can buy either a new camera or an external microphone, but not both, it might be better to go for the microphone. [Click here for advice on upping your audio quality without an external microphone.](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -64,10 +68,6 @@ If you already have a DSLR camera then it’s a good idea to familiarize yoursel
 Again, most YouTube video makers have a limited budget at their disposal, so professional microphones are mostly off the table. However, investing in a directional microphone (‘shotgun mic’) that can pick up your voice clearly and without background noise is certainly a smart move. Such microphones can be pointed towards you while you speak, and since most YouTubers sit still while doing their shows there won’t be too much need for in-session adjustments.
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Lights for YouTube
 
@@ -81,10 +81,6 @@ If you have the budget available to get some lighting equipment, you can find so
 
 Another useful piece of lighting equipment to have is a reflector. A reflector is usually a piece of white, silver, or gold fabric stretched over a frame. You can use it to bounce light from one light source back towards yourself (this is a great way to fill shadows cast by your main light). Reflectors tend to be inexpensive, but you can also use white cardboard or tinfoil in place of purchasing a reflector.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Tripods and Camera Stands
 
 **The short version:** You need something to hold your camera. If you mostly film in your own home that can be a desk or a stack of books, but if you make a lot of videos while you're on the go you probably need a tripod or gimbal. Heavier cameras need heavier tripods.
@@ -96,12 +92,16 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
@@ -112,7 +112,7 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Equipment with Easy-to-Use Video Editor
@@ -120,7 +120,7 @@ Another common downside of smartphone cameras is that most of them use digital z
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
@@ -146,17 +146,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-instantly-post-videos-on-twitter-using-phones-skipping-retweets/"><u>[New] 2024 Approved Instantly Post Videos on Twitter Using Phones, Skipping Retweets</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-tailored-free-offer-unlock-our-exclusive-youtube-banner-pack/"><u>[New] 2024 Approved Tailored Free Offer - Unlock Our Exclusive YouTube Banner Pack</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unraveling-the-selection-process-for-highlighted-youtube-comments/"><u>[New] 2024 Approved Unraveling the Selection Process for Highlighted YouTube Comments</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unveiling-the-most-innovative-free-video-editors-for-idevices/"><u>[New] 2024 Approved Unveiling the Most Innovative Free Video Editors for iDevices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-youtubes-most-watched-wonders-the-ultimate-guide/"><u>[New] 2024 Approved YouTube’s Most-Watched Wonders The Ultimate Guide</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-in-2024-unveiling-top-techniques-for-vhs-image-transformation/"><u>[New] In 2024, Unveiling Top Techniques for VHS Image Transformation</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/assessing-the-practicality-between-german-and-french/"><u>Assessing the Practicality Between German & French</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ting-old-hollywood-style-in-modern-videos/"><u>Emulating Old Hollywood Style in Modern Videos</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/macos-sonoma-is-it-time-for-an-update/"><u>MacOS Sonoma: Is It Time for an Update?</u></a></li>
-<li><a href="https://windows11.techidaily.com/unlocking-linux-potential-with-windows-programming/"><u>Unlocking Linux Potential with Windows Programming</u></a></li>
-<li><a href="https://win-dash.techidaily.com/wma-mp4-5/"><u>WMA ファイルをMP4に自由に変換: 強力ツールベスト5</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/youtubers-toolkit-essential-setup-guidelines-for-2024/"><u>Youtubers' Toolkit Essential Setup Guidelines for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/levate-your-content-with-these-10-reaction-wonders-for-2024/"><u>[New] Elevate Your Content with These 10 Reaction Wonders for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/xplore-sites-where-you-can-procure-youtube-affiliate-partnerships/"><u>[New] Explore Sites Where You Can Procure Youtube Affiliate Partnerships</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-explore-the-most-economical-video-conference-software-best-10-recommendations-for-business-and-education-for-2024/"><u>[New] Explore the Most Economical Video Conference Software Best 10 Recommendations for Business & Education for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-core-kit-video-equipment-every-creator-needs/"><u>[New] In 2024, The Core Kit Video Equipment Every Creator Needs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eamless-youtube-editing-the-ultimate-finalcut-pro-guidebook/"><u>[New] Seamless YouTube Editing The Ultimate FinalCut Pro Guidebook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-mastering-youtube-creation-standard-studio-or-innovative-beta/"><u>[Updated] 2024 Approved Mastering YouTube Creation Standard Studio or Innovative Beta</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-foundations-of-easing-volume-control-in-audition-for-2024/"><u>[Updated] Foundations of Easing Volume Control in Audition for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-step-by-step-approach-to-conquering-igtv/"><u>[Updated] In 2024, Step-By-Step Approach to Conquering IGTV</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-soundscapes-of-apple-in-the-realm-of-vids/"><u>[Updated] Soundscapes of Apple in the Realm of Vids</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/2024-approved-covert-concepts-in-composing-captivating-images/"><u>2024 Approved Covert Concepts in Composing Captivating Images</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/zing-youtube-shorts-economic-impact-for-2024/"><u>Analyzing YouTube Shorts Economic Impact for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mastering-video-editing-basics-on-windows-8-movie-maker/"><u>Mastering Video Editing Basics on Windows 8 Movie Maker</u></a></li>
+<li><a href="https://network-issues.techidaily.com/resetting-settings-to-use-asus-cam/"><u>Resetting Settings to Use Asus Cam</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/review-of-wireless-headphones-the-m06-model/"><u>Review of Wireless Headphones - The M06 Model</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/streamlined-shots-in-the-sea-7-easy-to-follow-steps-for-2024/"><u>Streamlined Shots in the Sea 7 Easy-to-Follow Steps for 2024</u></a></li>
 </ul></div>
 

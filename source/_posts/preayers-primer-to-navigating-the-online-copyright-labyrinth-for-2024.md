@@ -1,7 +1,7 @@
 ---
 title: "A Compreayer's Primer to Navigating the Online Copyright Labyrinth for 2024"
-date: 2024-08-23T02:42:19.173Z
-updated: 2024-08-24T02:42:19.173Z
+date: 2024-12-25T03:19:12.984Z
+updated: 2024-12-28T06:31:32.086Z
 tags:
   - ai video
   - ai youtube
@@ -46,6 +46,10 @@ Without fair use, there wouldn’t be any flexibility for creators. There wouldn
 
 Think of fair use as exceptions to copyright rules.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: What YouTube Considers Fair Use
 
 There are a few aspects YouTube looks at when it comes to determining whether creators are using copyrighted content that meets the fair use exceptions.
@@ -54,9 +58,6 @@ There are a few aspects YouTube looks at when it comes to determining whether cr
 2. Are there more original content used than copyrighted content in the video?
 3. Will your video benefit the original copyrighted content?
 
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: Types of Content That Meet Fair Use
 
 Some acceptable styles of videos that allow you to exercise fair use are:
@@ -72,6 +73,10 @@ There couldn’t be two more different movies than Toy Story and Fight Club, but
 **Parody:** Imitation for comedic or dramatic effect is an artistic pursuit as long as it is done in a transformative manner. What does transformative mean? It means in some way, the original is being examined.
 
 In this example from The Hillywood Show, we see a parody of both BBC’s Sherlock Holmes and Macklemore & Ryan Lewis’s Thrift Shop. The nuisance of the show and song recreated are there, but nobody who enjoys the originals will sit down and appreciate it in the same way. A parody is in no way trying to replace the original, but rather using the subject, structure, and style of the original as a vessel to another creative work.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: What To Do When You Get a YouTube Copyright Strike
 
@@ -91,9 +96,6 @@ So what should you do? Here are the steps to take after you receive a copyright 
 
 ![YouTube Copyright notice](https://images.wondershare.com/filmora/article-images/youtube-copyright-notice.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
-<!-- affiliate ads end -->
 1. Click on the “Copyright Strike” link beside the flagged video to see details
 2. Decide how to respond to the strike:  
    1. Allow the strike to expire after 90 days and complete the [YouTube’s copyright school](https://www.youtube.com/copyright%5Fschool)  
@@ -101,6 +103,10 @@ So what should you do? Here are the steps to take after you receive a copyright 
    3. Dispute the claim with a counter notification
 
 ![Dispute YouTube Copyright Claims](https://images.wondershare.com/filmora/article-images/dispute-youtube-copyright-claim.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: 5 Ways to Avoid Copyright Strike
 
@@ -122,9 +128,6 @@ In this example from Screen Prism, we see scenes from Wes Anderson movies all th
 
 **5\. Keep it short.** There is no precise number of seconds or ratio of copyrighted to original footage you should have in your video to qualify as fair use. But generally, if the copyrighted clip is short and/or broken up, then it stands a better chance at being approved by YouTube.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
-<!-- affiliate ads end -->
 ## Part 6: What to Do When Other YouTubers Are Copying Your Content
 
 As a new YouTuber, it’s a little freaky to think that someone is taking your content and republishing it or using your creations in their video without your permission.
@@ -138,18 +141,16 @@ If you ever notice that your content is being copied without your approval — i
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/report-copyright-infringement-youtube.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 1. Select “Infringes my rights” in the pop up window and click “infringes my copyright” in the dropdown options.
 
 ![report copyright infringement](https://images.wondershare.com/filmora/article-images/infringe-my-copyright-report.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 1. Supply additional information to the report form, including the URL of the video infringing your copyrighted content and the URL of your own video.
 2. Submit report and wait for an email confirmation that the infringing content has been removed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 7: YouTube Copyright Match
 
@@ -160,6 +161,10 @@ In 2018, YouTube launched a new feature called **Copyright Match Tool**, which a
 \- You can contact the publisher.
 
 \- You can report the video to YouTube for removal.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Key Takeaways
 
@@ -181,23 +186,17 @@ Got any questions on YouTube copyright? Leave a comment below and we’ll help y
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -206,4 +205,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/oosting-visibility-the-art-of-crafting-youtube-channel-backlinks-for-2024/"><u>[New] Boosting Visibility The Art of Crafting YouTube Channel Backlinks for 2024</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-bridge-between-platforms-sharing-facebook-videos-on-whatsapp/"><u>[New] In 2024, Bridge Between Platforms Sharing Facebook Videos on WhatsApp</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-download-premium-video-covers-free-fast-and-easy/"><u>[New] In 2024, Download Premium Video Covers - Free, Fast & Easy!</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-enhance-video-aesthetics-instagram-border-techniques/"><u>[New] In 2024, Enhance Video Aesthetics Instagram Border Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/avigate-through-settings-enabledisable-video-comments-for-2024/"><u>[New] Navigate Through Settings Enable/Disable Video Comments for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/apidly-evolving-yt-spaces-enhancing-cerebral-growth/"><u>[New] Rapidly Evolving YT Spaces Enhancing Cerebral Growth</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-streamline-web-surfing-with-microsoft-edges-multi-display-mode-for-2024/"><u>[New] Streamline Web Surfing with Microsoft Edge's Multi-Display Mode for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-the-insider-look-at-ios-video-recording-tools/"><u>[New] The Insider Look at IO's Video Recording Tools</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-10-iconic-beauty-personalities-to-follow-on-youtube/"><u>[Updated] 10 Iconic Beauty Personalities to Follow on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-chill-vibes-current-hits-to-match-your-yt-short-tunes-for-2024/"><u>[Updated] Chill Vibes Current Hits to Match Your YT Short Tunes for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-step-by-step-for-quick-chromakey-application/"><u>[Updated] In 2024, Step-by-Step for Quick Chromakey Application</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-download-playback-streaming-youtube-videos-on-ios-securely-and-smoothly/"><u>2024 Approved Download Playback Streaming Youtube Videos on iOS Securely and Smoothly</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-key-top-10-modifications-for-terraria/"><u>2024 Approved Key Top 10 Modifications for Terraria</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-rapid-expansion-youtube-channels-boosting-brainpower/"><u>2024 Approved Rapid Expansion YouTube Channels Boosting Brainpower</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-harnessing-youtubes-true-potential-in-studio/"><u>In 2024, Harnessing YouTube's True Potential in Studio</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-make-every-sound-count-comprehensive-guide-to-free-youtube-video-transcriptions/"><u>In 2024, Make Every Sound Count Comprehensive Guide to Free YouTube Video Transcriptions</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/samsung-cf591-evaluation-top-pick-for-serious-gamers-or-overrated/"><u>Samsung CF591 Evaluation - Top Pick for Serious Gamers or Overrated?</u></a></li>
+</ul></div>
 

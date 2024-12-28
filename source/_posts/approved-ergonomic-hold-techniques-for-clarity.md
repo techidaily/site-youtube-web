@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ergonomic Hold Techniques for Clarity\""
-date: 2024-08-23T02:44:29.193Z
-updated: 2024-08-24T02:44:29.193Z
+date: 2024-12-21T16:07:58.059Z
+updated: 2024-12-28T03:12:20.402Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 Here are 3 of our favorite DIY tripods.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -50,17 +54,26 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -78,9 +91,6 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453721/17020" target="_top" id="1453721"><img src="//a.impactradius-go.com/display-ad/17020-1453721" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453721/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -89,9 +99,6 @@ Your wire should be fairly stiff and you’ll need three pieces the same length,
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _All of your supplies plus the finished product._
 
 **Readying your legs**
@@ -115,23 +122,20 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +144,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/eginners-ultimate-list-of-must-have-video-tech-for-2024/"><u>[New] Beginner's Ultimate List of Must-Have Video Tech for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-the-ultimate-guide-to-vr-game-engine-picks-2023/"><u>[Updated] 2024 Approved The Ultimate Guide to VR Game Engine Picks, 2023</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-embarking-on-a-virtual-odyssey-through-yt-stories/"><u>[Updated] Embarking on a Virtual Odyssey Through YT Stories</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-quickening-your-live-feed-on-periscope-platform/"><u>[Updated] In 2024, Quickening Your Live Feed on Periscope Platform</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-snap-and-share-pcmac-video-recording-for-youtube/"><u>[Updated] In 2024, Snap & Share PC/Mac Video Recording for YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-securing-your-digital-dividends-a-no-ads-youtube-money-manual-for-2024/"><u>[Updated] Securing Your Digital Dividends A No Ads YouTube Money Manual for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtubes-edge-design-tips-for-compelling-video-thumbnails-for-2024/"><u>[Updated] YouTube's Edge Design Tips for Compelling Video Thumbnails for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-maximize-video-potential-a-complete-guide-to-youtube-thumbnail-dimensions/"><u>2024 Approved Maximize Video Potential A Complete Guide to YouTube Thumbnail Dimensions</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-the-essence-of-whatsapp-call-conversations/"><u>2024 Approved The Essence of WhatsApp Call Conversations</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/l-builder-kit/"><u>B-Roll Builder Kit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/examining-the-best-technology-for-crystal-clear-4k-visuals-for-2024/"><u>Examining the Best Technology for Crystal-Clear 4K Visuals for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-remove-an-airtag-from-your-apple-id-account-on-iphone-xs-by-drfone-ios/"><u>How to Remove an AirTag from Your Apple ID Account On iPhone XS?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-efficiently-add-your-own-look-to-youtube-shorts-via-simple-steps/"><u>In 2024, Efficiently Add Your Own Look to YouTube Shorts via Simple Steps</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-sound-design-utilizing-chatgpt-within-your-digital-audio-workstation/"><u>Mastering Sound Design: Utilizing ChatGPT Within Your Digital Audio Workstation</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/perfecting-your-vids-a-comprehensive-youtube-studio-tutorial-for-2024/"><u>Perfecting Your Vids A Comprehensive YouTube Studio Tutorial for 2024</u></a></li>
+<li><a href="https://win-wonderful.techidaily.com/record-your-computer-sounds-effortlessly-5-techniques-using-movavi-in-nineteen-twenty-four/"><u>Record Your Computer Sounds Effortlessly: 5 Techniques Using Movavi in Nineteen Twenty-Four</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/your-step-by-step-guide-to-previewing-your-off-facebook-life/"><u>Your Step by Step Guide to Previewing Your Off-Facebook Life</u></a></li>
+</ul></div>
 

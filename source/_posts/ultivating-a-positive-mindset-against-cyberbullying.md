@@ -1,7 +1,7 @@
 ---
 title: "[New] Cultivating a Positive Mindset Against Cyberbullying"
-date: 2024-08-23T02:44:50.082Z
-updated: 2024-08-24T02:44:50.082Z
+date: 2024-12-23T21:06:35.847Z
+updated: 2024-12-28T03:28:54.716Z
 tags:
   - ai video
   - ai youtube
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/dda7f892a14e315c0bfa7414c2e13f2432b695f38
  Mar 27, 2024• Proven solutions
 
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
 
@@ -54,20 +58,21 @@ thumbnail: https://thmb.techidaily.com/dda7f892a14e315c0bfa7414c2e13f2432b695f38
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -76,8 +81,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-networking-galore-places-for-youtube-affiliate-marketing/"><u>[New] In 2024, Networking Galore Places for YouTube Affiliate Marketing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-the-ultimate-guide-to-converting-youtubes-into-vivid-gifs-no-save/"><u>[New] The Ultimate Guide to Converting YouTubes Into Vivid GIFs (No Save)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-10-historical-youtube-viewers-treasure-trove/"><u>[Updated] 2024 Approved Top 10 Historical YouTube Viewers' Treasure Trove</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-precise-pathway-to-youtube-channel-profitable-management/"><u>[Updated] Precise Pathway to YouTube Channel Profitable Management</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-say-no-to-youtube-shorts-forever-your-guide-for-2024/"><u>[Updated] Say No to YouTube Shorts Forever Your Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-maximizing-your-youtube-income-understanding-adsense-payments-for-every-1k-watch/"><u>2024 Approved Maximizing Your Youtube Income Understanding AdSense Payments for Every 1K Watch</u></a></li>
+<li><a href="https://facebook.techidaily.com/broadcasting-ig-live-silent-mute-is-fine/"><u>Broadcasting IG Live: Silent, Mute Is Fine</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/bypass-activation-lock-on-apple-iphone-8-4-easy-ways-by-drfone-ios/"><u>Bypass Activation Lock On Apple iPhone 8 - 4 Easy Ways</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ting-your-contents-presence-perfecting-youtube-thumbnails-size-for-2024/"><u>Elevating Your Content's Presence Perfecting YouTube Thumbnails Size for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/expert-advice-on-itunes-video-capturing-for-2024/"><u>Expert Advice on iTunes Video Capturing for 2024</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/how-to-fix-your-computers-overheating-issue-when-the-cooling-fan-stops-working-guidance-by-yl-software/"><u>How to Fix Your Computer's Overheating Issue When the Cooling Fan Stops Working - Guidance by YL Software</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/pc-games-memory-freeze-and-capture-6-ways-to-win-in-2024/"><u>PC Games Memory - Freeze and Capture 6 Ways to Win, In 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-strengths-and-weaknesses-of-pidgin-communication-tool/"><u>Unveiling the Strengths and Weaknesses of Pidgin Communication Tool</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
