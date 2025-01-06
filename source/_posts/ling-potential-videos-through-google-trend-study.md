@@ -1,7 +1,7 @@
 ---
 title: "Unveiling Potential Videos Through Google Trend Study"
-date: 2024-12-17T16:46:24.522Z
-updated: 2024-12-22T16:38:55.985Z
+date: 2025-01-04T19:50:30.137Z
+updated: 2025-01-06T18:24:54.635Z
 tags:
   - ai video
   - ai youtube
@@ -43,10 +43,6 @@ Google Trends is a completely free tool you can use to determine what’s trendi
 
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _You’ll need to be signed into your Google account to use Google Trends._
 
 Start off at [trends.google.com](https://trends.google.com/trends/) and you’ll see what’s trending in general – usually big news stories or things like sports finals. The data is laid out like this: at the top there are three ‘Featured Insights’. These are three of the most popular trending topics paired with graphs of their recent search traffic. Underneath these there will be a list of stories that are currently trending. You can click on them to see charts of their search data and links to where the stories are being covered online.
@@ -54,10 +50,6 @@ Start off at [trends.google.com](https://trends.google.com/trends/) and you’ll
 Unless you do news or political commentary on your channel these probably aren’t topics you want to cover, but if you like to insert some topical references into your other videos then it’s still good to be aware of these things.
 
 To get information more relevant to your channel you’re going to have to do some filtering.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Getting Results That Matter to You
 
@@ -89,6 +81,10 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -100,7 +96,7 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 ![Google Trends Keywords YouTube Video](https://images.wondershare.com/filmora/article-images/explore-topic-in-google-trends.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
@@ -108,18 +104,26 @@ What happens after you click **enter** is pretty much magic. Say I want to make 
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
 Next, what other words do I want to include in my video title? Is this a review, a tutorial, or a how-to? By clicking on my search term Filmora, I can edit it to read ‘filmora review’. Then I can click **\+ Compare** and type in ‘filmora tutorial’ and ‘how to use Filmora’. Google Trends will create a chart comparing the popularity of those 3 terms.
 
 ![Google Trends Filmora Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term-comparison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _I also ‘zoomed out’ to 90 days – if I’d only looked at how they compared over the last week my results could have been skewed._
 
@@ -147,10 +151,6 @@ As one of the most widely used video editing software among YouTubers, Filmora p
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -172,24 +172,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-a-complete-guide-to-registering-with-youtube/"><u>[New] 2024 Approved A Complete Guide to Registering with YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-charting-a-course-essential-equipment-for-youtube-enthusiasts/"><u>[New] 2024 Approved Charting a Course Essential Equipment for YouTube Enthusiasts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-from-hobbyist-to-host-mac-sports-channel-creation/"><u>[New] 2024 Approved From Hobbyist to Host Mac Sports Channel Creation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-harness-the-power-of-youtube-video-for-stunning-gif-masterpieces/"><u>[New] 2024 Approved Harness the Power of YouTube Video for Stunning GIF Masterpieces</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-yt-thumbnail-design-for-enhanced-views/"><u>[New] 2024 Approved Mastering YT Thumbnail Design for Enhanced Views</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-no-cost-mp3-creation-10-youtube-transformers-explained/"><u>[New] 2024 Approved No-Cost MP3 Creation 10 YouTube Transformers Explained</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-easy-free-methods-to-master-youtube-video-frames/"><u>[New] 5 Easy, Free Methods to Master YouTube Video Frames</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-supercharge-your-video-subtitling-explore-leading-internet-tools-today/"><u>[New] Supercharge Your Video Subtitling Explore Leading Internet Tools Today</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-seamless-srt-file-engagement-for-os-users/"><u>[Updated] Seamless SRT File Engagement for OS Users</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-spotify-turning-off-automatic-podcast-recommendations/"><u>2024 Approved Spotify Turning Off Automatic Podcast Recommendations</u></a></li>
-<li><a href="https://win-great.techidaily.com/cyberspace-authority-in-china-launches-innovation-drive-encouraging-pioneering-blockchain-solutions-for-socio-economic-growth/"><u>Cyberspace Authority in China Launches Innovation Drive, Encouraging Pioneering Blockchain Solutions for Socio-Economic Growth</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-steps-in-filmmaking-essentials-for-new-youtube-talents-for-2024/"><u>First Steps in Filmmaking Essentials for New YouTube Talents for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/how-to-fix-it-when-your-iphone-is-not-detected-by-itunes/"><u>How to Fix It when Your iPhone Is Not Detected by iTunes</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/navigating-hostgators-offerings-an-authoritative-review-of-their-vps-and-shared-hosting-solutions/"><u>Navigating HostGator's Offerings: An Authoritative Review of Their VPS and Shared Hosting Solutions</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/perfect-preservation-how-to-flawlessly-change-mod-audiovideo-formats-to-mp4-for-top-sound-and-visual-clarity/"><u>Perfect Preservation: How to Flawlessly Change MOD Audio/Video Formats to MP4 for Top Sound and Visual Clarity</u></a></li>
-<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-poco-f5-pro-5g-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Poco F5 Pro 5G</u></a></li>
-<li><a href="https://common-error.techidaily.com/quick-solutions-how-to-resolve-errnamenotresolved-issue-on-chrome/"><u>Quick Solutions: How to Resolve ERR_NAME_NOT_RESOLVED Issue on Chrome</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-focused-chroma-keying-101-for-2024/"><u>Speed-Focused Chroma Keying 101 for 2024</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/understanding-gpt4all-the-revolutionary-tool-explained/"><u>Understanding GPT4All - The Revolutionary Tool Explained</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-cutting-edge-platforms-for-digital-transformation-into-nft-tokens/"><u>[New] 2024 Approved Cutting-Edge Platforms for Digital Transformation Into NFT Tokens</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/xclusive-webcast-winners/"><u>[New] Exclusive Webcast Winners</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-mixing-tunes-with-videos-on-vimeo-platform/"><u>[New] In 2024, Mixing Tunes with Videos on Vimeo Platform</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-key-destinations-enhancing-youtube-video-impact/"><u>[New] Key Destinations Enhancing YouTube Video Impact</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/erfect-your-video-edits-step-by-step-on-youtube-cutting-for-2024/"><u>[New] Perfect Your Video Edits Step-by-Step on YouTube Cutting for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-pixelation-portraiture-sketching-a-playful-virtual-emblem/"><u>[Updated] 2024 Approved Pixelation Portraiture Sketching a Playful Virtual Emblem</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtubes-premier-guide-to-top-notch-gear/"><u>[Updated] In 2024, YouTube’s Premier Guide to Top-Notch Gear</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-optimize-video-quality-turning-on-av1-in-youtube-settings-for-2024/"><u>[Updated] Optimize Video Quality Turning ON AV1 in YouTube Settings for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-uniting-your-conference-and-youtube-google-meet-broadcast-steps-for-2024/"><u>[Updated] Uniting Your Conference and YouTube Google Meet Broadcast Steps for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-maximize-your-money-with-these-top-10-simple-and-strategic-youtube-biz-channels/"><u>2024 Approved Maximize Your Money with These Top 10 Simple and Strategic YouTube Biz Channels</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/discover-where-to-obtain-detailed-iphone-model-instructions-and-guidelines-on-the-web/"><u>Discover Where to Obtain Detailed iPhone Model Instructions & Guidelines on the Web</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/essential-fixes-what-to-do-if-your-usb-tether-wont-connect/"><u>Essential Fixes: What to Do If Your USB Tether Won't Connect</u></a></li>
+<li><a href="https://techidaily.com/how-to-upgrade-apple-iphone-7-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade Apple iPhone 7 without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/in-2024-enhance-social-media-reach-on-facebook-using-proven-seo-methods/"><u>In 2024, Enhance Social Media Reach on Facebook Using Proven SEO Methods</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-harnessing-creative-energy-for-impactful-lyric-videos-and-lyric-video-maker/"><u>In 2024, Harnessing Creative Energy for Impactful Lyric Videos & Lyric Video Maker</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ring-the-art-of-valorant-thumbnail-design-for-youtube-content/"><u>Mastering the Art of Valorant Thumbnail Design for YouTube Content</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/unveiling-computer-wonders-at-toms-hardware-haven/"><u>Unveiling Computer Wonders at Tom's Hardware Haven</u></a></li>
 </ul></div>
 

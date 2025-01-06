@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Make a Difference  YouTube's Quick Thumbnail Guide\""
-date: 2024-08-23T02:37:45.717Z
-updated: 2024-08-24T02:37:45.717Z
+date: 2025-01-02T17:45:26.283Z
+updated: 2025-01-06T16:37:13.182Z
 tags:
   - ai video
   - ai youtube
@@ -55,6 +55,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step4](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step4.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 05:** If you want to use your custom background, you can import it into the Filmora by clicking import or dragging and dropping it in the media section.
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
@@ -63,6 +67,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
@@ -70,6 +78,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
@@ -87,6 +99,10 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Conclusion
 
 This is how your Youtube thumbnail will look like after applying all the above-mentioned effects and settings.
@@ -97,20 +113,21 @@ This article on making a thumbnail for your Youtube is just an idea for you, and
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-top-10-audio-disruptors-androidios-edition/"><u>[New] In 2024, Top 10 Audio Disruptors Android/iOS Edition</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-x-record-pc-suite-release/"><u>[New] In 2024, X-Record PC Suite Release</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-ultimate-guide-to-free-accurate-youtube-transcript-creation/"><u>[Updated] 2024 Approved The Ultimate Guide to Free, Accurate YouTube Transcript Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-exploring-youtubes-regular-income-mechanism/"><u>[Updated] In 2024, Exploring YouTube's Regular Income Mechanism</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-latest-on-youtube-income-framework/"><u>[Updated] In 2024, Latest on YouTube Income Framework</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-mindful-meandering-leisurely-pc-games/"><u>[Updated] In 2024, Mindful Meandering Leisurely PC Games</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-pioneering-maker-tools-for-your-next-ios-or-android-video/"><u>[Updated] Pioneering Maker Tools For Your Next iOS or Android Video</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastering-upside-down-and-sideways-iphone-photos/"><u>2024 Approved Mastering Upside-Down and Sideways iPhone Photos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/t-makeup-tutorials-who-to-watch-in-2024/"><u>A-List Makeup Tutorials Who to Watch , In 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/auditory-storytelling-at-a-high-level-for-2024/"><u>Auditory Storytelling at a High Level for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/experience-the-future-of-math-with-ipads-cutting-edge-calculator-app-worth-investing-in-an-apple-pencilzdnet-review/"><u>Experience the Future of Math with iPad's Cutting-Edge Calculator App - Worth Investing in an Apple Pencil![ZDNet Review]</u></a></li>
+<li><a href="https://games-able.techidaily.com/gamer-genius-tackling-common-xbox-issues/"><u>Gamer Genius: Tackling Common Xbox Issues</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-mastering-sharing-your-privacy-guarded-yt-clip-via-gmail-pro/"><u>In 2024, Mastering Sharing Your Privacy-Guarded YT Clip via Gmail Pro</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/in-depth-review-of-the-gotrax-gxl-v2-scooter-unleashing-efficiency-in-urban-mobility/"><u>In-Depth Review of the Gotrax GXL V2 Scooter: Unleashing Efficiency in Urban Mobility</u></a></li>
+<li><a href="https://games-able.techidaily.com/will-mac-computers-revolutionize-pc-gameplay/"><u>Will Mac Computers Revolutionize PC Gameplay?</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->

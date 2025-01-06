@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Starting From Scratch  Video Gear Insights\""
-date: 2024-08-23T02:37:26.910Z
-updated: 2024-08-24T02:37:26.910Z
+date: 2024-12-31T18:12:46.987Z
+updated: 2025-01-06T16:59:34.570Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ The smartest way to get started is to go through a list of **necessary equipment
 * [Tripods and Camera Stands](#tripod)
 * [Smartphone Camera Gear](#phone)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## YouTube Cameras
 
 **The short version:** Use whatever you already have, even if it's your phone or webcam. It's nice to have sharp, fine-tuned, 4K footage, but viewers will forgive lower visual quality if your content is good.
@@ -60,9 +64,6 @@ Again, most YouTube video makers have a limited budget at their disposal, so pro
 
 If you’re not ready to invest in a shotgun mic, you can also find very inexpensive (often under $20) LAV mics. These small microphones can be pinned to your shirt, which allows them to record very clear dialogue because they’re so close to your mouth.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Lights for YouTube
 
 **The short version:** You need as much light as you can get. Lighting kits can be affordable on Amazon, but you can also achieve a great look using daylight/windows and 'daylight' lightbulbs.
@@ -85,16 +86,14 @@ When you are choosing a tripod, pay attention to how much it weighs. If the came
 
 Even if you are using a phone or a webcam to record YouTube videos, you should consider mounting the device on a stable stand. It is possible to find mini tripods ideal for smartphones for as little as $10\. These tripods are small enough to carry in your pocket, so you will be prepared to start making a video no matter where your adventures take you. If you are using a web camera, you should attach it to the stand so that it won’t move accidentally after you touch the surface it is placed on.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Smartphone Camera Gear
 
 ![Smartphone Camera Gear](https://images.wondershare.com/filmora/article-images/smartphone-camera-gear.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 **The short version:** There's a lot of gear out there designed with smartphone photos and videos in mind, including clip-on lenses, tripod mounts, phone-mounted LED lights, and inexpensive microphones that plug into the audio jack.
 
 **The long version:** Recording your videos with a mobile phone can be a good decision. It all depends on the phone you have and the range of add-ons and apps that you complement it with. Almost every high-end model released in the past five years can shoot videos in 1080p or higher. Some can even produce 4K footage. If you perfect your smartphone filming technique, your YouTube videos could look as if they were made with pro equipment.
@@ -104,34 +103,34 @@ On the flip side, smartphone cameras typically perform poorly in low light. It i
 Another common downside of smartphone cameras is that most of them use digital zoom, which is vastly inferior to optical zoom. If you intend to shoot anything that’s further away than a few feet, you need a clip-on lens that goes on top of the built-in camera. This inexpensive device will give you a lot of freedom to work in space, and allow you to make spectacular shots even without high-end YouTube equipment.
 
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Equipment with Easy-to-Use Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -140,4 +139,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ecoming-a-filmora-fcc-the-pathway-explained-for-2024/"><u>[New] Becoming a Filmora FCC The Pathway Explained for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/elve-into-discussions-of-dedicated-viewers-for-2024/"><u>[New] Delve Into Discussions of Dedicated Viewers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-enthralling-epics-essential-channel-building-tactics/"><u>[New] In 2024, Enthralling Epics Essential Channel-Building Tactics</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/astering-the-art-of-selecting-free-music-for-videos/"><u>[New] Mastering the Art of Selecting Free Music for Videos</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/he-insiders-guide-to-on-screen-text-in-youtube-media/"><u>[New] The Insider's Guide to On-Screen Text in YouTube Media</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-av1-basics-for-beginners-explained/"><u>[Updated] AV1 Basics for Beginners Explained</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-exploring-the-monetary-mechanics-of-t-series-youtube-channel/"><u>[Updated] Exploring the Monetary Mechanics of T-Series Youtube Channel</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-universal-templates-galore-for-youtube-crafting/"><u>[Updated] Universal Templates Galore – For YouTube Crafting</u></a></li>
+<li><a href="https://win-tutorials.techidaily.com/55-dj-controllers-now-supported-pcdj/"><u>55 DJ Controllers Now Supported | PCDJ.</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/cing-your-videos-final-impression-for-2024/"><u>Enhancing Your Video's Final Impression for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-itel-a70-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Itel A70 | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-tecno-pova-5-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Tecno Pova 5</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/immersive-memories-a-compreeved-guide-to-saving-your-vr-gaming-journey/"><u>Immersive Memories A Compreeved Guide to Saving Your VR Gaming Journey</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-editmaster-suite/"><u>In 2024, EditMaster Suite</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-motorola-edge-40-neo-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Motorola Edge 40 Neo Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-art-of-youtube-channels-crafting-brands-that-attract-viewers/"><u>In 2024, The Art of YouTube Channels Crafting Brands That Attract Viewers</u></a></li>
+<li><a href="https://fox-sure.techidaily.com/preview-of-pcdj-dex-3-mixing-platform-with-customizable-four-deck-interface/"><u>Preview of PCDJ Dex 3 Mixing Platform with Customizable Four Deck Interface</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-oppo-reno-11f-5g-drfone-by-drfone-virtual-android/"><u>Unova Stone Pokémon Go Evolution List and How Catch Them For Oppo Reno 11F 5G | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ling-8-exceptional-mirrorless-cameras-for-vloggers-for-2024/"><u>Unveiling 8 Exceptional Mirrorless Cameras for Vloggers for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Tailoring Audience for Your Youtube Videos"
-date: 2024-12-21T17:07:05.683Z
-updated: 2024-12-22T16:37:59.973Z
+date: 2025-01-04T17:04:14.871Z
+updated: 2025-01-06T17:21:43.491Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Public VS Unlisted VS Private
@@ -70,7 +70,7 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Change Privacy Settings
@@ -83,20 +83,20 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
@@ -105,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
@@ -112,10 +116,6 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,20 +138,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-in-depth-look-at-engaging-with-youtube-comment-threads/"><u>[New] In 2024, In-Depth Look at Engaging with YouTube Comment Threads</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-tailoring-the-perfect-video-recording-and-post-production-with-adobe-connect/"><u>[New] Tailoring the Perfect Video Recording and Post-Production with Adobe Connect</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-screensnipers-digest-the-ultimate-2023-software-roundup/"><u>[Updated] In 2024, ScreenSniper's Digest The Ultimate 2023 Software Roundup</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-top-picks-perfect-mics-for-creator-pros/"><u>[Updated] In 2024, Top Picks Perfect Mics for Creator Pros</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-identifying-your-ideal-video-sharing-app-tiktok-or-youtubes-shorts/"><u>2024 Approved Identifying Your Ideal Video Sharing App TikTok or YouTubes' Shorts?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ovative-strategies-for-crafting-youtube-titles-and-tags-for-2024/"><u>5 Innovative Strategies for Crafting YouTube Titles & Tags for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ovative-youtube-thumbnail-designers-for-aspiring-filmmakers/"><u>5 Innovative YouTube Thumbnail Designers for Aspiring Filmmakers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/cing-video-reach-tactics-against-bot-visitors/"><u>Enhancing Video Reach Tactics Against Bot Visitors</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-titans-youtube-income-forecast-2024/"><u>Gamer Titans YouTube Income Forecast 2024</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/how-to-seamlessly-move-backups-between-computers-using-windows-11/"><u>How to Seamlessly Move Backups Between Computers Using Windows 11</u></a></li>
-<li><a href="https://win11.techidaily.com/how-to-work-around-windows-defender-vulnerability-block/"><u>How to Work Around Windows Defender Vulnerability Block</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-3utools-virtual-location-not-working-on-nokia-c110-fix-now-drfone-by-drfone-virtual-android/"><u>In 2024, 3uTools Virtual Location Not Working On Nokia C110? Fix Now | Dr.fone</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/in-2024-ace-the-art-of-editing-say-goodbye-to-overflowing-tiktok-drafts/"><u>In 2024, Ace the Art of Editing Say Goodbye to Overflowing TikTok Drafts</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/mirrorless-impact-on-professional-video-recording-for-2024/"><u>Mirrorless Impact on Professional Video Recording for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/the-power-of-creativity-magix-video-pro-x-demystified/"><u>The Power of Creativity Magix Video Pro X Demystified</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevating-youtube-live-with-high-quality-webcam-cameras/"><u>[New] In 2024, Elevating YouTube Live with High-Quality Webcam Cameras</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-leverage-timestamps-tactics-to-skyrocket-video-views/"><u>[New] In 2024, Leverage Timestamps Tactics to Skyrocket Video Views</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-handbook-for-optimal-youtube-banners-and-art-sizes/"><u>[New] The Ultimate Handbook for Optimal YouTube Banners & Art Sizes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-finding-premium-free-music-without-breaking-copyrights/"><u>[Updated] Finding Premium, Free Music Without Breaking Copyrights</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-foremost-video-starters-the-leading-16-youtube-openers-for-2024/"><u>[Updated] Foremost Video Starters The Leading 16 YouTube Openers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-long-to-brief-how-to-shorten-youtube-footage/"><u>[Updated] From Long to Brief How to Shorten YouTube Footage</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-step-by-step-guide-to-opposite-list-orders-on-yt/"><u>[Updated] In 2024, Step by Step Guide to Opposite List Orders on YT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-expert-picks-best-7-video-streaming-apps-to-take-your-youtube-game-upward-iosandroid/"><u>2024 Approved Expert Picks Best 7 Video Streaming Apps to Take Your YouTube Game Upward (iOS/Android)</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/adjust-and-set-windows-pcs-time-accurately-with-tips-from-yl-computing/"><u>Adjust and Set Windows PC's Time Accurately with Tips From YL Computing</u></a></li>
+<li><a href="https://windows11.techidaily.com/effective-steps-to-correct-windows-11-0x800f0922-error/"><u>Effective Steps to Correct Windows 11 0X800F0922 Error</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ating-videos-sequentially-for-free-youtube-guide/"><u>Navigating Videos Sequentially for Free - YouTube Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-apple-iphone-13-pro-max-drfone-by-drfone-virtual-ios/"><u>Proven Ways in How To Hide Location on Life360 For Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/screenflow-for-mac-full-review/"><u>ScreenFlow for Mac Full Review</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"From Static to Sprightly  Bouncing Text Animations for 2024\""
-date: 2024-08-23T02:40:39.144Z
-updated: 2024-08-24T02:40:39.144Z
+date: 2024-12-30T18:24:02.305Z
+updated: 2025-01-06T20:12:16.362Z
 tags:
   - ai video
   - ai youtube
@@ -26,6 +26,10 @@ thumbnail: https://thmb.techidaily.com/ebb571a11006b3db096e6619ba143df435922f1ac
 
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -46,6 +50,10 @@ In the timeline, double-click the title you just added, use the upper-left secti
 
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
@@ -62,6 +70,10 @@ Click **EXPORT** from the top of the interface, go to the **Local** tab in the *
 
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
 
 Double click the text track, go to the **Chroma Key** effect, select the **Color Picker** tool, and click anywhere in the Preview window to get things right. Finally, export the entire project to your preferred output format as explained in **Step 4**.
@@ -69,6 +81,10 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Method 2: Generate Animated Bouncing Texts Online
 
@@ -81,6 +97,10 @@ Some most trusted websites to generate **bounce text** are listed below:
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -128,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,14 +161,20 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-streamline-your-obs-outputs/"><u>[New] 2024 Approved Streamline Your OBS Outputs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-best-12-youtube-gaming-intro-makers-free-and-paid/"><u>[New] In 2024, Best 12 YouTube Gaming Intro Makers - Free and Paid</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-ideal-editors-perfect-for-high-quality-youtube-videos/"><u>[Updated] 2024 Approved Ideal Editors Perfect for High-Quality YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-start-now-best-online-learning-for-new-youtubers/"><u>[Updated] Start Now Best Online Learning for New YouTubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mouthwatering-movies-a-cooks-guide/"><u>2024 Approved Mouthwatering Movies A Cook's Guide</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/exploring-pc-innovation-with-toms-hardware-insights-and-advice/"><u>Exploring PC Innovation with Tom's Hardware Insights & Advice</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-sign-out-of-apple-id-from-apple-iphone-14-plus-without-password-by-drfone-ios/"><u>How to Sign Out of Apple ID From Apple iPhone 14 Plus without Password?</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-the-subscribers-guide-to-effective-dialogue-on-youtube/"><u>In 2024, The Subscriber's Guide to Effective Dialogue on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ating-social-media-comparing-igtv-and-youtube-features-for-2024/"><u>Navigating Social Media Comparing IGTV and YouTube Features for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/resolving-issues-with-fire-stick-remote-a-compreh/"><u>Resolving Issues with Fire Stick Remote - A Compreh</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/top-8-multi-subtitles-translators-you-can-use-for-2024/"><u>Top 8 Multi-Subtitles Translators You Can Use for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-from-avi-to-mkv-streaming-any-video-format-to-google-chromecast/"><u>Updated From AVI to MKV Streaming Any Video Format to Google Chromecast</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-after-effects-guide-to-elevating-song-visualization/"><u>Updated In 2024, After Effects Guide to Elevating Song Visualization</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->

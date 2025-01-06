@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  DIY Audio Excellence  No Mic Necessary\""
-date: 2024-08-23T02:40:11.978Z
-updated: 2024-08-24T02:40:11.978Z
+date: 2025-01-02T16:28:08.147Z
+updated: 2025-01-06T18:30:36.937Z
 tags:
   - ai video
   - ai youtube
@@ -39,6 +39,10 @@ Luckily, there are a lot of easy, free, things you can do to protect the quality
 * [5\. Use a Free Audio App](#app)
 * [6\. Do a Sound Check](#check)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. Keep Your Camera Close (like, really close)
 
 The biggest problem with the mic built into any camera or phone is just that, since it’s with the camera, it’s usually too far away from you. Built-in mics can record decent audio up close, but usually, your camera will be set up farther away from you than an external mic would be.
@@ -54,8 +58,9 @@ The best way to limit the amount of background noise you pick up in your sound r
 Sometimes the best thing you can do for your audio is simply to scout out a quiet room in your house where the sound recording conditions are better. Speaking of recording conditions…
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 3\. Pick a Good Room
 
 There’s more that goes into picking a good room than how quiet it is. If you try to record in a room that’s too big your voice might sound to distant, and if you try to record in a room that’s too small your audio will be too echo-y. You need a room that’s just right.
@@ -78,30 +83,14 @@ If your built-in mic is on top of your camera you can get something called a ‘
 
 ![Record better audio from wind with micromuff](https://images.wondershare.com/filmora/article-images/record-better-audio-from-wind.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 _You use the adhesive backing to attach the base velcro to your camera. The other side of the velcro has your fluff attached to the back._
 
 The only thing about a micromuff is that it costs about $30, and if you’re going to spend $30 on audio equipment then you could just buy yourself an inexpensive LAV mic. I only bring up the micromuff because it’s a very simple design you can probably DIY – you just need velcro with adhesive backing and any of the fluff-sources we just discussed.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## 5\. Use a Free Audio App
 
 If you’re recording on a smartphone, you can download a free app that will let you make adjustments to your audio as you record it. With the right app, you can adjust your gain (volume is how you control ‘output’ audio, and gain is for ‘input’ audio. By turning up your gain, you can make your mic more sensitive), tempo, and more. A lot of the time, your audio recording app will also let you edit your audio afterward.
@@ -110,9 +99,6 @@ Even if you’re not recording video from your smartphone, it might be a good id
 
 Free audio apps: Hi-Q MP3 Voice Recorder (Android), RecForge II (Android), Smart Voice Recorder (Android), Audio Memos (iOS), and Recorder Plus (iOS).
 
-<!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 6\. Do a Sound Check
 
 Once you think you’ve got good audio set up – test it! You don’t want to do a whole video and find out when you play it back that your audio doesn’t sound good.
@@ -122,8 +108,9 @@ Do you have any of your own audio tips to pass on? Leave them in the comments!
 _This topic was suggested by RS Beauty over in the forums. Thanks for the idea!_
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Polish Your YouTube Videos with Filmora
 
 As one of the most widely used video editing software in YouTube video editing, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) allows you to [record voiceover](https://tools.techidaily.com/wondershare/filmora/download/) and edit the recorded audio with mixer, equalizer and provides lots of templates and effects with an intuitive interface, which saves much time. Download the free trial version and get started now.
@@ -133,22 +120,20 @@ As one of the most widely used video editing software in YouTube video editing, 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -157,4 +142,23 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-helps.techidaily.com/new-discreetly-conceal-identity-photo-edit-tip/"><u>[New] Discreetly Conceal Identity Photo Edit Tip</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-gain-an-edge-in-views-with-these-5-youtube-thumbnail-creators-for-2024/"><u>[New] Gain an Edge in Views with These 5 YouTube Thumbnail Creators for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-ideal-ios-platform-for-psp-emulation-our-top-5-list-of-2023/"><u>[New] Ideal iOS Platform for PSP Emulation - Our Top 5 List of 2023</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-a-step-by-step-breakdown-creating-your-best-yt-shorts/"><u>[New] In 2024, A Step-by-Step Breakdown Creating Your Best YT Shorts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-thumbnail-mastery-for-youtube-channel-graphics/"><u>[New] In 2024, Thumbnail Mastery for YouTube Channel Graphics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-top-talents-merging-photography-and-sound-in-videos/"><u>[New] In 2024, Top Talents Merging Photography & Sound in Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-10-editing-skills-every-new-youtuber-must-know-for-2024/"><u>[New] Top 10 Editing Skills Every New YouTuber Must Know for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-quieting-unwanted-sounds-obs-audio-issue-fixed/"><u>[Updated] 2024 Approved Quieting Unwanted Sounds OBS Audio Issue Fixed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-best-gif-maker-applications-for-creative-freedom/"><u>[Updated] 2024 Approved The Best GIF Maker Applications for Creative Freedom</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-the-ultimate-guide-to-effortless-vrecorder-setup/"><u>[Updated] 2024 Approved The Ultimate Guide to Effortless VRecorder Setup</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-quality-of-movement-choosing-between-mirrorless-and-dslr/"><u>[Updated] Quality of Movement Choosing Between Mirrorless & DSLR</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-subtlety-in-audio-mixdown-with-alive/"><u>2024 Approved Subtlety in Audio Mixdown with Alive</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-three-safe-methods-for-directly-downloading-youtubes-audios-as-mp3/"><u>2024 Approved Three Safe Methods for Directly Downloading YouTube's Audios as MP3</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/ais-expanding-footprint-in-misinformation/"><u>AI's Expanding Footprint in Misinformation</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-reset-a-nubia-red-magic-9-proplus-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Nubia Red Magic 9 Pro+ Phone that is Locked?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-newcomer-to-notable-nominee-nudging-numbers-naturally/"><u>In 2024, From Newcomer to Notable Nominee Nudging Numbers Naturally</u></a></li>
+</ul></div>
 

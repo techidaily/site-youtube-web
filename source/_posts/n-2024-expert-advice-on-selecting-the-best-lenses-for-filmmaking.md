@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Expert Advice on Selecting The Best Lenses For Filmmaking"
-date: 2024-12-19T17:01:14.680Z
-updated: 2024-12-22T16:04:39.399Z
+date: 2025-01-02T18:08:09.509Z
+updated: 2025-01-06T18:17:20.684Z
 tags:
   - ai video
   - ai youtube
@@ -61,10 +61,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Vlogging With Each Focal Length Group
 
 You can get your talking head footage using lenses from any of the three focal length groups. Depending on how you plan to vlog most of the time, though, one of the three focal lengths might be more suitable for you.
@@ -87,20 +83,20 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
@@ -126,6 +122,10 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
 Fast lenses are more expensive because they cost more to produce. There’s a lot more that goes into them, including larger and higher quality glass elements.
@@ -133,7 +133,7 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 But do you even need a fast lens?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Vlogging With a Fast Lens
@@ -150,10 +150,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -167,6 +163,10 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -189,20 +189,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-techniques.techidaily.com/new-exclusive-roundup-10-essential-cost-free-iphone-selfie-editors/"><u>[New] Exclusive Roundup 10 Essential, Cost-Free iPhone Selfie Editors</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-best-youtube-video-ideas-to-spark-inspiration-for-youtube-channels/"><u>[Updated] 2024 Approved Best YouTube Video Ideas to Spark Inspiration [For YouTube Channels]</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-econo-audio-amps-for-youtubers-with-limited-dough/"><u>[Updated] 2024 Approved Econo Audio Amps for Youtubers with Limited Dough</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-profit-proliferation-through-effective-youtube-short-video-creation/"><u>[Updated] In 2024, Profit Proliferation Through Effective YouTube Short Video Creation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-navigating-youtubes-aspect-ratio-landscape-a-complete-tutorial/"><u>2024 Approved Navigating YouTube's Aspect Ratio Landscape A Complete Tutorial</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-understanding-magixs-acid-pro-and-its-market-rivals/"><u>2024 Approved Understanding Magix's ACID Pro and Its Market Rivals</u></a></li>
-<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-honor-play-40c-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Honor Play 40C to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/einfach-erklart-wie-man-systemabbilder-aus-der-ferne-rekonstruiert-und-wiederherstellt/"><u>Einfach Erklärt: Wie Man Systemabbilder Aus Der Ferne Rekonstruiert Und Wiederherstellt</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-experience-gaming-excellence-with-kinemaster-on-android/"><u>In 2024, Experience Gaming Excellence with KineMaster on Android</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-the-complete-playbook-for-youtube-beginners/"><u>In 2024, The Complete Playbook for YouTube Beginners</u></a></li>
-<li><a href="https://extra-support.techidaily.com/navigating-the-world-of-telegram-online-with-ease-for-2024/"><u>Navigating the World of Telegram Online with Ease for 2024</u></a></li>
-<li><a href="https://common-error.techidaily.com/remedy-poor-connection-performance-between-epson-scan-and-printer/"><u>Remedy Poor Connection Performance Between Epson Scan & Printer</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/resolving-260-ci-wi-fi-aware-driver-compatibility-with-usb-ports/"><u>Resolving 260 Ci Wi-Fi Aware Driver Compatibility with USB Ports</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/0-history-youtube-channels-for-students-and-history-lovers/"><u>Top 10 History YouTube Channels for Students & History Lovers</u></a></li>
-<li><a href="https://win11.techidaily.com/windows-users-struggle-fixing-microphone-issues-in-google-meet/"><u>Windows Users Struggle: Fixing Microphone Issues in Google Meet</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nveil-creative-potential-top-7-free-sound-effects-for-youtubers-for-2024/"><u>[New] Unveil Creative Potential Top 7 Free Sound Effects for YouTubers for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-simplified-guide-for-ios-users-transforming-images-to-pdfs/"><u>[Updated] 2024 Approved Simplified Guide for iOS Users Transforming Images to PDFs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-maintaining-morale-amidst-online-adversity/"><u>[Updated] In 2024, Maintaining Morale Amidst Online Adversity</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-virtual-battlegrounds-a-million-moments-in-gaming/"><u>[Updated] In 2024, Virtual Battlegrounds A Million Moments in Gaming</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-tailoring-your-youtube-videos-with-customized-text-and-link-embeddings/"><u>2024 Approved Tailoring Your YouTube Videos with Customized Text & Link Embeddings</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-software-to-fix-and-repair-corrupt-mp4-mov-avi-video-files-of-tecno-by-stellar-video-repair-mobile-video-repair/"><u>Best software to Fix and Repair Corrupt MP4,MOV,AVI video files of Tecno</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-lock-on-apple-iphone-se-2022-by-drfone-ios/"><u>How to Bypass iCloud Lock on Apple iPhone SE (2022)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-android-unlock-code-sim-unlock-your-xiaomi-civi-3-disney-100th-anniversary-edition-phone-and-remove-locked-screen-by-drfone-android/"><u>In 2024, Android Unlock Code Sim Unlock Your Xiaomi Civi 3 Disney 100th Anniversary Edition Phone and Remove Locked Screen</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-motorola-moto-g23-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Motorola Moto G23? | Dr.fone</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/m06-bluetooth-hearing-aids-reliable-connection/"><u>M06 Bluetooth Hearing Aids: Reliable Connection</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/restarting-non-working-outlook-automated-filters-in-windows/"><u>Restarting Non-Working Outlook Automated Filters in Windows</u></a></li>
+<li><a href="https://games-able.techidaily.com/unlocking-price-history-gaming-costs-on-steam/"><u>Unlocking Price History: Gaming Costs on Steam</u></a></li>
 </ul></div>
 

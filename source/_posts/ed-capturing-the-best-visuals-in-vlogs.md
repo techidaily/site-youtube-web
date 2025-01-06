@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Capturing the Best Visuals in Vlogs"
-date: 2024-12-22T01:37:38.999Z
-updated: 2024-12-27T22:34:51.616Z
+date: 2025-01-01T16:05:53.137Z
+updated: 2025-01-06T18:07:28.213Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Video Lighting Basics: Three Point Lighting
@@ -42,7 +42,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -58,13 +58,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -94,7 +94,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -130,16 +130,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-in-2024-dust-off-the-glare-avoiding-gopro-misting/"><u>[New] In 2024, Dust Off the Glare Avoiding GoPro Misting</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/treamlining-youtube-videos-adding-subtitles-and-cc-proficiently/"><u>[New] Streamlining YouTube Videos Adding Subtitles & CC Proficiently</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-translating-views-into-dollars-on-youtube-via-cpm/"><u>[Updated] 2024 Approved Translating Views Into Dollars on YouTube via CPM</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-proven-picks-leading-capture-cards-for-enthusiast-streamers/"><u>[Updated] In 2024, Proven Picks Leading Capture Cards for Enthusiast Streamers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-reduce-share-and-enjoy-top-5-shortened-urls-for-youtube/"><u>[Updated] Reduce, Share and Enjoy Top 5 Shortened URLs for YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/st-youtube-video-to-mp3-converter/"><u>10 Best YouTube Video to Mp3 Converter</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/comprehensive-directory-extracting-youtube-intros-for-2024/"><u>Comprehensive Directory Extracting Youtube Intros for 2024</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/navigate-to-notoriety-on-facebook-with-10-effective-tactics/"><u>Navigate to Notoriety on Facebook with 10 Effective Tactics</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/peaceful-rhythm-the-best-chill-country-music-for-relaxing-dance-parties-on-tiktok-for-2024/"><u>Peaceful Rhythm The Best Chill Country Music for Relaxing Dance Parties on TikTok for 2024</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/successful-engagement-of-direct3d/"><u>Successful Engagement of Direct3D</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/unlocking-fullscreen-potential-in-adobe-premiere/"><u>Unlocking Fullscreen Potential in Adobe Premiere</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-intense-moment-capture-iphone-burst-mode/"><u>[New] 2024 Approved Intense Moment Capture IPhone Burst Mode</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-chuckle-collective-top-15-hilarious-youtubers-for-boredom-beaters/"><u>[New] In 2024, Chuckle Collective Top 15 Hilarious YouTubers for Boredom Beaters</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-snapseed-advanced-usage-insights/"><u>[New] In 2024, Snapseed Advanced Usage Insights</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-guide-to-professional-filmmaking-via-youtube-for-2024/"><u>[Updated] Step-by-Step Guide to Professional Filmmaking via YouTube for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/beat-infused-videos-a-step-by-step-guide-to-adding-tunes-to-fb-for-2024/"><u>Beat-Infused Videos A Step-by-Step Guide to Adding Tunes to FB for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-unlisted-videos-a-deep-dive-into-youtube-secrecy-for-2024/"><u>Decoding Unlisted Videos A Deep Dive Into YouTube Secrecy for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/te-your-online-presence-choosing-the-right-webcam/"><u>Elevate Your Online Presence Choosing the Right Webcam</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-tecno-phantom-v-flip-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Tecno Phantom V Flip Without Password | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-free-cash-flow-estimator-apps/"><u>In 2024, Free Cash Flow Estimator Apps</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-how-can-we-bypass-motorola-razr-40-ultra-frp-by-drfone-android/"><u>In 2024, How Can We Bypass Motorola Razr 40 Ultra FRP?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-to-let-go-of-hurtful-comments-for-2024/"><u>Learning to Let Go of Hurtful Comments for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mac-users-guide-disabling-enhanced-mouse-motion-controls/"><u>Mac Users' Guide: Disabling Enhanced Mouse Motion Controls</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-10-video-transcoding-tools-for-windows-1110-safest-and-speediest-picks/"><u>Top 10 Video Transcoding Tools for Windows 11/10: Safest and Speediest Picks!</u></a></li>
+<li><a href="https://change-location.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-vivo-s18e-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/upgrade-your-gameplay-with-optimal-screens-a-buyers-guide-for-ps5-and-xbox-series-gamers/"><u>Upgrade Your Gameplay with Optimal Screens: A Buyer's Guide for PS5 & Xbox Series Gamers</u></a></li>
 </ul></div>
 

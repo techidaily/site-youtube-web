@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  How to Restrict Viewership of Your YouTube Content\""
-date: 2024-08-23T02:37:50.418Z
-updated: 2024-08-24T02:37:50.418Z
+date: 2025-01-05T16:58:16.879Z
+updated: 2025-01-06T18:48:08.582Z
 tags:
   - ai video
   - ai youtube
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/ce2efe940111a7e6cca801caf2d213cdd3c650dde
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: Public VS Unlisted VS Private
 
  Let's figure out some terms before runing into the how-to part.
@@ -60,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/ce2efe940111a7e6cca801caf2d213cdd3c650dde
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -70,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/ce2efe940111a7e6cca801caf2d213cdd3c650dde
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -79,20 +91,15 @@ thumbnail: https://thmb.techidaily.com/ce2efe940111a7e6cca801caf2d213cdd3c650dde
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
 
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
-<!-- affiliate ads end -->
 ## Conclusion
 
  And that's all there is to it! Changing the privacy setting on YouTube videos is a simple, helpful tool to allow you to control the audience of you work. Enjoy!
@@ -100,27 +107,22 @@ thumbnail: https://thmb.techidaily.com/ce2efe940111a7e6cca801caf2d213cdd3c650dde
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
-<!-- affiliate ads end -->
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -129,4 +131,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-talent-release-form-for-filming-and-video-to-free-download/"><u>[New] 2024 Approved Talent Release Form for Filming and Video to Free Download</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-2024-approved-windows-innovations-a-fresh-perspective-on-10/"><u>[New] 2024 Approved Windows Innovations A Fresh Perspective on 10</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-a-complete-analysis-of-the-new-picsart-guide-and-review-for-updated-app-for-2024/"><u>[New] A Complete Analysis of the New PicsArt – Guide & Review for Updated App for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ailored-sound-rate-on-youtube-desktopmobile-for-2024/"><u>[New] Tailored Sound Rate on YouTube (Desktop/Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outubes-user-interface-for-comment-management/"><u>[New] YouTube's User Interface for Comment Management</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-design-signature-symbols-use-free-templates-no-copyright/"><u>[Updated] Design Signature Symbols - Use Free Templates, No Copyright</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-achieving-a-million-on-the-map-a-strategic-view-to-sub-guide/"><u>[Updated] In 2024, Achieving a Million on the Map A Strategic View-to-Sub Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-smooth-and-swift-designing-your-best-thumbnails/"><u>[Updated] Smooth & Swift Designing Your Best Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-transform-your-life-top-10-premium-yoga-streams-unleashed/"><u>[Updated] Transform Your Life Top 10 Premium Yoga Streams Unleashed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elevate-your-content-with-these-top-5-youtube-marketing-methods/"><u>2024 Approved Elevate Your Content with These Top 5 YouTube Marketing Methods</u></a></li>
+<li><a href="https://location-social.techidaily.com/4-feasible-ways-to-fake-location-on-facebook-for-your-poco-c55-drfone-by-drfone-virtual-android/"><u>4 Feasible Ways to Fake Location on Facebook For your Poco C55 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/s-of-the-past-the-top-10-youtube-sources-for-history-lovers-for-2024/"><u>Echoes of the Past The Top 10 YouTube Sources for History Lovers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/trategies-utilizing-hashtags-in-youtube-gaming-content/"><u>Key Strategies Utilizing Hashtags in YouTube Gaming Content</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-the-ultimate-fix-stop-final-cut-pro-x-from-crashing-on-your-mac/"><u>New In 2024, The Ultimate Fix Stop Final Cut Pro X From Crashing on Your Mac</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-complete-overview-of-dfu-mode-on-iphones-and-easy-steps-to-follow/"><u>The Complete Overview of DFU Mode on iPhones & Easy Steps to Follow</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-new-short-form-fb-story-for-2024/"><u>The New Short-Form FB Story for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/toms-tech-hub-comprehensive-reviews-and-gear-insights/"><u>Tom's Tech Hub: Comprehensive Reviews & Gear Insights</u></a></li>
+</ul></div>
 

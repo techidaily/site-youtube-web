@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Beginner's Tutorial  Composing YouTube Video Content\""
-date: 2024-08-23T02:37:22.930Z
-updated: 2024-08-24T02:37:22.930Z
+date: 2025-01-01T18:05:57.875Z
+updated: 2025-01-06T19:27:32.469Z
 tags:
   - ai video
   - ai youtube
@@ -39,46 +39,42 @@ You have a great idea for a video, but you’re just not sure how to express it 
 
 Here are some things to do before you start writing your script for YouTube:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Collect Ideas
 
 Before you write the script, it’s a good idea to gather ideas. If you think of something, or if something funny happens, write it down right away. Keep a pen and notebook handy that way you will not forget about it.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. Find an area that is not distracting
 
 Once you have gathered enough ideas for the YouTube video, the next step is to find a place where you can write in peace and be inspired. Avoid any distractions to ensure that you will be able to put all your thoughts and ideas onto paper.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Writing a Script for a YouTube Video
 
 Now that you're ready to sit down and write, here's what you do:
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 1\. Create an outline for your story
 
 The first step in writing a script is to develop an outline for the story. You might think that it is an unnecessary step, but it’s one of the most important steps to writing a script. The outline serves as a guide that will make the finished product better compared to when you just tried to wing it. One tip on how to write a script for a YouTube video is to have an outline for the beginning, middle, and ending of the video. Once you have all the elements of the story, then you can start with the first draft of the script.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### 2\. Set the tone
 
 The tone you pick for the video will depend on your audience. It’s safe to assume that viewers want something that’s unique, informative, and engaging. In some cases, they look for a video that’s personal, and they can relate to it. Humor is also something that you should consider when writing a script.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ### 3\. Just keep writing
 
 When you start writing it is important that you keep on doing it no matter what happens. Just write down everything that comes into your mind. After that, read what you’ve written. If you think that something needs to be replaced, then replace it. If you get more inspiration and think that the script is lacking, then add to it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ### 4\. Make sure that the script is well structured
 
 It’s important to learn how to write a script that is well structured. Divide the script into four parts: Opening, Primer, Body, and Closing.
@@ -101,6 +97,10 @@ While you are scripting and focusing on the information you want to deliver, it�
 
 Remember to refer to your audience as ‘you’, not ‘you guys’ (you are speaking to individual viewers, not a collective) and to include moments of engagement throughout your videos. Ask your viewers questions to keep their minds active, this also encourages them to leave comments.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## After Writing your YouTube Video Script
 
 After writing the script, the next step is to invite a trusted friend or family member to look at the script. Ask them for their feedback and if they have any ideas to add. And don’t forget, be open-minded to feedback
@@ -116,23 +116,20 @@ Creating subtitles with Wondershare Filmora is very easy and a newbie can easily
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-spreadsheet-free-excel-editor-online-offline-1x.93e269d.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +138,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-digital-canvas-unveiled-top-8-ipados-creators-choice/"><u>[New] Digital Canvas Unveiled Top 8 iPadOS Creators' Choice</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-expert-tips-for-crafting-top-notch-video-hashtags/"><u>[New] In 2024, Expert Tips for Crafting Top-Notch Video Hashtags</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-no-fee-audio-understanding-tool/"><u>[New] No-Fee Audio Understanding Tool</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-blueprints-for-making-youtube-intro-videos-that-stick/"><u>[Updated] 2024 Approved Blueprints for Making YouTube Intro Videos that Stick</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-effortlessly-engage-with-an-array-of-available-youtube-content-for-2024/"><u>[Updated] Effortlessly Engage with an Array of Available YouTube Content for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-your-key-to-creative-advertising-access-all-50-free-youtube-banner-designs/"><u>[Updated] In 2024, Your Key to Creative Advertising Access All 50 FREE YouTube Banner Designs</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-top-10-audio-amplifiers-windows-mac-android-and-ios/"><u>[Updated] Top 10 Audio Amplifiers Windows, Mac, Android & iOS</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-masterclass-beginners-kit-free-courses-collection-for-2024/"><u>[Updated] YouTube Masterclass Beginners Kit Free Courses Collection for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-create-fantastic-youtube-description-with-templates-to-get-more-viewers/"><u>2024 Approved Create Fantastic YouTube Description With Templates To Get More Viewers</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/charge-speed-tracking-on-macbooks-without-a-display-metric-tech-tips-by-zdnet/"><u>Charge Speed Tracking on MacBooks Without a Display Metric - Tech Tips by ZDNet</u></a></li>
+<li><a href="https://fox-where.techidaily.com/detecting-malware-and-viruses-a-comprehensive-guide-tech-insights-by-yl/"><u>Detecting Malware and Viruses: A Comprehensive Guide - Tech Insights by YL</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/te-your-youtube-profitability-anywhere-anytime/"><u>Elevate Your Youtube Profitability Anywhere, Anytime</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-t2-pro-5g-phone-with-broken-screen-by-drfone-android/"><u>How to Unlock Vivo T2 Pro 5G Phone with Broken Screen</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-infinix-hot-30-5g-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Infinix Hot 30 5G FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/solutions-for-overcoming-chromes-failed-download-due-to-suspicious-file-alert/"><u>Solutions for Overcoming Chrome's 'Failed Download Due to Suspicious File' Alert</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Verdict on Unihertz Atom XL - Small Size, Huge Durability and Performance!
-date: 2024-12-18T16:59:23.294Z
-updated: 2024-12-22T16:59:36.214Z
+date: 2025-01-01T17:49:20.126Z
+updated: 2025-01-06T17:10:09.970Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Verdict on Unihertz Atom XL - Small Size, Huge Durability and Performance!
@@ -17,6 +17,10 @@ thumbnail: https://www.lifewire.com/thmb/G_k85uM6rdIn8lEZfqHd0vFtWrE=/400x300/fi
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Microsoft Sculpt Ergonomic Keyboard
 
@@ -46,12 +50,16 @@ Lifewire / Emily Isaacs
 
 4.4
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -88,10 +96,6 @@ Lifewire / Emily Isaacs
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Setup Process: Batteries required**
 
  The Microsoft Sculpt arrives in a box with the Sculpt itself, a detached numpad, a setup guide, a registration number, and a product guide. Microsoft provides a magnetic riser that can attach to the bottom of the wrist pad as an additional setup option. It also includes a warning packet on lithium batteries since the detached numpad is powered by a 3V lithium CR2430 battery.
@@ -99,16 +103,12 @@ Lifewire / Emily Isaacs
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/MTaN1qUX3urJwcwQ_tv5g532Af4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_03-ec82ba429b58431eabefb1f147f474b9.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
  Setting the Microsoft Sculpt up is simple. Simply lift the lid off of the battery compartment on the backside of the unit and remove the slip of paper that separates the two AAA batteries. Then, take the provided dongle from the compartment and attach it to the[USB port](https://www.lifewire.com/what-is-a-usb-port-818166) of your PC. If you’re planning on using the detached numpad, don’t forget to also remove the slip of paper from its backside to active it. Then the Sculpt is ready for use.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Battery and Features: Backlighting missing, and just one dongle to rule them all**
 
@@ -118,15 +118,15 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -184,21 +184,19 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/0-power-players-youtubes-ladies-in-gaming-for-2024/"><u>[New] 10 Power Players YouTube's Ladies in Gaming for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-entrepreneur-writes-top-youtube-sites-for-business-success/"><u>[New] 2024 Approved Entrepreneur' Writes Top YouTube Sites for Business Success</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-from-beginners-to-pros-choosing-webcams-for-youtube-live/"><u>[New] 2024 Approved From Beginners to Pros Choosing Webcams for YouTube Live</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-master-video-production-best-lenses-for-online-platforms/"><u>[New] 2024 Approved Master Video Production Best Lenses for Online Platforms</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-safely-save-your-streaming-stash-with-these-free-tools/"><u>[New] 2024 Approved Safely Save Your Streaming Stash with These Free Tools</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-comprehensive-list-of-the-best-10-low-cost-video-production-schools-on-youtube/"><u>[New] A Comprehensive List of the Best 10 Low-Cost Video Production Schools on YouTube</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-leading-intro-editors-for-device-applications/"><u>[New] Leading Intro Editors for Device Applications</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-top-15-ff-extensions-for-easy-fb-video-download/"><u>2024 Approved Top 15 FF Extensions For Easy FB Video Download</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/exploring-the-security-do-privacy-leaks-plague-chatgpt-interactions/"><u>Exploring the Security: Do Privacy Leaks Plague ChatGPT Interactions?</u></a></li>
-<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-lava-blaze-2-5g-frp-by-drfone-android/"><u>Full Guide to Bypass Lava Blaze 2 5G FRP</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-infinix-smart-8-pro-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Infinix Smart 8 Pro Device</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/new-discover-the-best-free-3d-animation-apps-for-android-and-ios-devices/"><u>New Discover the Best Free 3D Animation Apps for Android and iOS Devices</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-fitbit-charge-3-reviewed-has-it-maintained-its-edge-over-new-competitors/"><u>The Fitbit Charge 3 Reviewed: Has It Maintained Its Edge Over New Competitors?</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/updated-2024-approved-install-vllo-on-mac-and-browse-alternative-solutions/"><u>Updated 2024 Approved Install VLLO on Mac and Browse Alternative Solutions</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-growth-booster-top-seo-tools-uncovered-for-2024/"><u>Video Growth Booster – Top SEO Tools Uncovered for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/which-browser-minimizes-cpu-and-ram-on-triple-system-os/"><u>Which Browser Minimizes CPU and RAM On Triple System OS?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aking-everyday-moments-memorable-on-youtube-for-2024/"><u>[New] Making Everyday Moments Memorable on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-profitability-initial-steps-to-earnings-for-2024/"><u>[New] YouTube Profitability Initial Steps to Earnings for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-amplify-content-with-free-audio-samples/"><u>[Updated] Amplify Content with Free Audio Samples</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-zero-to-hero-your-first-time-streaming-to-youtube/"><u>[Updated] From Zero to Hero Your First Time Streaming to Youtube</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-the-effectiveness-of-instagrams-selfie-authenticity-feature/"><u>2024 Approved The Effectiveness of Instagram's Selfie Authenticity Feature</u></a></li>
+<li><a href="https://apple-account.techidaily.com/apple-id-locked-for-security-reasons-on-apple-iphone-6-find-the-best-solution-here-by-drfone-ios/"><u>Apple ID Locked for Security Reasons On Apple iPhone 6? Find the Best Solution Here</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/fixing-blue-screen-of-death-solutions-for-video-memory-handling-issues/"><u>Fixing Blue Screen of Death: Solutions for Video Memory Handling Issues</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-strategic-hashing-techniques-for-success-in-youtube-game-vids/"><u>In 2024, Strategic Hashing Techniques for Success in YouTube Game Vids</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/ipad-showdown-a-detailed-analysis-of-ipad-pro-and-ipad-air-to-determine-the-ultimate-apple-tablet-for-you-zdnet-insights/"><u>IPad Showdown: A Detailed Analysis of iPad Pro and iPad Air to Determine the Ultimate Apple Tablet for You | ZDNET Insights</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/massive-savings-alert-celebrate-best-buys-milestone-with-unbeatable-deals-on-tech-gadgets-including-tablets-and-watches/"><u>Massive Savings Alert: Celebrate Best Buy's Milestone with Unbeatable Deals on Tech Gadgets Including Tablets & Watches</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/quick-and-easy-fixes-to-correct-steams-disk-write-failures/"><u>Quick & Easy Fixes to Correct Steam's Disk Write Failures</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/angers-of-buying-fake-youtube-subscribers-for-2024/"><u>The Dangers of Buying Fake YouTube Subscribers for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/toms-tech-review-comprehensive-insights-into-hardware/"><u>Tom's Tech Review: Comprehensive Insights Into Hardware</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-10-online-resources-for-efficient-apartment-hunting/"><u>Top 10 Online Resources for Efficient Apartment Hunting</u></a></li>
 </ul></div>
 

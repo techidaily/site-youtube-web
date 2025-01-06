@@ -1,7 +1,7 @@
 ---
 title: "Simple Steps for Incorporating Videos Into Articles for 2024"
-date: 2024-08-23T02:38:51.560Z
-updated: 2024-08-24T02:38:51.560Z
+date: 2025-01-03T19:08:28.323Z
+updated: 2025-01-06T16:13:47.272Z
 tags:
   - ai video
   - ai youtube
@@ -40,11 +40,19 @@ Head over to the Insert tab, select Rectangle from the Shapes menu, and create a
 
 ![Add video to text - Powerpoint- insert shape](https://images.wondershare.com/filmora/article-images/insert-rectangle-shape.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The next step you will have to take is to create the cut-out of the text within the rectangle. Select both the text and shape you placed in the background before clicking on the Format tab that is located near the end of PowerPoint’s ribbon.
 
 Find the Insert Shape option and choose Subtract from the Merge Shapes drop-down menu. The shape of the text in the textbox will be applied to the object in the background, which enables you to add a video to that text.
 
 ![Add video to text - Powerpoint- substract](https://images.wondershare.com/filmora/article-images/subtract-from-merge-shapes.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the Insert tab, and then choose the Video option from the Media menu. You can [insert a video](https://tools.techidaily.com/wondershare/filmora/download/) that is stored on a local hard drive or the Internet to PowerPoint. The video will cover the entire slide, so you must right-click on it and select the Send to Back option.
 
@@ -64,11 +72,19 @@ Set the preferred duration of the title by dragging one of its ends to the left 
 
 ![Add video to text - Filmora9 Advanced Editing](https://images.wondershare.com/filmora/article-images/make-text-video-advanced-text-edit.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Proceed to select a font and adjust the text size before deciding if you want to [animate the text](https://tools.techidaily.com/wondershare/filmora/download/). When done, you should export the title as a video file, and then import it back into your project.
 
 Now it’s time to add the text video and the background video to the project media library, and then place the two videos one above the other. Since we’re adding video to text, the text video should be placed above the background video.
 
 ![Add video to text - Filmora9 Compositing](https://images.wondershare.com/filmora/article-images/compositing-video-9.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click on the video that contains text to gain access to the Video tab of the Editor panel and then expand the Compositing menu. Change the Blending Mode to Multiply, and the text in the overlaying video should be filled with the parts of the footage from the video below it.
 
@@ -82,20 +98,21 @@ Merging text with video is equally easy in PowerPoint and Filmora, so you just h
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,8 +121,18 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/iy-guide-zero-cost-youtube-intros-and-template-usage/"><u>[New] DIY Guide Zero Cost YouTube Intros & Template Usage</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-insightful-cloud-costs-price-comparison-and-recommendations/"><u>[New] Insightful Cloud Costs Price, Comparison & Recommendations</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-utilizing-famebit-techniques-for-youtube-sponsorship-success/"><u>[Updated] 2024 Approved Utilizing FameBit Techniques for YouTube Sponsorship Success</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-micro-moments-of-fame-do-youtubes-shorts-or-tiktoks-get-the-edge/"><u>[Updated] In 2024, Micro-Moments of Fame Do YouTubes Shorts or TikToks Get the Edge?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unleash-creativity-pro-guide-for-youtube-studio-editing-for-2024/"><u>[Updated] Unleash Creativity Pro Guide for YouTube Studio Editing for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-shorts-music-things-you-need-to-know/"><u>[Updated] YouTube Shorts Music - Things You Need to Know</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/best-desktop-computers-for-2024/"><u>Best Desktop Computers for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/data-salvation-bringing-backed-emailboxes-to-active-exchange/"><u>Data Salvation: Bringing Backed Emailboxes to Active Exchange</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-xiaomi-redmi-note-12-5g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Xiaomi Redmi Note 12 5G | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/stellar-data-recovery-for-iphone-11-pro-max-failed-to-recognize-my-iphone-how-to-fix-it-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>Stellar Data Recovery for iPhone 11 Pro Max failed to recognize my iPhone. How to fix it? | Stellar</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/unfolding-the-potential-of-lenovos-revolutionary-thinkpad-x1-fold-laptop/"><u>Unfolding the Potential of Lenovo's Revolutionary ThinkPad X1 Fold Laptop</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

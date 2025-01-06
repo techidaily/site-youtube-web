@@ -1,7 +1,7 @@
 ---
 title: "Tailoring Audience for Your Youtube Videos"
-date: 2024-12-16T16:34:33.849Z
-updated: 2024-12-22T16:39:28.536Z
+date: 2025-01-04T19:20:56.944Z
+updated: 2025-01-06T18:40:09.669Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Public VS Unlisted VS Private
@@ -69,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -89,11 +85,11 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
- To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+ To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
 ## Part 3: Sharing Private Videos
 
@@ -102,7 +98,7 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -112,10 +108,14 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZeYbTVeaXg0?si=rwLL1DbBoX26BGjm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,18 +138,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-learn-how-to-add-descriptive-texts-to-your-youtube-videos/"><u>[New] 2024 Approved Learn How to Add Descriptive Texts to Your YouTube Videos</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-unboxing-high-fidelity-gaming-recorders/"><u>[New] 2024 Approved Unboxing High-Fidelity Gaming Recorders</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/inge-watching-to-billions-jake-pauls-video-venture/"><u>[New] Binge-Watching to Billions Jake Paul's Video Venture</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-key-practices-for-soundless-media-gathering/"><u>[New] In 2024, Key Practices for Soundless Media Gathering</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-exploring-effective-financial-gains-through-youtube-shorts/"><u>[Updated] Exploring Effective Financial Gains Through YouTube Shorts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-identify-the-best-8-services-to-enhance-youtube-engagement/"><u>[Updated] In 2024, Identify the Best 8 Services to Enhance YouTube Engagement</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-leveraging-facetimes-features-for-exceptional-audio-capturing/"><u>[Updated] Leveraging FaceTime's Features for Exceptional Audio Capturing</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-lighten-your-livestreams-selecting-5-brightening-tech/"><u>2024 Approved Lighten Your Livestreams Selecting 5 Brightening Tech</u></a></li>
-<li><a href="https://win-studio.techidaily.com/beginners-guide-mastering-your-dj-controller-with-pcdj-essential-tips-and-tricks/"><u>Beginner's Guide: Mastering Your DJ Controller with PCDJ - Essential Tips & Tricks</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/raphic-relevance-for-higher-youtube-rankings-for-2024/"><u>Demographic Relevance for Higher YouTube Rankings for 2024</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/expert-evaluation-of-the-imo-chat-application-features/"><u>Expert Evaluation of the Imo Chat Application Features</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/1723864249492-pre-order-now-sabrents-high-performance-rocket-5-ssds-from-just-190/"><u>Pre-Order Now: Sabrent's High-Performance Rocket 5 SSDs From Just $190!</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nimators-odyssey-crafting-your-own-fx-realm-for-2024/"><u>The Animator's Odyssey Crafting Your Own FX Realm for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-learn-the-ins-and-outs-of-adding-gifs-on-instagram-in-4-steps/"><u>[New] In 2024, Learn the Ins and Outs of Adding GIFs on Instagram in 4 Steps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-maximizing-youtube-engagement-with-strategic-hashes/"><u>[New] In 2024, Maximizing YouTube Engagement with Strategic Hashes</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-invisible-trail-hidden-steps-for-tracking-whatsapp-calls/"><u>[New] The Invisible Trail Hidden Steps for Tracking WhatsApp Calls</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-zeroing-in-on-your-ideal-youtube-subset/"><u>[Updated] 2024 Approved Zeroing In on Your Ideal YouTube Subset</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-comparing-social-platforms-facebook-live-vs-youtube-live-and-twitter-periscope-for-2024/"><u>[Updated] Comparing Social Platforms Facebook LIVE Vs. YouTube Live & Twitter Periscope for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-often-do-youtubers-receive-income-in-2024/"><u>[Updated] How Often Do YouTubers Receive Income, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-efficient-techniques-for-youtube-shorts-revenue/"><u>2024 Approved Efficient Techniques for YouTube Shorts Revenue</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-auto-lock-greyed-out-on-apple-iphone-13-pro-max-drfone-by-drfone-ios/"><u>How To Fix Auto Lock Greyed Out on Apple iPhone 13 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-reset-your-iphone-14-plus-without-itunes-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset Your iPhone 14 Plus Without iTunes? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-safely-extract-youtube-audio-a-study-of-3-techniques-for-2024/"><u>How to Safely Extract YouTube Audio A Study of 3 Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-mastering-youtubes-studio-editor-comprehensive-video-edits/"><u>In 2024, Mastering YouTube's Studio Editor Comprehensive Video Edits</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-privacy-settings-hiding-spam-and-unknown-callers-on-iphone/"><u>Mastering Privacy Settings: Hiding Spam and Unknown Callers on iPhone</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/update-and-install-amd-vega-56-graphics-card-drivers-on-windows-step-by-step-guide/"><u>Update and Install AMD Vega 56 Graphics Card Drivers on Windows: Step-by-Step Guide</u></a></li>
 </ul></div>
 

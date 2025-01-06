@@ -1,7 +1,7 @@
 ---
 title: Comprehensive Guide for Fixing Error Code 277 in Roblox (PC Version)
-date: 2024-12-21T16:05:55.899Z
-updated: 2024-12-22T17:07:58.229Z
+date: 2025-01-02T17:15:55.403Z
+updated: 2025-01-06T20:10:17.382Z
 tags:
   - win11
   - win10
@@ -24,6 +24,10 @@ Players have been reported encountering an error**ERR\_GFX\_STATE** while trying
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Try these fixes
 
  You may not need to try them all; simply work your way down the list until you find the one that works.
@@ -42,7 +46,7 @@ Players have been reported encountering an error**ERR\_GFX\_STATE** while trying
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 2: Clean update the graphics driver
@@ -58,6 +62,10 @@ To do a clean reinstallation of the display card driver with DDU:
 2. Download DDU from the[**official download page**](https://www.guru3d.com/files-details/display-driver-uninstaller-download.html) . Then unzip the folder, and double-click the**DDU** file to further extract the execution file.  
 ![](https://www.drivereasy.com/wp-content/uploads/2024/02/ddu-3.png)
 3. Boot your computer into Safe Mode as instructed here:[**Start Safe Mode using the System Configuration tool**](https://tools.techidaily.com/drivereasy/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 4. When in Safe Mode, go to the folder where you unzip the DDU execution file. Double-click to run**Display Driver Uninstaller** .  
 ![](https://www.drivereasy.com/wp-content/uploads/2024/02/ddu-2.png)
@@ -77,10 +85,6 @@ To do a clean reinstallation of the display card driver with DDU:
 2. Run Driver Easy and click the **Scan Now** button. Driver Easy will then scan your computer and detect any problem drivers.  
 ![](https://www.drivereasy.com/wp-content/uploads/2020/10/6_0_scan-now.jpg)
 3. Click the**Activate & Update** button next to the flagged device to automatically download and install the correct version of this driver.  
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Or click **Update All** to automatically download and install the correct version of all the drivers that are missing or out of date on your system (You’ll need the **[Pro version](https://tools.techidaily.com/drivereasy/download/)**  for this – when you select Update All, you’ll get a prompt to upgrade. If you’re not prepared to purchase the Pro version yet, Driver Easy provides a 7-day trial at no cost, granting access to all Pro features like fast downloads and easy installation. No charges will occur until after your 7-day trial period ends.)  
 ![](https://www.drivereasy.com/wp-content/uploads/2021/05/NVIDIA-GeForce-RTX-3090-Ti.jpg)
@@ -113,10 +117,6 @@ To verify the game’s files on Epic Games Launcher:
 
 4. When the validation is done, run your Red Dead Redemption 2 again to see if the ERR\_GFX\_STATE error remains.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Steam
 
 1. Launch Steam.
@@ -126,17 +126,17 @@ To verify the game’s files on Epic Games Launcher:
 3. Select the**Installed Files** tab and click on the**Verified integrity of game files** button.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![Steam - how to verify integrity of game files](https://images.drivereasy.com/wp-content/uploads/2023/10/Steam-verify-integrity-of-game-files.jpg)
 4. Steam will verify the game’s files – this process may take several minutes.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5. When the verification is done, check to see if the Red Dead Redemption 2 still has the ERR\_GFX\_STATE error. If so, please move on to the next fix.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Rockstar Games Launcher
 
@@ -158,7 +158,7 @@ To verify the game’s files on Epic Games Launcher:
 2. Right-click the**system.xml** file and open it with an editor. Here, we use Visual Studio Code, but you can go with Notepad, Notepad++ or any other similar editor.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://www.drivereasy.com/wp-content/uploads/2020/10/rdr2-settings-edit.png)
@@ -173,7 +173,7 @@ To verify the game’s files on Epic Games Launcher:
 ---
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Fix 5: Delete SGA files
@@ -185,10 +185,14 @@ To verify the game’s files on Epic Games Launcher:
 2. Now you can see three files that begin with**sga** . These are the files that cause the error. So you need to delete them. And your game would not crash again.  
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![](https://www.drivereasy.com/wp-content/uploads/2020/10/files-that-begin-with-sga.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  If deleting these files didn’t work for you, you can alternatively create three empty text files of size 0B and make those files read-only. Also, change the names to**sga\_xxx** accordingly. This might be very specific to your setup and the true root cause you’re having.
 
@@ -204,16 +208,17 @@ To verify the game’s files on Epic Games Launcher:
 * [**Epic Games Launcher**](https://tools.techidaily.com/drivereasy/download/)
 * [**Steam**](https://tools.techidaily.com/drivereasy/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Rockstar Games Launcher
 
 1. Open your Rockstar Games Launcher and select**Settings** .
 2. Under**My installed Games** , select**Red Dead Redemption 2** .  
 ![](https://www.drivereasy.com/wp-content/uploads/2020/11/rockstar.jpg)
 3. Scroll down to**Launch arguments** . In the text box, add**\-ignorpipelinecache** .  
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![](https://www.drivereasy.com/wp-content/uploads/2020/11/command-line-arguments.jpg)
 4. Now launch your game to check if it did the trick.
 
@@ -223,10 +228,6 @@ To verify the game’s files on Epic Games Launcher:
 2. Scroll down to**Red Dead Redemption 2** . Tick the box**Additional Command Line Arguments** .
 3. In the text box, add**\-ignorepipelinecache** .
 4. Return to the Main Menu and launch your game to check if it did the trick.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Steam Launcher
 
@@ -256,18 +257,21 @@ To verify the game’s files on Epic Games Launcher:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-a-compreayers-guide-to-monetizing-videos-critical-view-figures/"><u>[New] 2024 Approved A Compreayer's Guide to Monetizing Videos Critical View Figures</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-a-visual-voyage-through-youtubes-2017-data-deluge/"><u>[New] 2024 Approved A Visual Voyage Through Youtube's 2017 Data Deluge</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-download-youtube-videos-to-mp4-without-breaching-laws/"><u>[New] 2024 Approved Download YouTube Videos to MP4 without Breaching Laws</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-from-scripted-to-spontaneous-elevating-reactions-for-youtube-success-3-steps/"><u>[New] 2024 Approved From Scripted to Spontaneous Elevating Reactions for YouTube Success (3 Steps)</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/new-capturing-the-cloud-proven-methods-for-perfecting-drones-in-post-production/"><u>[New] Capturing the Cloud Proven Methods for Perfecting Drones in Post-Production</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/evolutionize-advertising-try-all-50-available-free-youtube-banners-for-2024/"><u>[New] Revolutionize Advertising – Try All 50 Available FREE YouTube Banners for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-celebrity-quick-shot-analysis-for-2024/"><u>[Updated] Celebrity Quick Shot Analysis for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/approved-the-quickstep-into-viral-audio-youtubes-short-musical-journey/"><u>2024 Approved The Quickstep Into Viral Audio YouTube's Short Musical Journey</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/a-how-to-guide-on-bypassing-the-iphone-12-pro-max-icloud-lock-by-drfone-ios/"><u>A How-To Guide on Bypassing the iPhone 12 Pro Max iCloud Lock</u></a></li>
-<li><a href="https://article-helps.techidaily.com/from-sound-to-sight-choosing-between-audio-and-video-media/"><u>From Sound to Sight Choosing Between Audio and Video Media</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-10-best-fake-gps-location-spoofers-for-oppo-a1-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 10 Best Fake GPS Location Spoofers for Oppo A1 5G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-zte-nubia-z60-ultra-drfone-by-drfone-virtual-android/"><u>In 2024, Here are Some Pro Tips for Pokemon Go PvP Battles On ZTE Nubia Z60 Ultra | Dr.fone</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/snapdragon-xs-elite-graphics-card-disabled-by-default-understanding-the-impact-of-linux-patch-and-missing-oem-keys/"><u>Snapdragon X's Elite Graphics Card Disabled by Default: Understanding the Impact of Linux Patch and Missing OEM Keys</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/levate-engagement-top-hashtags-for-gameplay-vids/"><u>[New] Elevate Engagement Top Hashtags for Gameplay Vids</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/levate-your-channels-image-for-boosted-youtube-subscriptions-for-2024/"><u>[New] Elevate Your Channels' Image for Boosted YouTube Subscriptions for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-evolved-suite-of-windows-media-editors/"><u>[Updated] Evolved Suite of Windows Media Editors</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-profiling-success-a-step-by-step-guide/"><u>[Updated] Profiling Success A Step-by-Step Guide</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-elevate-your-nba-experience-with-these-15-tips/"><u>2024 Approved Elevate Your NBA Experience with These 15 Tips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-professionals-picks-best-editors-for-online-streams/"><u>2024 Approved Professionals' Picks Best Editors for Online Streams</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/ace-system-admin-duties-swiftly-and-affordably-at-16-with-windows-powershell-guidance-on-zdnet/"><u>Ace System Admin Duties Swiftly and Affordably at $16 with Windows PowerShell Guidance on ZDNet</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/bridging-the-gap-understanding-and-using-slug-lines/"><u>Bridging the Gap Understanding & Using Slug Lines</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722978983914-discover-enhanced-performance-update-your-logitech-extreme-3d-pro-drivers-today/"><u>Discover Enhanced Performance: Update Your Logitech Extreme 3D Pro Drivers Today!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tial-insights-on-asmr-videos-for-2024/"><u>Essential Insights on ASMR Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-future-of-cosmetics-youtube-gurus-on-the-rise/"><u>In 2024, Future of Cosmetics YouTube Gurus on the Rise</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-samsung-galaxy-a25-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Samsung Galaxy A25 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Oppo Find X7? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ating-through-youtubes-minis-for-2024/"><u>Navigating Through YouTube's Minis for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/refreshed-array-of-podcast-interviews-to-attract-listeners/"><u>Refreshed Array of Podcast Interviews to Attract Listeners</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ifa-footage-trends-captured-in-infographics-for-2024/"><u>Top FIFA Footage Trends Captured in Infographics for 2024</u></a></li>
 </ul></div>
 
