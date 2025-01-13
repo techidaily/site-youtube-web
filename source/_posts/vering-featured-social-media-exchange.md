@@ -1,7 +1,7 @@
 ---
 title: "Discovering Featured Social Media Exchange"
-date: 2025-01-02T16:05:14.569Z
-updated: 2025-01-06T20:11:02.004Z
+date: 2025-01-10T00:29:14.592Z
+updated: 2025-01-13T01:20:42.488Z
 tags:
   - ai video
   - ai youtube
@@ -42,6 +42,10 @@ If you own a YouTube channel or are starting one, even you can do this. Without 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: What Does The Highlighted Comment Mean On YouTube?
 
 Before you get on with highlighting your comments, you must understand what it means exactly. You may follow comments on the videos posted by several YouTubers, but the highlighted ones are always making it to the top of the list.
@@ -59,26 +63,22 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
@@ -90,7 +90,7 @@ Thus, anybody who wants to get their YouTube comment an HC tag has to follow a f
 For example, if you are a YouTuber who deals in tech information, you need to look for a popular video or channel with a similar genre, in this case, technical knowledge. The more popular the channel is, the more is the chance of a viewer checking the comments on its videos. You will only benefit if you're comment is highlighted on pages of Youtuber's who are huge.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Get the URL of Highlighted Comments?
@@ -101,11 +101,11 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: How to Reply to Highlighted Comments?
 
@@ -180,24 +180,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-deciphering-the-wealth-of-mr-beast/"><u>[New] 2024 Approved Deciphering the Wealth of Mr. Beast</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-mastering-deleted-yt-content-two-simplified-approaches/"><u>[New] In 2024, Mastering Deleted YT Content Two Simplified Approaches</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-unmatched-youtube-success-10-unique-tips-for-your-shorts/"><u>[New] In 2024, Unmatched YouTube Success 10 Unique Tips for Your Shorts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nlocking-the-mysteries-behind-youtube-wealth-ajey-nagar-edition/"><u>[New] Unlocking the Mysteries Behind YouTube Wealth - Ajey Nagar Edition</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ogi-essentials-top-ten-web-channels-for-exercise/"><u>[New] Yogi Essentials Top Ten Web Channels for Exercise</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-elevate-your-channel-identity-essential-youtube-naming-strategies/"><u>[Updated] 2024 Approved Elevate Your Channel Identity Essential YouTube Naming Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-find-8-digital-hubs-offering-free-green-screen-elements-and-scenes/"><u>[Updated] 2024 Approved Find 8 Digital Hubs Offering Free Green-Screen Elements & Scenes</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-liveaction-gaming-diary/"><u>[Updated] 2024 Approved LiveAction Gaming Diary</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-foremost-zooid-beginnings-guide/"><u>[Updated] Foremost Zooid Beginnings Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unveiling-the-leading-10-no-cost-youtube-channels-for-stunning-visuals/"><u>[Updated] In 2024, Unveiling the Leading 10 No-Cost YouTube Channels for Stunning Visuals</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-masterful-lighting-techniques-for-iphone-users/"><u>2024 Approved Masterful Lighting Techniques for IPhone Users</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-mobile-savvy-tailoring-youtube-video-thumbnails-with-phones/"><u>2024 Approved Mobile-Savvy Tailoring YouTube Video Thumbnails with Phones</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/elevate-your-office-styling-skills-in-libreoffice-unique-tips-and-insights-from-zdnet/"><u>Elevate Your Office Styling Skills in LibreOffice: Unique Tips & Insights From ZDNet</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/elevate-your-stories-advanced-bokeh-techniques-for-2024/"><u>Elevate Your Stories Advanced Bokeh Techniques for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/exploring-dji-phantom-3s-advanced-aerial-capabilities/"><u>Exploring DJI Phantom 3’S Advanced Aerial Capabilities</u></a></li>
-<li><a href="https://games-able.techidaily.com/screen-and-sanctuary-packing-essentials-for-travel-gamers/"><u>Screen & Sanctuary: Packing Essentials for Travel Gamers</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/step-by-step-fixes-for-a-broken-skype-mic-configuration-on-windows-10/"><u>Step-by-Step Fixes for a Broken Skype Mic Configuration on Windows 10</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/step-by-step-guide-importing-audio-for-inshot-edits-for-2024/"><u>Step-by-Step Guide Importing Audio for InShot Edits for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/king-secure-video-sharing-youtube-to-gmail-with-google-access-for-2024/"><u>Unlocking Secure Video Sharing YouTube to Gmail with Google Access for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unveiling-the-secrets-of-iphones-video-loops/"><u>[New] 2024 Approved Unveiling the Secrets of iPhone's Video Loops</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-effective-legal-strategies-for-content-visibility/"><u>[New] In 2024, Effective, Legal Strategies for Content Visibility</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-livestream-leaders-guide-elevating-pre-recorded-videos-on-social-media/"><u>[New] Livestream Leaders' Guide Elevating Pre-Recorded Videos on Social Media</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-platforms-showcasing-googles-video-partner-program/"><u>[Updated] 2024 Approved Platforms Showcasing Google's Video Partner Program</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-5-winter-scenes-to-enhance-your-video-warmth/"><u>[Updated] 2024 Approved Top 5 Winter Scenes to Enhance Your Video Warmth</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-undo-youtubes-timeline-with-our-4-key-methods/"><u>[Updated] 2024 Approved Undo YouTube's Timeline with Our 4 Key Methods</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-beginners-guide-to-choosing-lenses-and-cameras-for-youtube-vloggers-for-2024/"><u>[Updated] Beginner's Guide to Choosing Lenses and Cameras for YouTube Vloggers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-revenue-realms-of-youtube-from-virtual-viewership-to-banknotes-for-2024/"><u>[Updated] Revenue Realms of YouTube From Virtual Viewership to Banknotes for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-what-is-mukbang-and-how-to-make-mukbang-videos-for-2024/"><u>[Updated] What Is Mukbang and How to Make Mukbang Videos for 2024</u></a></li>
+<li><a href="https://win-rankings.techidaily.com/1728474826469-7/"><u>「不注意にデータが消えちゃった？この7つの復元手順ですぐに取り戻せる方法」</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-tricks-to-enhance-your-ppt-impact-on-google-meet-any-device/"><u>2024 Approved Tricks to Enhance Your PPT Impact on Google Meet, Any Device</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/fifa-19-game-analysis-tops-the-league-in-sporty-virtual-battles/"><u>FIFA 19 Game Analysis: Tops the League in Sporty Virtual Battles</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/how-to-keep-your-feed-pure-stop-suggested-posts/"><u>How to Keep Your Feed Pure Stop Suggested Posts</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-music-from-xiaomi-redmi-13c-5g-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Music from Xiaomi Redmi 13C 5G to iPod | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-ultimate-list-of-best-hashtags-for-yt-view-spikes/"><u>In 2024, The Ultimate List of Best Hashtags for YT View Spikes</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-split-your-videos-with-ease-top-5-free-software/"><u>New 2024 Approved Split Your Videos with Ease Top 5 Free Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ct-your-clips-step-by-step-youtube-editing-tips/"><u>Perfect Your Clips Step-by-Step YouTube Editing Tips</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/the-best-android-sim-unlock-code-generators-unlock-your-samsung-galaxy-s23-fe-phone-hassle-free-by-drfone-android/"><u>The Best Android SIM Unlock Code Generators Unlock Your Samsung Galaxy S23 FE Phone Hassle-Free</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-does-the-pokemon-go-battle-league-not-available-on-oppo-a1x-5g-drfone-by-drfone-virtual-android/"><u>Why does the pokemon go battle league not available On Oppo A1x 5G | Dr.fone</u></a></li>
 </ul></div>
 
