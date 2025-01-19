@@ -1,7 +1,7 @@
 ---
 title: "[New] YouTube Optimization for New Vloggers"
-date: 2024-08-15T22:28:28.295Z
-updated: 2024-08-16T22:28:28.295Z
+date: 2025-01-13T18:01:05.755Z
+updated: 2025-01-18T19:35:09.944Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,10 @@ Okay, don’t panic! There is a fantastic quote, credited to bestselling author,
 
 ![fantastic quote](https://images.wondershare.com/filmora/article-images/fantastic-quote-do-not-compare-beginning-to-middle.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 While researching your competition, you will feel overwhelmed, but remember, you are at the beginning, and Gordon Ramsay and Jamie Oliver are not even at their middle, they are way passed the finish line. You still have a long journey to go, so don’t get discouraged, get inspired!
 
 Watch those videos and understand what they are all about.
@@ -84,11 +88,19 @@ Once you have an idea of what people are searching for related to your topic, yo
 
 ![Find Keywords with Ubersuggest](https://images.wondershare.com/filmora/article-images/keyword-seo-tool-ubersuggest.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This app gives you a whole list of long-tail keywords, which are 3-4-word phrases which is specific to what your video is about.
 
 Some you will use to dig deeper in and other you will deem irrelevant to your videos. A good way of determining the value of a keyword is by the stats the application shows.
 
 ![ Keywords in Ubersuggest](https://images.wondershare.com/filmora/article-images/find-keywords-with-ubersuggest.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ####  
 
@@ -156,9 +168,6 @@ Have the specific keywords at the top, followed by more general keywords, and th
 
 **Branded**: Gordon Ramsay scrambled eggs
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
-<!-- affiliate ads end -->
 ## Part 2: Make The Best Darn Video Possible
 
 It doesn’t matter how relevant your keywords are or how epic your title is, if you video sucks (i.e. your viewers click in and leave right away), YouTube will not show it in search.
@@ -202,8 +211,9 @@ You could have made a brilliant video, but if you have a poor quality thumbnail 
 Your viewers will absolutely judge your video by its cover so it’s important to put some thought into it and not solely rely on the three random thumbnail choices that YouTube picks for you.
 
 ![Design a Thumbnail](https://images.wondershare.com/filmora/article-images/design-youtube-video-thumbnail.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Take a look at your competition. If they all look the same, do something different. Add text or a human face (preferably yours) to evoke emotion, as viewers are more likely to click into a video if they see an expressive image.
@@ -214,18 +224,11 @@ You can use an online service called [Canva](https://www.canva.com/)or download 
 
 Want to know more thumbnail maker? Check our picks of the [best free YouTube thumbnail makers](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: Publishing With Attention to Optimization
 
 Well done finishing the video! You are almost there… but not there yet.
 
 ![XDyocwuGRiSptxueJZ5aokKqKt-JXMbX](https://images.filmora.io/5/XDyocwuGRiSptxueJZ5aokKqKt-JXMbX.gif)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 
 Come on, keep going!
 
@@ -234,8 +237,9 @@ Come on, keep going!
 The video is done, the thumbnail is designed, and you have all your title, description, and tags ready to go. This step is easy, upload the video, and fill out the assets, and give yourself a pat on the back.
 
 ![Fill Out Your Videos Assets](https://images.wondershare.com/filmora/article-images/creator-stuido-fill-out-video-assets.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9ECz3oZ8NrQ?si=86vkwkDJo9HQXpzt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 11: Add Transcripts
@@ -265,9 +269,6 @@ Besides considering YouTube SEO, you should make a good YouTube video as well. F
 Do you have any questions about SEO? Please leave us a comment below.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -275,14 +276,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -291,4 +289,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/oost-youtube-video-performance-with-rapid-rendering-methods-for-2024/"><u>[New] Boost YouTube Video Performance with Rapid Rendering Methods for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/levate-your-contents-appeal-how-to-resize-youtube-thumbnails-right/"><u>[New] Elevate Your Content's Appeal How to Resize YouTube Thumbnails Right</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-a-guide-to-profit-sharing-for-creators-of-video-clips/"><u>[New] In 2024, A Guide to Profit Sharing for Creators of Video Clips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-crafting-professional-content-on-youtube-via-enhancements/"><u>[New] In 2024, Crafting Professional Content on YouTube via Enhancements</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-in-2024-pixels-of-peaceful-tales-video-critique/"><u>[New] In 2024, Pixels of Peaceful Tales Video Critique</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-effortless-snapchat-integration-mac-tips-and-tricks/"><u>[Updated] 2024 Approved Effortless Snapchat Integration Mac Tips & Tricks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-banner-bliss-savor-your-complimentary-set-of-designs-for-2024/"><u>[Updated] Banner Bliss Savor Your Complimentary Set of Designs for 2024</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-top-10-cheap-cameras-for-dynamic-shots/"><u>[Updated] Top 10 Cheap Cameras For Dynamic Shots</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultimate-guide-to-vitas-video-editor-full-review-2024/"><u>[Updated] Ultimate Guide to Vita's Video Editor - Full Review 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-opening-strategies-for-growth/"><u>2024 Approved Opening Strategies for Growth</u></a></li>
+<li><a href="https://change-location.techidaily.com/best-pokemons-for-pvp-matches-in-pokemon-go-for-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>Best Pokemons for PVP Matches in Pokemon Go For Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://discover-cloud.techidaily.com/effortless-free-avi-creation-convert-your-ts-files-on-the-moveavi-platform/"><u>Effortless, Free AVI Creation: Convert Your TS Files on the Moveavi Platform</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-find-your-next-vector-the-best-10-pics-sites/"><u>In 2024, Find Your Next Vector The Best 10 Pics Sites</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/by-step-producing-youtube-trailers-using-filmora-for-2024/"><u>Step-by-Step Producing YouTube Trailers Using Filmora for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-guide-youtube-mp3-converters-ranked-for-2024/"><u>The Ultimate Guide YouTube Mp3 Converters Ranked for 2024</u></a></li>
+</ul></div>
 

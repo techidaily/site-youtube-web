@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  From Humble Beginnings  Jake Paul on YouTube Triumph\""
-date: 2024-08-15T22:31:05.121Z
-updated: 2024-08-16T22:31:05.121Z
+date: 2025-01-12T00:26:30.609Z
+updated: 2025-01-18T19:39:29.276Z
 tags:
   - ai video
   - ai youtube
@@ -43,9 +43,6 @@ For the majority of his years in school, Jake was the class clown. As he got old
 But before Jake fully invested his energy into training for the U.S. Navy SEALS, his brother, Logan, convinced him to make videos with him again (by this time, Logan had already built up a large following on Vine, the short-form video hosting service).
 
 ![jake-paul-and-his-brother-logan-paul](https://images.wondershare.com/filmora/article-images/jake-paul-and-his-brother-logan-paul.jpg)
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 
 Image resource: [BBC NEWS](https://www.bbc.com/news/av/world-us-canada-42548207/logan-and-jake-paul-the-brothers-dominating-social-media)
 
@@ -53,20 +50,18 @@ Together with his older brother Logan, Jake also amassed a large following and e
 
 Curious, young, and adventurous, at the age of seventeen, after discussing with his mother, Jake dropped out of high school, put aside his pursuit to join the Navy SEALs, and moved to Los Angeles without much of a plan.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Jake Paul and Disney
 
 Not wasting a single day in L.A., Jake went straight to taking acting and improv classes, growing his social media, and networking with everyone he could meet in the entertainment industry. In 2015, Jake auditioned for Disney Channel's comedy series "Bizaardvark" and successfully landed the role of "Dirk." However, the Disney Channel grew more and more uncomfortable with Jake's growing image as an outrageous teenager. After Jake made it onto the KTLA 5 news for the noise complaints around his mansion, the Disney Channel fired him from Bizaardvark.
 
 ![Jake Paul and Disney](<https://images.wondershare.com/filmora/article-images/Jake> Paul disney-tubefilter.com.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 
 Image resource:tubefilter.com
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Team 10
 
 In 2016, with all of his many exciting experiences, Jake put together a humorous and motivational memoir titled "You Gotta Want It." As his own social media channels kept on growing rapidly, Jake launched "**Team 10**," his own influencer management agency comprised of other teen social media influencers. In order to collaborate with one another more easily, they all moved in together to a Beverly Grove mansion that rents for $17,000 USD a month. After Jake publicized his address, the mansion attracted so many fans that neighbors filed multiple noise complaints and even contemplated filing a class-action public nuisance lawsuit against Jake.
@@ -74,8 +69,9 @@ In 2016, with all of his many exciting experiences, Jake put together a humorous
 More than a home, the mansion became a film set. The teenage tenants filmed themselves pranking one another and being as outrageous as teenagers can possibly be.
 
 ![Jake Paul and Team 10](https://images.wondershare.com/filmora/article-images/jake-paul-and-team-10.jpg.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Image resource:venturebeat.com
@@ -87,8 +83,9 @@ As it always happens with all videos that go viral, many YouTubers jumped on the
 Despite all of these oppositions in his life, Jake continues to work hard to build his social media empire. Looking at all the many strategies he has already successfully executed from such a young age, and I have no doubts that Jake will continue to push the boundaries of social media and content creation in the years to come.
 
 <!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **What About Social Media Success Can We Learn From Jake Paul?**
 
 **[Quick Follower Growth](https://tools.techidaily.com/wondershare/filmora/download/) Through First-Mover Advantage**
@@ -103,18 +100,21 @@ Jake has a very good understanding of who his audience is. He knows that his aud
 
 Jake made a serious commitment to delivering audience-centered content. Jake moved into a house full of other teenagers also committed to content creation, and they all filmed themselves doing pranks and stunts every day.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Get [the ultimate guide to growing your YouTube subscribers](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Do you want to be a YouTuber? If you desire to be a YouTuber yet not knowing how to edit a video, please try this robust and user-friendly video editing software **Wondershare Filmora**. It provides special effects, stock photo & video, sound library, etc., which will definitely enhance your productivity and helps to make money by making videos much accessible.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
-DEX 3 meets the demands of today’s versatile DJ, without compromise! 
-DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -122,14 +122,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -138,4 +135,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-how-to-convert-youtube-videos-to-gifs-no-download/"><u>[New] In 2024, How to Convert YouTube Videos to GIFs [No Download]</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-innovative-metaverse-perspectives-a-30-quote-collection/"><u>[New] Innovative Metaverse Perspectives A 30-Quote Collection</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rofessional-level-youtube-editing-techniques-you-need-to-know/"><u>[New] Professional-Level Youtube Editing Techniques You Need To Know</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/new-top-10-best-drones-for-kids-and-beginners/"><u>[New] Top 10 Best Drones for Kids and Beginners</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-exploring-media-top-ranking-camera-apps-for-iphonesandroid-devices/"><u>[Updated] Exploring Media Top-Ranking Camera Apps for iPhones/Android Devices</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ning-a-blogging-journey-profit-from-your-passion-for-2024/"><u>Beginning a Blogging Journey Profit From Your Passion for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/find-and-install-the-latest-drivers-for-your-hp-mfp-m477-color-laserjet-pro-now-expert-guide/"><u>Find & Install the Latest Drivers for Your HP MFP M477 Color Laserjet Pro Now - Expert Guide</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-fix-apple-iphone-12-unavailable-issue-with-ease-by-drfone-ios/"><u>How To Fix Apple iPhone 12 Unavailable Issue With Ease</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/humor-at-the-helm-can-artificial-intelligence-craft-funny-lines/"><u>Humor at the Helm: Can Artificial Intelligence Craft Funny Lines?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-thumbnail-length-a-guide-to-captivating-audiences/"><u>In 2024, Thumbnail Length A Guide to Captivating Audiences</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solving-common-issues-with-netflix-streaming-on-your-roku-box-or-stick/"><u>Solving Common Issues with Netflix Streaming on Your Roku Box or Stick</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-5-drone-friendly-vr-experiences-for-2024/"><u>Top 5 Drone-Friendly VR Experiences for 2024</u></a></li>
+</ul></div>
 

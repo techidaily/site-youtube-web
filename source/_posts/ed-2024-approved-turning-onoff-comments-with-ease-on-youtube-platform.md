@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Turning On/Off Comments with Ease on YouTube Platform\""
-date: 2025-01-09T18:29:51.760Z
-updated: 2025-01-12T16:08:02.156Z
+date: 2025-01-12T22:20:41.637Z
+updated: 2025-01-19T01:08:59.795Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -50,7 +46,7 @@ Use your favorite web browser to go to YouTube and sign in to your Google accoun
 ![ Find YouTube Studio options](https://images.wondershare.com/filmora/article-images/find-youtube-studio-option.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 2: Go to Channel’s Advanced Settings
@@ -78,7 +74,7 @@ Click the **Settings** icon from the bottom of the left pane one more time. On t
 ![ Set up YouTube video  Comments visibility](https://images.wondershare.com/filmora/article-images/set-up-youtube-comments-visibilities.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 3\. Set Comment Allowance for Videos
@@ -107,6 +103,10 @@ Selecting this option holds all the comments from all the users, and waits for y
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
 As you might have noticed, any video that is marked as ‘Made for kids’ doesn’t allow users to post comments. You can exploit this feature to enable or disable commenting on specific YouTube videos as well.
@@ -127,11 +127,11 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-**Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+**Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
 
 ## FAQs About YouTube Comments
 
@@ -164,7 +164,7 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -188,24 +188,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-expert-advice-on-converting-high-quality-ipv-files-to-mp4/"><u>[New] 2024 Approved Expert Advice on Converting High-Quality IPV Files to MP4</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-easy-and-speed-share-youtube-playlists-now/"><u>[New] In 2024, Easy & Speed Share YouTube Playlists Now</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-editing-workshop-portal/"><u>[New] In 2024, Editing Workshop Portal</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-youtubing-green-magic-ideas-that-come-to-life/"><u>[New] In 2024, Youtubing Green Magic – Ideas That Come to Life</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/everage-timestamps-tactics-to-skyrocket-video-views/"><u>[New] Leverage Timestamps Tactics to Skyrocket Video Views</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/avigating-the-legal-landscape-of-youtube-guidelines-for-2024/"><u>[New] Navigating the Legal Landscape of YouTube Guidelines for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-expert-strategies-for-video-enhancement-vce-22-deep-dive/"><u>[Updated] 2024 Approved Expert Strategies for Video Enhancement - VCE 2.2 Deep Dive</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-master-adding-youtube-videos-to-gslides-a-step-by-step-guide/"><u>[Updated] 2024 Approved Master Adding YouTube Videos to GSlides A Step-by-Step Guide</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-how-to-design-a-great-gaming-youtube-banner-with-templates-for-2024/"><u>[Updated] How to Design a Great Gaming YouTube Banner with Templates for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-legitimate-protocols-for-achieving-over-a-million-viewership-for-2024/"><u>[Updated] Legitimate Protocols for Achieving Over a Million Viewership for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-unpacking-youtubes-social-media-code-of-conduct/"><u>[Updated] Unpacking YouTube's Social Media Code of Conduct</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-photoshop-facebackground-anonymity-guide/"><u>2024 Approved Photoshop Face/Background Anonymity Guide</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/ace-your-developer-skills-dive-into-stellars-treasury-of-software-tools-tutorials-and-tricks-of-the-trade/"><u>Ace Your Developer Skills: Dive Into Stellar's Treasury of Software Tools, Tutorials & Tricks of the Trade</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/channel-success-across-social-networks-youtube-plus-more-for-2024/"><u>Channel Success Across Social Networks YouTube + More for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-the-secret-to-youtube-dominance-unveiled-by-creative-studio-insights/"><u>In 2024, The Secret to YouTube Dominance Unveiled by Creative Studio Insights</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-the-art-of-ios-voip-guide-to-sending-voicemail-from-your-phone/"><u>Mastering the Art of iOS VoIP: Guide to Sending Voicemail From Your Phone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/overcoming-iphone-connectivity-problems-with-chatgpt-a-guide-to-9-key-tips/"><u>Overcoming iPhone Connectivity Problems with ChatGPT: A Guide to 9 Key Tips</u></a></li>
-<li><a href="https://extra-information.techidaily.com/rhythm-discoveries-at-your-fingertips-free-online/"><u>Rhythm Discoveries at Your Fingertips (Free, Online)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ng-video-tutorials-into-virtual-income-for-2024/"><u>Turning Video Tutorials Into Virtual Income for 2024</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-explore-the-best-smartphone-compatible-vr-for-2024/"><u>[New] Explore the Best Smartphone-Compatible VR for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ow-to-edit-youtube-videos-in-sony-vegas-for-2024/"><u>[New] How to Edit YouTube Videos in Sony Vegas for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-achieve-optimum-stability-incorrances-for-tripods-in-vlog-shoots/"><u>[New] In 2024, Achieve Optimum Stability Incorrances for Tripods in Vlog Shoots</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-comprehensible-guide-to-selecting-popular-youtube-openings-for-2024/"><u>[New] The Comprehensible Guide to Selecting Popular YouTube Openings for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-cutting-edge-top-8-free-online-video-tools/"><u>[Updated] Cutting Edge Top 8 Free Online Video Tools</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-exploring-many-youtube-courses-together-for-2024/"><u>[Updated] Exploring Many YouTube Courses Together for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-maximize-your-gameplay-in-depth-tips-and-tricks-for-freefirers/"><u>[Updated] Maximize Your Gameplay In-Depth Tips & Tricks for FreeFirers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-navigating-the-virtual-realm-key-strategies-for-shooting-360-video-top-9-rules-for-2024/"><u>[Updated] Navigating the Virtual Realm Key Strategies for Shooting 360° Video (Top 9 Rules) for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/dialogues-and-dramas-mastering-interactions-through-chatgpt/"><u>Dialogues & Dramas: Mastering Interactions Through ChatGPT</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/finding-voice-changers-for-vtubers-two-best-app-recommended/"><u>Finding Voice Changers for Vtubers Two Best App Recommended</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/search-patterns-to-screenplay-crafting-videos-from-google-data-for-2024/"><u>From Search Patterns to Screenplay Crafting Videos From Google Data for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-vpna-to-fake-gps-location-on-xiaomi-redmi-note-12t-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use VPNa to Fake GPS Location On Xiaomi Redmi Note 12T Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-escaping-a-stroke-on-your-youtube-channel/"><u>In 2024, Escaping a Stroke on Your YouTube Channel</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-simulate-gps-movement-in-ar-games-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Simulate GPS Movement in AR games On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/mastering-browser-based-ai-deployment-the-ultimate-guide-to-leveraging-agentgpt/"><u>Mastering Browser-Based AI Deployment: The Ultimate Guide to Leveraging AgentGPT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ating-thumbnail-sizes-for-youtube-content-excellence-for-2024/"><u>Navigating Thumbnail Sizes for YouTube Content Excellence for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-microphone-list-for-best-asmr-sound-for-2024/"><u>The Ultimate Microphone List for Best ASMR Sound for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/0-youtube-makeup-gurus-for-stunning-looks/"><u>Top 10 YouTube Makeup Gurus for Stunning Looks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/your-go-to-guide-for-the-finest-10-picture-databases/"><u>Your Go-To Guide for the Finest 10 Picture Databases</u></a></li>
 </ul></div>
 

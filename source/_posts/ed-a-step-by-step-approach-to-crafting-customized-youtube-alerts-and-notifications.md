@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] A Step-by-Step Approach to Crafting Customized Youtube Alerts & Notifications\""
-date: 2024-08-15T22:32:55.103Z
-updated: 2024-08-16T22:32:55.103Z
+date: 2025-01-16T23:45:36.841Z
+updated: 2025-01-18T20:06:43.087Z
 tags:
   - ai video
   - ai youtube
@@ -53,10 +53,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
@@ -68,8 +76,9 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -79,16 +88,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click on the "End screen & Annotation" tab
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17728032&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner920x120.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Apply changes
@@ -128,9 +139,6 @@ The best outros also include a subscribe button, which can be created using anno
 No matter what kind of annotations you are using, you should never use more than two of them at a time anywhere except for your outro. You should also never place annotations at the very top of your screen, or in the middle at the bottom. If your video is embedding on a separate website then the player will cover annotations at the top of the screen, and ads might cover annotations placed in the bottom-middle of the screen. Keep in mind when using annotations that they will not be visible to users watching your videos on mobile devices. If mobile traffic is very important to you then consider using YouTube Cards.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,4 +159,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-enhancing-authenticity-techniques-to-apply-on-insta-photos/"><u>[New] 2024 Approved Enhancing Authenticity Techniques to Apply on Insta Photos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-8-best-open-source-video-conferencing-software-for-enterprise-for-2024/"><u>[New] 8 Best Open Source Video Conferencing Software for Enterprise for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nablingdisabling-youtube-video-comments/"><u>[New] Enabling/Disabling YouTube Video Comments</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rom-streaming-video-how-to-get-youtube-thumbnail-files-onlineos-wise/"><u>[New] From Streaming Video How to Get YouTube Thumbnail Files Online/OS-Wise</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-animators-playground-building-your-own-visual-treats/"><u>[New] In 2024, Animator’s Playground Building Your Own Visual Treats</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/s-it-legal-to-screen-record-youtube-videos-for-2024/"><u>[New] Is It Legal to Screen Record YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nraveling-the-secrets-to-dynamic-youtube-trailers-in-filmora/"><u>[New] Unraveling the Secrets to Dynamic YouTube Trailers in Filmora</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-cutting-edge-capture-selecting-top-smartphone-cameras-in-high-res-video/"><u>[Updated] 2024 Approved Cutting Edge Capture Selecting Top Smartphone Cameras in High-Res Video</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-prestige-pcs-and-laptops-technologys-elite/"><u>[Updated] 2024 Approved Prestige PCs & Laptops - Technology's Elite</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-unlock-your-potential-one-thousand-new-likesmonth/"><u>[Updated] 2024 Approved Unlock Your Potential One Thousand New Likes/Month</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-harnessing-imovies-capabilities-for-youtube-video-perfection/"><u>[Updated] In 2024, Harnessing iMovie's Capabilities for YouTube Video Perfection</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-selecting-the-perfect-online-source-15-best-royalty-free-music-urls/"><u>[Updated] Selecting the Perfect Online Source 15 Best Royalty-Free Music URLs</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-reimagining-past-moments-transforming-pictures-into-clips/"><u>2024 Approved Reimagining Past Moments Transforming Pictures Into Clips</u></a></li>
+<li><a href="https://fox-zaraz.techidaily.com/create-a-page-turning-illusion-for-your-online-book-with-corner-flips-learn-the-art-at-flipbuildercom/"><u>Create a Page-Turning Illusion for Your Online Book with Corner Flips: Learn the Art at FlipBuilder.com</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-audience-expansion-strategies-that-honor-youtube-standards/"><u>In 2024, Audience Expansion Strategies That Honor YouTube Standards</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-enriching-youtube-channels-amp-up-with-songs/"><u>In 2024, Enriching Youtube Channels Amp up with Songs</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-a-infinix-note-30-vip-racing-edition-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Infinix Note 30 VIP Racing Edition Phone that is Locked?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-the-art-of-flawless-audio-capture-mic-free/"><u>In 2024, The Art of Flawless Audio Capture, Mic-Free</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/63823328-navigating-the-short-form-space-youtubes-bite-vs-tiktok-written-by-a-marketing-analyst-with-expertise-in-social-media-trends-and-platforms-for-2024/"><u>Navigating the Short-Form Space YouTube's Bite Vs. TikTok' Written by a Marketing Analyst with Expertise in Social Media Trends and Platforms. For 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Expert Advice on Selecting The Best Lenses For Filmmaking"
-date: 2025-01-06T22:44:11.689Z
-updated: 2025-01-12T23:49:45.267Z
+date: 2025-01-18T00:11:26.064Z
+updated: 2025-01-18T23:05:55.321Z
 tags:
   - ai video
   - ai youtube
@@ -45,6 +45,10 @@ In this article, I’m going to help you figure that out.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
 There are three main ranges in focal lengths that camera lenses can be categorized into wide, standard, and telephoto.
@@ -60,10 +64,6 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 #### Telephoto Lens
 
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
 
@@ -88,7 +88,7 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Crop Factor
@@ -98,10 +98,14 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -132,10 +136,6 @@ Fast lenses are more expensive because they cost more to produce. There’s a lo
 
 But do you even need a fast lens?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Vlogging With a Fast Lens
 
 #### Pros of Vlogging With a Fast Lens
@@ -150,6 +150,10 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -163,10 +167,6 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -189,24 +189,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/deal-screen-re-recorders-for-youtube-performances/"><u>[New] Ideal Screen Re-Recorders for YouTube Performances</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-navigating-through-numbers-a-full-guide-for-measuring-youtube-success/"><u>[New] In 2024, Navigating Through Numbers A Full Guide for Measuring YouTube Success</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/s-it-illegal-to-screen-capture-youtube-videos-in-2024/"><u>[New] Is It Illegal to Screen-Capture YouTube Videos, In 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-expert-advice-on-youtube-short-pitfalls/"><u>[Updated] 2024 Approved Expert Advice on YouTube Short Pitfalls</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-expert-advice-on-youtube-short-pitfalls/"><u>[Updated] Expert Advice on YouTube Short Pitfalls</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-how-to-create-news-style-outro/"><u>[Updated] In 2024, How To Create News Style Outro</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-mastering-skype-calls-on-pc-and-mac-free-vs-paid-recording-tips/"><u>[Updated] In 2024, Mastering Skype Calls on PC & Mac Free vs Paid Recording Tips</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-mastering-the-art-of-igtv-on-instagram-stories/"><u>[Updated] Mastering the Art of IGTV on Instagram Stories</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-navigating-the-world-of-apex-legends-on-a-personal-platform-quest-for-2024/"><u>[Updated] Navigating the World of Apex Legends on a Personal Platform Quest for 2024</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-synchronized-screenscapes-youtube-clips-in-tv-loops/"><u>[Updated] Synchronized Screenscapes YouTube Clips in TV Loops</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/2024-approved-streamline-your-workflow-ultimate-convertor-list-1-8/"><u>2024 Approved Streamline Your Workflow Ultimate Convertor List #1-8</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/efficiently-download-and-install-hp-stream-device-drivers-now/"><u>Efficiently Download & Install HP Stream Device Drivers Now</u></a></li>
-<li><a href="https://solve-outstanding.techidaily.com/effortless-strategies-to-update-your-mkv-media-information/"><u>Effortless Strategies to Update Your MKV Media Information</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/re-online-downloads-converting-youtube-to-mp3-made-simple/"><u>Explore Online Downloads Converting YouTube to MP3 Made Simple</u></a></li>
-<li><a href="https://techidaily.com/how-to-factory-reset-nubia-z50-ultra-if-i-forgot-security-code-or-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Factory Reset Nubia Z50 Ultra If I Forgot Security Code or Password? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-crafting-engaging-youtube-beginnings-two-methods/"><u>In 2024, Crafting Engaging YouTube Beginnings Two Methods</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-unleashing-your-channels-potential-increase-youtube-views/"><u>In 2024, Unleashing Your Channel's Potential Increase YouTube Views</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/learn-to-cropping-and-composition-the-audio-visual-balance-in-canvas/"><u>Learn to Cropping & Composition The Audio-Visual Balance in Canvas</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-app-usage-a-comprehensive-review/"><u>Window's App Usage: A Comprehensive Review</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-crafting-online-fame-essential-instagram-tips-for-star-status-for-2024/"><u>[New] Crafting Online Fame Essential Instagram Tips for Star Status for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/reating-compelling-content-with-powerful-youtube-titles-for-2024/"><u>[New] Creating Compelling Content with Powerful YouTube Titles for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-ideal-top-5-ios-apps-for-podcasting-for-2024/"><u>[New] Ideal Top 5 iOS Apps for Podcasting for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/onetizing-popularity-pay-per-million-views/"><u>[New] Monetizing Popularity Pay Per Million Views</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/cream-loud-with-joy-our-picks-from-the-best-funny-youtubers/"><u>[New] Scream Loud with Joy Our Picks From the Best Funny YouTubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-multimedia-designers-space/"><u>[Updated] 2024 Approved Multimedia Designer's Space</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-elevate-your-brand-explore-these-10-essential-youtube-creators-for-2024/"><u>[Updated] Elevate Your Brand Explore These 10 Essential YouTube Creators for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-blogging-to-earning-big-sourav-joshis-youtube-journey-2024/"><u>[Updated] From Blogging to Earning Big Sourav Joshi’s YouTube Journey, 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-precision-screening-advanced-tips-for-hp-laptop-recording/"><u>[Updated] In 2024, Precision Screening Advanced Tips for HP Laptop Recording</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-guidelines-to-improve-zoom-on-chromeos/"><u>2024 Approved Expert Guidelines to Improve Zoom on ChromeOS</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/expert-analysis-unveiling-the-power-of-playstation-4-pros-ultra-hd-capabilities/"><u>Expert Analysis: Unveiling the Power of PlayStation 4 Pro's Ultra HD Capabilities</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/get-the-edge-in-gaming-secure-your-copy-of-steelseries-engine-for-windows-11-today/"><u>Get the Edge in Gaming: Secure Your Copy of SteelSeries Engine for Windows 11 Today!</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-nokia-c02-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Nokia C02</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-flip-it-a-step-by-step-guide-to-rotating-clips-in-fcp-for-2024/"><u>Updated Flip It! A Step-by-Step Guide to Rotating Clips in FCP for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-the-best-youtube-symbols-are-hidden-for-2024/"><u>Where the Best YouTube Symbols Are Hidden for 2024</u></a></li>
 </ul></div>
 

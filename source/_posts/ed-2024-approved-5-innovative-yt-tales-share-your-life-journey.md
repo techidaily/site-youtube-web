@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  5 Innovative YT Tales  Share Your Life Journey\""
-date: 2024-08-15T22:29:02.646Z
-updated: 2024-08-16T22:29:02.646Z
+date: 2025-01-11T23:43:23.130Z
+updated: 2025-01-19T00:52:00.726Z
 tags:
   - ai video
   - ai youtube
@@ -50,18 +50,24 @@ YouTuber Shameless Maya does an excellent job of this. She created a visually ap
 On Monday, May 17th, 2010, YouTube celebrated its fifth anniversary. In celebration of hitting their five-year mark, YouTube launched a “My YouTube Story” campaign, which featured fifteen YouTubers sharing how YouTube has changed their lives. Each of these videos would end with “What’s your YouTube story? Tell us by uploading a video.” Ever since that campaign, many YouTubers have shared their YouTube story, including me! After I had been on YouTube for two years, I felt it was time for me to share my own YouTube story with the world. Sharing your story is not only an opportunity for your viewers to get to know you but a way to inspire other creators to start their channels as well. We all have our reasons for why we started, so why not share them?
 
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 3\.  Draw My Life
 
 “Draw My Life” is a popular video where YouTubers share their life stories through a unique series of drawings. Often YouTubers use a white dry erase board and markers so they can erase and redraw the series of their life events. Mr. Kate provides a great example of this as she is a talented artist and DIY’er. The great thing about this is you don’t have to be an artist or a great drawer. It’s a fun way to be creative and tell your story.
 
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 4\.  Snapchat/Instagram Stories Q&A
 
 Who isn’t on Snapchat, Instagram, or both these days? Over the past year, I’ve seen YouTubers get creative by asking their viewers to send snaps asking questions they will answer on a Q & A video on their channel. This video idea is great because it involves live viewer participation and a chance for viewers to be seen or noticed on their favorite Youtuber’s channels. Beauty guru stars Manny MUA and Jeffrey Star did a great example of this as a collaboration.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\.  Never Have I Ever Q & A
 
@@ -76,29 +82,25 @@ Get ready with me Q & As are some of my favorite videos to watch because it’s 
 Behind all their smiles and outrageous on-camera personas, there are a lot of YouTubers who are dealing with depression and anxiety. Beauty and fashion YouTuber Alyssa Forever not only shared her story on how she dealt with her depression but gave tips and ways to be happier. If you are facing depression, anxiety, or some other mental illness, it can give others hope if you share your story.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 8\.  Narrated Autobiopic
 
 Narrated Autobiopic videos are a great way to share your story or advice in a cinematic way. You can be as creative as you want to be. YouTuber Evelyn From the Internets posted a narrated autobiopic called “For People Who Feel Behind In Life” that comically introduces her story.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### 9\.  25 Facts About Me Tag
 
 This is probably one of the easiest ways to share things about yourself when starting as a YouTuber or even if you’re a veteran. Viewers are always looking to learn more interesting things about you so you are more relatable. I’ve been a fan of Vasseur Beauty for a few years now and was surprised by many of the things she shared about herself.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 10\.  YouTube Live/Webinar
 
 YouTube live videos are probably the best ways to interact and share your story with viewers. Viewers can ask questions on the spot. YouTuber Roberto Blake shares great live videos on how to improve your videos and things he’s learned through personal experience.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Custom Your Video with Excellent Video Editor
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -111,14 +113,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -127,4 +126,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-advanced-14-design-techniques-for-text-animation/"><u>[New] Advanced 14 Design Techniques for Text Animation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iscovering-8-ultimate-mirrorless-vlogging-cameras/"><u>[New] Discovering 8 Ultimate Mirrorless Vlogging Cameras</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/gnite-your-creative-spark-scriptwriting-tips-for-youtube-mastery-for-2024/"><u>[New] Ignite Your Creative Spark Scriptwriting Tips for YouTube Mastery for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ransforming-youtube-videos-bars-free-vision/"><u>[New] Transforming YouTube Videos Bars-Free Vision</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-crafting-the-perfect-pitch-inviting-listeners-to-join-us/"><u>[Updated] 2024 Approved Crafting the Perfect Pitch Inviting Listeners to Join Us</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-splitscreen-designer/"><u>[Updated] 2024 Approved SplitScreen Designer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-step-by-step-guide-to-unmicrophonic-audio-recording/"><u>[Updated] In 2024, Step-by-Step Guide to Unmicrophonic Audio Recording</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-strategies-for-successful-longer-content-on-social-media-hubs/"><u>[Updated] In 2024, Strategies for Successful Longer Content on Social Media Hubs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ning-youtubes-mobile-app-for-iosandroid-devices/"><u>Examining YouTube's Mobile App for iOS/Android Devices</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-xiaomi-civi-3-disney-100th-anniversary-edition-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Xiaomi Civi 3 Disney 100th Anniversary Edition Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-repair-astro-a50-mic-malfunction-and-restore-sound-quality-perfectly/"><u>How to Repair Astro A50 Mic Malfunction and Restore Sound Quality Perfectly</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-auto-text-sending-features-on-an-iphone-device/"><u>Mastering Auto Text Sending Features on an iPhone Device</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/revamp-windows-1011-ui-with-portable-menu-tools/"><u>Revamp Windows 10/11 UI with Portable Menu Tools</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/unveiling-windows-10s-full-potential-with-zoom-services-for-2024/"><u>Unveiling Windows 10'S Full Potential with Zoom Services for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-9-best-free-video-compressors-for-windows-10/"><u>Updated 2024 Approved 9 Best Free Video Compressors for Windows 10</u></a></li>
+</ul></div>
 

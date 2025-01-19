@@ -1,7 +1,7 @@
 ---
 title: "[New] Boosting Viewership with Animated Subscribe Buttons in Filmora (Easy Guide) for 2024"
-date: 2024-08-15T22:32:48.067Z
-updated: 2024-08-16T22:32:48.067Z
+date: 2025-01-16T20:27:02.344Z
+updated: 2025-01-18T16:15:06.668Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 2:** Lock this track by clicking on the lock icon to work on subscribe animation without disturbing the background easily.![subscribe-button2](https://images.wondershare.com/filmora/article-images/subs-button2.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Now it's time to design the subscribe png gif. Go to the Sample colors again and drag the red color into the time above the green background.![subscribe-button3](https://images.wondershare.com/filmora/article-images/subs-button3.png)
 
 **Step 4:** Double click on the red color in the timeline and adjust its size. Make it look like a subscribe button that is a rectangle and place it at the bottom center of the background. You can put it anywhere you want it to appear in your future videos.![subscribe-button4](https://images.wondershare.com/filmora/article-images/subs-button4.png)
@@ -48,6 +52,10 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 8:** Drag and drop the cursor into the timeline and place it above all the other three tracks to make it prominent. Adjust the size of the cursor place it on the Subscribe button where you want it to appear.![subscribe-button8](https://images.wondershare.com/filmora/article-images/subs-button8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 9:** Now, it's time to animate the design using keyframes. First of all, let's animate the red rectangle. Double click on the red color on the timeline. Go to the 'Animation' tab and then click 'Customize.' Move to the 1 second in the timeline and click 'Add.'![subscribe-button9](https://images.wondershare.com/filmora/article-images/subs-button9.png)
 
 **Step 10:** Now go back to the beginning in the timeline and adjust the scale to 0%. It will make the rectangle pop up when you play the clip.![subscribe-button10](https://images.wondershare.com/filmora/article-images/subs-button10.png)
@@ -58,6 +66,10 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 13:** Now, to animate the mouse cursor, we will use the same process we used for a rectangle that is key framing. Double click on the cursor track on the timeline and move the time on your timeline to a point when you want the cursor to appear. Now add a key frame by clicking 'Add'.![subscribe-button13](https://images.wondershare.com/filmora/article-images/subs-button13.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 14:** Now jump back to a point in your timeline, when the cursor will start appearing from outside the screen. Move the cursor outside the screen from where you want it to start moving toward the subscribe animation.![subscribe-button14](https://images.wondershare.com/filmora/article-images/subs-button14.png)
 
 **Step 15:** To animate the click of the cursor, move ahead a little bit into your timeline and scale down the cursor to around 70%. Move it a little further and scale it up to 100%.![subscribe-button15](https://images.wondershare.com/filmora/article-images/subs-button15.png)
@@ -66,11 +78,23 @@ There are so many platforms on the internet from where you can get Youtube subsc
 
 **Step 17:** Now it's time to make this subscribe animation button disappear. Move forward into the time to the end, at around 4 seconds. Double click on the red button in the timeline and add a key frame at its actual scale.![subscribe-button17](https://images.wondershare.com/filmora/article-images/subs-button17.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 18:** After that, move further in the timeline to the end and make its scale 0\. It will make it disappear.![subscribe-button18](https://images.wondershare.com/filmora/article-images/subs-button18.png)
 
 **Step 19:** Do the same with the cursor. Double click on the cursor in the time and add a key frame at its actual position.![subscribe-button19](https://images.wondershare.com/filmora/article-images/subs-button19.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 20:** Move ahead when you want it to disappear. Move the cursor out of the screen and click 'OK'.![subscribe-button20](https://images.wondershare.com/filmora/article-images/subs-button20.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 21:** Your Subscribe png gif is ready to be exported and used in your videos. Click on export and choose from various formats and options to choose from while exporting it.![subscribe-button21](https://images.wondershare.com/filmora/article-images/subs-button21.png)
 
@@ -80,7 +104,15 @@ Conclusion：Your own Animated Subscribe Button is ready to be used in your futu
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -88,14 +120,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -104,8 +133,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-video-blogging-essentials-choosing-the-best-cameras-and-lenses/"><u>[New] 2024 Approved Video Blogging Essentials Choosing the Best Cameras and Lenses</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/xpert-strategies-on-calculating-your-youtube-audience-impact-and-revenue-for-2024/"><u>[New] Expert Strategies on Calculating Your YouTube Audience Impact and Revenue for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-crafting-the-perfect-end-screen-youtube-template-guidebook/"><u>[New] In 2024, Crafting the Perfect End Screen - YouTube Template Guidebook</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-comprehensive-playbook-for-self-branded-content-creators/"><u>[New] The Comprehensive Playbook for Self-Branded Content Creators</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-xbox-power-up-with-these-top-hard-drives-rankings-for-2024/"><u>[New] Xbox Power-Up with These Top Hard Drives Rankings for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-essential-free-cloud-services-with-massive-1tb-space-included/"><u>[Updated] 2024 Approved Essential Free Cloud Services with Massive 1TB Space Included</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-gaming-masterpiece-samsungs-ue590-in-depth-review/"><u>[Updated] Gaming Masterpiece - Samsung's UE590 In-Depth Review</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-step-by-step-guide-for-updating-and-changing-social-video-covers-for-2024/"><u>[Updated] Step-by-Step Guide for Updating and Changing Social Video Covers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-diy-youtube-thumbnails-on-smartphones/"><u>2024 Approved DIY YouTube Thumbnails on Smartphones</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-essential-insights-mastering-youtube-keyword-strategies/"><u>2024 Approved Essential Insights Mastering YouTube Keyword Strategies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mastering-the-craft-of-youtubers-music-reaction-videos-essentials/"><u>2024 Approved Mastering the Craft of Youtubers Music Reaction Videos Essentials</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-top-tips-and-techniques-for-captivating-youtube-video-intros/"><u>2024 Approved Top Tips and Techniques for Captivating YouTube Video Intros</u></a></li>
+<li><a href="https://fox-search.techidaily.com/comment-cloner-de-maniere-securisee-un-cartouche-memoire-sd-sur-pc/"><u>Comment Cloner De Manière Sécurisée Un Cartouche Mémoire (SD) Sur PC</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-step-by-step-perfecting-your-lol-recordings/"><u>In 2024, Step-by-Step Perfecting Your LOL Recordings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/porating-jump-cuts-for-smoother-edits-for-2024/"><u>Incorporating Jump Cuts for Smoother Edits for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-mw3-warzone-quick-solutions-for-tackling-the-notorious-dev-error-6068/"><u>Mastering MW3: Warzone - Quick Solutions for Tackling the Notorious Dev Error 6068</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/simplify-your-printing-free-driver-downloads-for-brother-mfc-7360n-on-windows-1187/"><u>Simplify Your Printing: Free Driver Downloads for Brother MFC-7360N on Windows 11/8/7</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-up-mr-beasts-earnings/"><u>Tallying Up Mr. Beast's Earnings</u></a></li>
+<li><a href="https://article-files.techidaily.com/top-tech-revelations-best-4k-displays-for-mac-users/"><u>Top Tech Revelations Best 4K Displays for Mac Users</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

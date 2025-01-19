@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Perfecting Stability  A No-Tripod Guide\""
-date: 2024-08-15T22:30:52.980Z
-updated: 2024-08-16T22:30:52.980Z
+date: 2025-01-17T17:33:35.629Z
+updated: 2025-01-18T18:18:44.227Z
 tags:
   - ai video
   - ai youtube
@@ -34,11 +34,16 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -53,20 +58,18 @@ Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2014/02/Project-Manager-3D-Models-4-800x800.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -85,10 +88,9 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -96,9 +98,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -121,8 +120,9 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -131,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -147,4 +144,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-imagemorph-magic/"><u>[New] In 2024, ImageMorph Magic</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eliable-steps-toward-attaining-safe-and-ethical-one-million-follower-status-for-2024/"><u>[New] Reliable Steps Toward Attaining Safe and Ethical One-Million Follower Status for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-art-of-optimizing-your-yt-channel-description-for-2024/"><u>[New] The Art of Optimizing Your YT Channel Description for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-connoisseurs-guide-to-youtube-music-orchestration/"><u>[New] The Connoisseur's Guide to YouTube Music Orchestration</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-ideal-blueprint-top-6-fresh-mojave-homes/"><u>[Updated] In 2024, Ideal Blueprint Top 6 Fresh Mojave Homes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-artistry-of-image-editing-understanding-luts-role/"><u>[Updated] In 2024, The Artistry of Image Editing Understanding LUTs' Role</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-pro-photographers-picks-top-6-high-resolution-4k-dslrs/"><u>2024 Approved Pro Photographers' Picks Top 6 High-Resolution 4K DSLRs</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-shambling-successes-the-cutthroat-list-of-best-zombies-gaming/"><u>2024 Approved Shambling Successes The Cutthroat List of Best Zombies Gaming</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-channeling-success-navigating-the-new-youtube-membership-model/"><u>In 2024, Channeling Success Navigating the New YouTube Membership Model</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/meme-mastery-top-ten-designs-to-share-scream-and-chortle/"><u>Meme Mastery Top Ten Designs to Share, Scream & Chortle</u></a></li>
+<li><a href="https://facebook.techidaily.com/social-media-privacy-conceal-your-likes-on-fb-and-ig/"><u>Social Media Privacy: Conceal Your Likes on FB & IG</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/the-definitive-guide-to-permanently-deleting-a-tiktok-account/"><u>The Definitive Guide to Permanently Deleting a TikTok Account</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-lenovo-thinkphone-phones-by-drfone-android/"><u>Top 11 Free Apps to Check IMEI on Lenovo ThinkPhone Phones</u></a></li>
+</ul></div>
 

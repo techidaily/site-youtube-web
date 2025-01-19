@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Professional Thumbnail Tactics  Do's and Don'ts Guidebook\""
-date: 2024-08-15T22:30:43.263Z
-updated: 2024-08-16T22:30:43.263Z
+date: 2025-01-11T19:03:21.532Z
+updated: 2025-01-18T16:33:37.420Z
 tags:
   - ai video
   - ai youtube
@@ -54,9 +54,9 @@ Using patterns for the background of your channel banner can help your channel l
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: Should I Use My Face?
 
 Whether you should use your face on your channel banner depends on what your channel is about. If you have a channel focused on beauty, fashion, fitness, or family vlogs then it’s a good idea to include your face. It comes off personable and helps viewers relate to you. If you have a channel that is about something like gaming, tech reviews, or book reviews then it isn’t necessary to include your face because the focus of your content isn’t you as a personality.
@@ -73,12 +73,13 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ## Part 3: What Should I Write on My Banner?
 
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### _Do: Include Your Channel Name_
 
@@ -99,8 +100,9 @@ Social media accounts are important to include in your channel art because we li
 Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
 
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Make sure everything important fits in the safe area!_
@@ -116,8 +118,9 @@ YouTubers that use tag lines are using their channel as a platform to carry out 
 Whether you decide to use descriptive words or a tag line, they will help your channel tremendously by setting expectations for your viewers.
 
 <!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 4: How Can I Make My Channel Art Look Good?
 
 #### _Do: Create Consistent Branding_
@@ -138,19 +141,17 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 
 Now that you know how to make a good YouTube banner, what will you do next?
 
-<!-- affiliate ads begin -->
-<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -158,14 +159,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,4 +172,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-find-your-perfect-livestream-service-match/"><u>[New] How to Find Your Perfect Livestream Service Match</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-illustrators-secret-creating-seamless-image-movement-for-2024/"><u>[New] Illustrator's Secret Creating Seamless Image Movement for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/umpstart-your-youtube-venture-top-equipment-choices/"><u>[New] Jumpstart Your YouTube Venture Top Equipment Choices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ecipe-rulers-youtubes-finest-food-talks/"><u>[New] Recipe Rulers YouTube's Finest Food Talks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-dive-into-filmmaking-the-role-of-lenses-in-videos-for-2024/"><u>[Updated] Dive Into Filmmaking The Role of Lenses in Videos for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-from-fresh-face-to-hashtag-hero-unleash-the-secrets-for-swift-social-media-success-on-instagram-for-2024/"><u>[Updated] From Fresh Face to Hashtag Hero Unleash the Secrets for Swift Social Media Success on Instagram for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unveiling-the-eight-best-free-video-editing-software-for-social-media/"><u>[Updated] Unveiling the Eight Best FREE Video Editing Software for Social Media</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-content-creation-evolution-studio-vs-innovative-beta/"><u>2024 Approved Content Creation Evolution Studio Vs. Innovative Beta</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-video-conversion-unlocking-the-mp3-potential/"><u>2024 Approved Instagram Video Conversion - Unlocking the MP3 Potential</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-smooth-transitions-with-illustrators-blur-effects/"><u>2024 Approved Smooth Transitions with Illustrator's Blur Effects</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-yourself-differently-strategies-for-finding-uncommon-names/"><u>Brand Yourself Differently Strategies for Finding Uncommon Names</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/down-of-mr-beasts-financial-powerhouse-for-2024/"><u>Breakdown of Mr. Beast's Financial Powerhouse for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/it-alternatives-for-finding-youtube-sponsorships-for-2024/"><u>FameBit Alternatives for Finding YouTube Sponsorships for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/frame-by-frame-filmmaking-to-financial-flourishing-for-2024/"><u>From Frame-by-Frame Filmmaking to Financial Flourishing for 2024</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/icloud-unlocker-download-unlock-icloud-lock-for-your-iphone-8-by-drfone-ios/"><u>iCloud Unlocker Download Unlock iCloud Lock for your iPhone 8</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-sony-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Sony Bootloader Easily</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-transform-your-content-creation-with-the-top-12-vlogger-cams/"><u>In 2024, Transform Your Content Creation with the Top 12 Vlogger Cams</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/maximizing-b-roll-effective-techniques-for-2024/"><u>Maximizing B-Roll Effective Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oundbite-revolution-key-strategies-for-youtubes-music-clips-for-2024/"><u>The Soundbite Revolution Key Strategies for YouTube's Music Clips for 2024</u></a></li>
+</ul></div>
 

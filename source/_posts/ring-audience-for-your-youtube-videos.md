@@ -1,7 +1,7 @@
 ---
 title: "Tailoring Audience for Your Youtube Videos"
-date: 2025-01-11T02:16:22.915Z
-updated: 2025-01-12T16:08:28.473Z
+date: 2025-01-15T19:45:57.334Z
+updated: 2025-01-18T21:52:40.989Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Public VS Unlisted VS Private
@@ -69,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlYIdWQc-jw?si=ZQ5809CbQGEar0vg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -83,6 +79,10 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
@@ -91,6 +91,10 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Sharing Private Videos
 
  If a video is set to "private', you'll have the option to share it with specific people. Below where it says "private" on the info and settings page you'll see a button labeled "share". Click this and type in the email addresses of the people you want to be able to watch the video. You’ll also have the option of notifying the people via email that you’ve shared the video with them.
@@ -98,7 +102,7 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -108,14 +112,10 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,24 +138,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/uick-editing-incorporating-jump-cuts-in-video-content-for-2024/"><u>[New] Quick Editing Incorporating Jump Cuts in Video Content for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-top-5-budget-friendly-gaming-mice-under-100/"><u>[New] Top 5 Budget-Friendly Gaming Mice (Under $100)</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-sparkle-in-the-spotlight-personalized-logos-made-easy-and-free/"><u>[Updated] 2024 Approved Sparkle in the Spotlight Personalized Logos Made Easy & Free</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-ultimate-platform-question-whos-the-best-vimeo-or-youtubeplusdailymotion/"><u>[Updated] 2024 Approved The Ultimate Platform Question Who's the Best - Vimeo or YouTube+Dailymotion?</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-ableton-tricks-to-subtly-lower-track-amplitude/"><u>[Updated] Ableton Tricks to Subtly Lower Track Amplitude</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-apowersoft-screen-recorder-review-and-alternative/"><u>[Updated] In 2024, Apowersoft Screen Recorder Review and Alternative</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-enhance-visibility-the-power-of-customized-youtube-templates/"><u>[Updated] In 2024, Enhance Visibility The Power of Customized YouTube Templates</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-learn-to-purge-your-devices-youtube-content-easily-for-2024/"><u>[Updated] Learn to Purge Your Device's YouTube Content Easily for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-unlocking-youtube-the-full-guide-to-premium-membership-for-2024/"><u>[Updated] Unlocking YouTube The Full Guide to Premium Membership for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/2024-approved-become-a-master-at-crafting-engaging-podcast-content-techniques-and-samples/"><u>2024 Approved Become a Master at Crafting Engaging Podcast Content (Techniques & Samples)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-buy-subscribers-wisely-watch-your-numbers-soar/"><u>2024 Approved Buy Subscribers Wisely, Watch Your Numbers Soar</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-perfect-your-videos-first-impression-20-best-fonts/"><u>2024 Approved Perfect Your Video's First Impression 20 Best Fonts</u></a></li>
-<li><a href="https://article-helps.techidaily.com/birdie-ballet-bounce-for-2024/"><u>Birdie Ballet Bounce for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/essential-webcam-methods-for-powerpoint-recordings/"><u>Essential Webcam Methods for PowerPoint Recordings</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/device-capture-to-viral-content-youtubes-upload-guide-for-2024/"><u>From Device Capture to Viral Content YouTube's Upload Guide for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-the-ultimate-playbook-for-youtube-shorts-income-boost/"><u>In 2024, The Ultimate Playbook for YouTube Shorts Income Boost</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/roku-streams-online-viewing-tips-without-the-box/"><u>Roku Streams Online? Viewing Tips without the Box</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/swing-mastery-kit/"><u>Swing Mastery Kit</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlocking-new-possibnilities-the-ultimate-selection-of-iphone-add-ons-you-need-now/"><u>Unlocking New Possibnilities: The Ultimate Selection of iPhone Add-Ons You Need Now!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ecoming-a-confident-content-creator-youtubes-top-tips/"><u>[New] Becoming a Confident Content Creator YouTube's Top Tips</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-fast-fixes-for-chaotic-youtube-list-ordering-for-2024/"><u>[New] Fast Fixes for Chaotic YouTube List Ordering for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-streamline-your-music-library-6-free-ios-apps-for-youtube-conversion/"><u>[New] In 2024, Streamline Your Music Library 6 Free iOS Apps for YouTube Conversion</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/aster-your-stream-utilizing-youtubes-av1-technology-for-2024/"><u>[New] Master Your Stream Utilizing YouTube's AV1 Technology for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/astering-youtubes-defense-confronting-critics/"><u>[New] Mastering YouTube's Defense Confronting Critics</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-2024-approved-pioneering-design-discover-the-best-software-for-vectors/"><u>[Updated] 2024 Approved Pioneering Design Discover the Best Software for Vectors</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-smooth-sailing-through-sequences-with-kinemaster/"><u>[Updated] In 2024, Smooth Sailing Through Sequences with Kinemaster</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-gaining-clarity-on-your-youtube-audiences-behavior/"><u>2024 Approved Gaining Clarity on Your YouTube Audience's Behavior</u></a></li>
+<li><a href="https://some-tips.techidaily.com/2024s-most-popular-apple-watches-comprehensive-expert-analysis-and-ratings-zdnet/"><u>2024'S Most Popular Apple Watches: Comprehensive Expert Analysis and Ratings | ZDNET</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-leave-a-life360-group-on-honor-magic-5-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How To Leave a Life360 Group On Honor Magic 5 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://driver-error.techidaily.com/leveraging-lenovos-bt-capabilities-in-windows-11/"><u>Leveraging Lenovo's BT Capabilities in Windows 11</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ting-perfect-game-starting-scenes-on-youtube-no-cost-yes-value-for-2024/"><u>Selecting Perfect Game Starting Scenes on YouTube No Cost, Yes Value for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/cience-of-captivating-youtube-thumbnails/"><u>The Science of Captivating YouTube Thumbnails</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-oneplus-ace-2-pro-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for OnePlus Ace 2 Pro Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-bluetooth-device-detection-issues-in-windows-11/"><u>Troubleshooting Bluetooth Device Detection Issues in Windows 11</u></a></li>
 </ul></div>
 

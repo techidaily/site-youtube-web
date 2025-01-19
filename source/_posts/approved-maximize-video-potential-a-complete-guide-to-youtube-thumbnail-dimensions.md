@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Maximize Video Potential  A Complete Guide to YouTube Thumbnail Dimensions\""
-date: 2025-01-11T08:35:02.922Z
-updated: 2025-01-13T05:17:36.945Z
+date: 2025-01-13T23:18:38.131Z
+updated: 2025-01-18T18:10:46.448Z
 tags:
   - ai video
   - ai youtube
@@ -57,6 +57,10 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -73,21 +77,21 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
 
 ![youtube thumbnail size](https://images.wondershare.com/filmora/article-images/swap-thumbnail4.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 2\. For Already Uploaded Video
@@ -99,14 +103,14 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![upload thumbnail image](https://images.wondershare.com/filmora/article-images/change-thumbnail5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Now in the thumbnail section if you already haven’t uploaded a custom thumbnail, click **Custom thumbnail**.
 * Select your intended thumbnail file and click **Save**.
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
@@ -125,7 +129,7 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
@@ -158,10 +162,6 @@ YouTube thumbnail plays an important part for the audience's first impression on
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -183,21 +183,18 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-cutting-edge-templates-unlocking-your-videos-potential/"><u>[New] In 2024, Cutting-Edge Templates Unlocking Your Video's Potential</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/evolutionary-techniques-mastering-visual-arts-with-the-top-10-free-youtube-tutorials/"><u>[New] Revolutionary Techniques Mastering Visual Arts with the Top 10 Free YouTube Tutorials</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-art-of-audience-engagement-emulate-your-idols-online/"><u>[Updated] 2024 Approved The Art of Audience Engagement Emulate Your Idols Online</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-30-metaverse-phenomena-making-your-mark-with-memes/"><u>[Updated] 30 Metaverse Phenomena Making Your Mark with Memes</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-crest-of-crafts-review-pinnacle-studio-evaluation/"><u>[Updated] Crest of Crafts Review Pinnacle Studio Evaluation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-deep-dive-into-rank-tracker-software-optimize-your-channels-success/"><u>[Updated] Deep Dive Into Rank Tracker Software - Optimize Your Channel's Success</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-ideal-matches-top-8-stability-tools-for-4k-cameras/"><u>[Updated] Ideal Matches Top 8 Stability Tools for 4K Cameras</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-best-12-youtube-gaming-intro-makers-free-and-paid/"><u>[Updated] In 2024, Best 12 YouTube Gaming Intro Makers - Free and Paid</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-cut-trim-and-enhance-youtube-editing-tips-for-the-rookie/"><u>[Updated] In 2024, Cut, Trim & Enhance YouTube Editing Tips for the Rookie</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/2024-approved-most-popular-gratuitous-vfx-websites/"><u>2024 Approved Most Popular Gratuitous VFX Websites</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-honor-x7b-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Honor X7b | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/captivating-brain-teasing-games-akin-to-the-room-and-myst-for-apple-tablets-and-phones/"><u>Captivating Brain-Teasing Games Akin to 'The Room' And 'Myst' For Apple Tablets & Phones</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/te-vlogging-quality-the-ultimate-12-recommended-cam-picks-for-2024/"><u>Elevate Vlogging Quality - The Ultimate 12 Recommended Cam Picks for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-oppo-reno-10-pro-5g-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Oppo Reno 10 Pro 5G to Roku | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/in-2024-5-best-route-generator-apps-you-should-try-on-samsung-galaxy-a15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Best Route Generator Apps You Should Try On Samsung Galaxy A15 5G | Dr.fone</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/in-2024-mastering-video-sharing-understanding-vimeo-membership-plans/"><u>In 2024, Mastering Video Sharing Understanding Vimeo Membership Plans</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/utting-edge-creativity-top-editors-for-online-sharing/"><u>[New] Cutting-Edge Creativity Top Editors for Online Sharing</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-increase-fb-engagement-and-sales-the-15-most-effective-analyzers/"><u>[New] In 2024, Increase FB Engagement & Sales The 15 Most Effective Analyzers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-omnipresent-overture-the-virtual-cinema/"><u>[New] In 2024, Omnipresent Overture The Virtual Cinema</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-legality-of-recording-on-youtube-platform-in-2024/"><u>[Updated] Legality of Recording on YouTube Platform, In 2024</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/1-video-transfer-pro-effortless-conversion-and-downloading-from-odootv-in-various-formats/"><u>1. 'Video Transfer Pro: Effortless Conversion and Downloading From Odoo.tv in Various Formats'</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-step-by-step-pathway-to-adding-sound-in-adobe-premiere-for-2024/"><u>A Step-by-Step Pathway to Adding Sound in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-collabs-that-attract-and-retain-viewers-for-2024/"><u>Crafting Collabs that Attract and Retain Viewers for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/fubotv-streaming-made-easy-for-firestick-users-installation-and-setup-instructions/"><u>FuboTV Streaming Made Easy for Firestick Users: Installation & Setup Instructions</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/grouping-pages-effectively-a-guide-to-optimizing-user-interfaces/"><u>Grouping Pages Effectively: A Guide to Optimizing User Interfaces</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-nokia-xr21-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Nokia XR21 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-elevate-your-mobile-shoot-ranking-the-best-9-camgear-innovations/"><u>In 2024, Elevate Your Mobile Shoot - Ranking the Best 9 CamGear Innovations</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-infinix-hot-40-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Infinix Hot 40 Phones</u></a></li>
+<li><a href="https://program-issues.techidaily.com/overcoming-launch-screen-hiccups-in-cold-war-a-guide-for-players-and-consoles-users/"><u>Overcoming Launch Screen Hiccups in 'Cold War': A Guide for Players and Consoles Users</u></a></li>
 </ul></div>
 

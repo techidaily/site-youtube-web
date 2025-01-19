@@ -1,7 +1,7 @@
 ---
 title: "\"From Script to Spectacle  Independent Effect Innovation\""
-date: 2025-01-08T05:46:29.271Z
-updated: 2025-01-13T05:47:28.497Z
+date: 2025-01-13T22:21:01.100Z
+updated: 2025-01-18T19:22:10.521Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,21 +112,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-explore-best-speech-recognition-software-on-your-mac-for-2024/"><u>[New] Explore Best Speech Recognition Software on Your Mac for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-quick-steps-for-adding-speech-to-text-in-powerpoint-slides/"><u>[New] In 2024, Quick Steps for Adding Speech-to-Text in PowerPoint Slides</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-optimal-film-and-camera-choices-for-youtube-vloggers/"><u>[Updated] 2024 Approved Optimal Film & Camera Choices for YouTube Vloggers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-essence-of-online-video-success-keywords-on-youtube/"><u>[Updated] 2024 Approved The Essence of Online Video Success Keywords on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-step-by-step-to-stellar-video-youtube-studio-edition/"><u>2024 Approved Step-by-Step to Stellar Video YouTube Studio Edition</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-top-artisans-in-sound-and-video-craftsminas-online/"><u>2024 Approved The Top Artisans in Sound and Video Craftsminas Online</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/se-profits-on-youtube-earnings-per-thousand-video-watchers/"><u>AdSense Profits on YouTube Earnings per Thousand Video Watchers</u></a></li>
-<li><a href="https://techtrends.techidaily.com/ai-revolution-how-artificial-intelligence-is-transforming-the-future/"><u>AI Revolution: How Artificial Intelligence Is Transforming the Future</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/behind-the-colorscape-a-look-at-hps-z32-x/"><u>Behind the Colorscape A Look at HP’s Z32 X</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/harnessing-metaverse-promotion-power/"><u>Harnessing Metaverse Promotion Power</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-a-comprehensive-guide-to-iphone-se-2020-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iPhone SE (2020) Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-zte-blade-a73-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From ZTE Blade A73 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-uncovering-youtubes-star-comment/"><u>In 2024, Uncovering YouTube's Star Comment</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ly-income-patterns-for-content-creators/"><u>Monthly Income Patterns for Content Creators</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ist-embedding-on-sites-using-youtube/"><u>Playlist Embedding on Sites Using YouTube</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/vsdm-video-capture-overview-thorough-scrutiny-for-2024/"><u>VSDM Video Capture Overview Thorough Scrutiny for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-cutting-edge-strategies-for-youtube-split-screen-videos/"><u>[New] 2024 Approved Cutting-Edge Strategies for YouTube Split-Screen Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/igh-end-audio-for-youtubes-best-gamers/"><u>[New] High-End Audio for YouTube's Best Gamers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-how-neuroscience-insights-enhance-effective-corporate-governance/"><u>[New] In 2024, How Neuroscience Insights Enhance Effective Corporate Governance</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nsights-into-youtubes-economic-model-for-content-makers-for-2024/"><u>[New] Insights Into YouTube's Economic Model for Content Makers for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-superior-script-architect-space/"><u>[New] Superior Script Architect Space</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-from-passive-to-active-income-profitable-facebook-tactics/"><u>[Updated] 2024 Approved From Passive to Active Income Profitable Facebook Tactics</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-accurate-earnings-tracking-for-creators/"><u>Ensuring Accurate Earnings Tracking for Creators</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/facebook-fam-bites-in-snapchat-spotlight-for-2024/"><u>Facebook Fam Bites in Snapchat Spotlight for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-intercept-text-messages-on-nubia-red-magic-8s-proplus-drfone-by-drfone-virtual-android/"><u>How to Intercept Text Messages on Nubia Red Magic 8S Pro+ | Dr.fone</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-download-free-mcb-logo-templates/"><u>In 2024, Download Free MCB Logo Templates</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-catch-the-regional-pokemon-without-traveling-on-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Catch the Regional Pokémon without Traveling On Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ast-track-to-youtube-fame-a-1000-sub-goal-plan/"><u>The Fast Track to YouTube Fame A 1000 Sub Goal Plan</u></a></li>
 </ul></div>
 

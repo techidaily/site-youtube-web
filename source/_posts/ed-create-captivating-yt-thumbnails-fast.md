@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Create Captivating YT Thumbnails Fast!"
-date: 2024-08-15T22:31:38.675Z
-updated: 2024-08-16T22:31:38.675Z
+date: 2025-01-13T01:29:49.074Z
+updated: 2025-01-18T16:53:24.794Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -43,9 +47,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
@@ -71,9 +83,17 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
@@ -103,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -119,8 +136,23 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-clips.techidaily.com/new-essential-mobile-media-apps-for-high-quality-photographyvideography/"><u>[New] Essential Mobile Media Apps for High-Quality Photography/Videography</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-crafting-charm-in-the-click-a-thumbnail-hack-for-youtube-shorts-for-2024/"><u>[Updated] Crafting Charm in the Click A Thumbnail Hack for YouTube Shorts for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-daily-dosage-of-serenity-top-yoga-channels-for-life-for-2024/"><u>[Updated] Daily Dosage of Serenity Top Yoga Channels for Life for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-emoji-mastery-for-engaging-youtube-discussions/"><u>[Updated] In 2024, Emoji Mastery for Engaging YouTube Discussions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-expert-tips-for-selecting-lenses-as-a-video-blogger/"><u>2024 Approved Expert Tips for Selecting Lenses as a Video Blogger</u></a></li>
+<li><a href="https://games-able.techidaily.com/addressing-unverified-game-files-in-steam/"><u>Addressing Unverified Game Files in Steam</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-honor-x50-gt-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Honor X50 GT? | Dr.fone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-spy-on-text-messages-from-computer-and-nokia-c12-pro-drfone-by-drfone-virtual-android/"><u>How to Spy on Text Messages from Computer & Nokia C12 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/iate-mastery-skilled-thumbnails-for-valorants-highlights-for-2024/"><u>Immediate Mastery - Skilled Thumbnails for Valorant's Highlights for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-to-cast-samsung-galaxy-a23-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>In 2024, How to Cast Samsung Galaxy A23 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ate-through-settings-enabledisable-video-comments-for-2024/"><u>Navigate Through Settings Enable/Disable Video Comments for 2024</u></a></li>
+<li><a href="https://windows11.techidaily.com/optimize-your-pc-embrace-the-power-of-self-cleaning-files-on-winos/"><u>Optimize Your PC: Embrace the Power of Self-Cleaning Files on WINOS</u></a></li>
+<li><a href="https://howto.techidaily.com/reasons-for-vivo-s18e-stuck-on-startup-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Vivo S18e Stuck on Startup Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://discover-exceptional.techidaily.com/rescue-your-deletions-top-strategies-for-restoring-removed-files-in-windows-recycle-bin/"><u>Rescue Your Deletions: Top Strategies for Restoring Removed Files in Windows Recycle Bin</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rt-of-disguising-reality-learn-free-green-screen-techniques-via-vfx-leaders-on-4-video-platforms-for-2024/"><u>The Art of Disguising Reality Learn Free Green Screen Techniques via VFX Leaders on 4 Video Platforms for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/form-your-video-calls-google-meet-on-youtube-guide-for-2024/"><u>Transform Your Video Calls Google Meet on YouTube Guide for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

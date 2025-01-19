@@ -1,7 +1,7 @@
 ---
 title: "\"Crafting Powerful Partnerships  A Guide to Choosing YouTube Allies\""
-date: 2024-08-15T22:28:52.699Z
-updated: 2024-08-16T22:28:52.699Z
+date: 2025-01-17T22:33:51.607Z
+updated: 2025-01-18T21:41:53.307Z
 tags:
   - ai video
   - ai youtube
@@ -64,8 +64,9 @@ People sub to Roberto for tech advice, for example, so it makes sense for him to
 If you approach somebody about collaborating and they see that you haven’t posted in over a month, or that you don’t have many videos, it might be harder to get them to agree to work with you. The same goes if they watch your videos and don’t think they are at the same quality level as their videos.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tips From YouTube Guru Nich Nimmin
 
 This is a collab video about collab videos! **[Nick Nimmin’s](https://www.youtube.com/channel/UCei6wyubYC1I1FwZ54LZFiA)** channel is all about YouTube, and Brandon’s channel **[OnePercentBetter](https://www.youtube.com/channel/UCRI6t05DNVlV0XhdI7hx%5Fiw)** has tons of cool self-development animations. It’s Brandon giving the tips in this video, and 3 of his best are:
@@ -82,9 +83,6 @@ When you’re approaching someone for the first time, don’t overwhelm them wit
 
 Don’t make your potential partner do the work of pitching ideas to you. Be open to their ideas, but come up with 1 or 2 ideas of your own you can mention when you approach the creator you want to work with. People will be more likely to say ‘yes’ to a specific idea than to the idea of collaborating in general, if they don’t already know you.
 
-<!-- affiliate ads begin -->
-<a href="https://atezr.pxf.io/c/5597632/2018605/18496" target="_top" id="2018605"><img src="//a.impactradius-go.com/display-ad/18496-2018605" border="0" alt="" width="798" height="807"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2018605/18496" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tips From Freelancer / Lifestyle Vlogger Amy Schmittauer
 
 **[Amy Schmittauer](https://www.youtube.com/user/savvysexysocial/featured)** of Savvy Sexy Social does vlogs, lifestyle videos, and provides tips on being a freelancer. After doing several collabs in one week, she posted this video about how collaborations work best and how you should approach people you might want to work with.
@@ -104,8 +102,9 @@ If you appeared in someone else’s video, you would probably appreciate it if t
  _Collab advice starts at around 2:10._
 
 <!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453719/17020" target="_top" id="1453719"><img src="//a.impactradius-go.com/display-ad/17020-1453719" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453719/17020" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Tips From Lifestyle and Fashion YouTuber MyLifeAsEva
 
 **[Eva Gutowski](https://www.youtube.com/user/mylifeaseva/featured)** (MyLifeAsEva) is a lifestyle, fashion, and DIY YouTuber who has done numerous collaborations and believes in making real friends on YouTube. In the video above she shares some of her experiences and talks about how to come across as a real person when you approach other YouTubers about collaborating.
@@ -125,18 +124,21 @@ Twitter is the best place to make YouTube friends, in Eva’s opinion. It’s an
  Do you have any of your advice on YouTube collaborations?
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Excellent YouTube Video Editor Always Save Your Time
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -145,14 +147,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -161,4 +160,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-posts.techidaily.com/new-2024-approved-coloredge-clarity-redefined-examining-eizos-4kcg318-display/"><u>[New] 2024 Approved ColorEdge Clarity Redefined – Examining EIZO’s 4KCG318 Display</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-unlock-creativity-in-youtube-production-an-intro-to-wmm/"><u>[New] In 2024, Unlock Creativity in YouTube Production An Intro to WMM</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-stepwise-strategies-building-a-playlist-on-youtube/"><u>[Updated] 2024 Approved Stepwise Strategies Building a Playlist on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-essential-youtube-tagging-strategies-for-optimal-visibility/"><u>[Updated] In 2024, Essential YouTube Tagging Strategies for Optimal Visibility</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-securely-download-your-youtube-playlist-at-any-time-for-2024/"><u>[Updated] Securely Download Your YouTube Playlist at Any Time for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-unveiling-your-digital-world-how-to-establish-a-youtube-channel/"><u>2024 Approved Unveiling Your Digital World How to Establish a YouTube Channel</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-infinix-note-30-5g-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Infinix Note 30 5G</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/easy-tutorial-setting-up-and-using-voicemail-on-your-android-smartphone/"><u>Easy Tutorial: Setting Up and Using Voicemail on Your Android Smartphone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-htc-u23-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast HTC U23 to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-how-to-loop-videos-on-iphone/"><u>In 2024, How to Loop Videos on iPhone?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-hot-30i-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Infinix Hot 30i Phone without Google Account?</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-on-xiaomi-13t-pro-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide on Xiaomi 13T Pro FRP Bypass</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/revamp-your-laptop-graphics-with-ease/"><u>Revamp Your Laptop Graphics with Ease</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rt-of-tweaking-soundtracks-in-youtube-videos/"><u>The Art of Tweaking Soundtracks in YouTube Videos</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-11-free-apps-to-check-imei-on-iphone-6s-plus-by-drfone-ios/"><u>Top 11 Free Apps to Check IMEI on iPhone 6s Plus</u></a></li>
+</ul></div>
 

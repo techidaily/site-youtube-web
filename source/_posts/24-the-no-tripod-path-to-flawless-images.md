@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, The No-Tripod Path to Flawless Images\""
-date: 2024-08-15T22:32:57.408Z
-updated: 2024-08-16T22:32:57.408Z
+date: 2025-01-12T19:12:22.929Z
+updated: 2025-01-19T01:21:34.433Z
 tags:
   - ai video
   - ai youtube
@@ -34,11 +34,12 @@ Wondershare Filmora has the best video stabilization tool is your videos have a 
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **DIY smartphone tripod using binder clips or hair clips**
 
 You’re a solo operation and your best camera is on your phone. That’s pretty common.
@@ -52,24 +53,23 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 Here it is with binder clips:
 
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 And here it is with hair clips:
 
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
 
  _Here are some more cool ideas!_
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -87,6 +87,10 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
@@ -94,9 +98,6 @@ Gorillapod’s are cool because you can use them like normal tripods, carry them
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
-<!-- affiliate ads begin -->
-<a href="https://aspironcom.sjv.io/c/5597632/1941789/21554" target="_top" id="1941789"><img src="//a.impactradius-go.com/display-ad/21554-1941789" border="0" alt="" width="650" height="800"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1941789/21554" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _All of your supplies plus the finished product._
 
@@ -119,8 +120,9 @@ _**Step 2:**_ After all the legs are attached, wrap some more tape around all 3 
 _Note: make sure the bolt is a fit for your camera before you get too far into this process._
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -129,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -145,4 +144,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-optimal-sony-ps3-reproduction-tools-ranked-pc/"><u>[New] 2024 Approved Optimal Sony PS3 Reproduction Tools Ranked (PC)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/reating-content-with-purpose-balancing-job-and-youtube-for-2024/"><u>[New] Creating Content with Purpose Balancing Job & YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-effortless-entertainment-looping-youtube-videos-for-tv-viewers/"><u>[New] In 2024, Effortless Entertainment Looping YouTube Videos for TV Viewers</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-upgrade-clips-adding-effects-to-videos-pcmobile/"><u>[New] Upgrade Clips Adding Effects to Videos (PC/Mobile)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-effortlessly-create-engaging-youtube-thumbnails/"><u>[Updated] 2024 Approved Effortlessly Create Engaging YouTube Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-12-real-time-youtube-subscriber-trackers/"><u>[Updated] 2024 Approved Top 12 Real-Time YouTube Subscriber Trackers</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-ultimate-guide-to-vehicle-monitoring-cameras/"><u>[Updated] 2024 Approved Ultimate Guide to Vehicle Monitoring Cameras</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-best-voice-conversion-tools-for-vlogging-professionals-for-2024/"><u>[Updated] Best Voice Conversion Tools for Vlogging Professionals for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-explore-mastery-in-photography-and-videography-on-apple-and-android-phones-for-2024/"><u>[Updated] Explore Mastery in Photography & Videography on Apple & Android Phones for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-maximize-your-youtube-channels-financial-potential-for-2024/"><u>[Updated] Maximize Your YouTube Channel's Financial Potential for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-your-portal-to-successful-online-marketing-our-showcase-of-over-50-free-banners-awaits-you-in-2024/"><u>[Updated] Your Portal to Successful Online Marketing - Our Showcase of Over 50 Free Banners Awaits You, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-skyrocket-your-channel-mastery-of-youtube-data-analysis/"><u>2024 Approved Skyrocket Your Channel Mastery of YouTube Data Analysis</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nding-attention-on-digital-platforms-via-custom-designs-for-2024/"><u>Commanding Attention on Digital Platforms via Custom Designs for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/hacks-to-do-pokemon-go-trainer-battles-for-lava-yuva-3-drfone-by-drfone-virtual-android/"><u>Hacks to do pokemon go trainer battles For Lava Yuva 3 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-download-youtube-playlist-step-by-step-in-2024/"><u>How to Download YouTube Playlist-Step by Step, In 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-audio-aesthetics-in-whatsapp-updates/"><u>In 2024, Audio Aesthetics in WhatsApp Updates</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-sony-xperia-5-v-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to Sony Xperia 5 V FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://fox-http.techidaily.com/insiders-guide-to-pro-windows-10-expertise-for-2024/"><u>Insider's Guide to Pro WINDOWS 10 Expertise for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-rechargeable-battery-chargers-the-ultimate-guide/"><u>Top-Rated Rechargeable Battery Chargers: The Ultimate Guide</u></a></li>
+</ul></div>
 

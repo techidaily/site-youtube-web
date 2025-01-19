@@ -1,7 +1,7 @@
 ---
 title: "[New] The Affordable Art of YouTube Intros/Ends"
-date: 2024-08-15T22:33:40.868Z
-updated: 2024-08-16T22:33:40.868Z
+date: 2025-01-11T19:24:54.541Z
+updated: 2025-01-18T21:00:17.289Z
 tags:
   - ai video
   - ai youtube
@@ -40,6 +40,10 @@ thumbnail: https://thmb.techidaily.com/6190a0016cd0db6cebefe5acaadd207d01333c258
 
 [How To Make an End Card](#how-to)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -68,6 +72,10 @@ You can create a simple intro card in **Filmora**.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
 3. If you have a logo, import it into Filmora and drag it into your picture-in-picture track.
@@ -78,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -114,9 +123,9 @@ Some creators will leave their end cards at that and play music overtop, but it 
 14. Click **Apply Changes**.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901410&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix Pro - Software based live production. vMix Pro includes everything in vMix 4K plus 8 channels of Replay and 8 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -125,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -141,4 +147,24 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-lessons.techidaily.com/new-captivating-collections-frames-and-organizers-of-the-future/"><u>[New] Captivating Collections Frames & Organizers of the Future</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rack-your-videos-with-these-top-8-youtube-rank-trackers/"><u>[New] Track Your Videos With These Top 8 YouTube Rank Trackers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-youtube-to-igtv-migration-step-by-step-guide/"><u>[Updated] 2024 Approved YouTube-to-IGTV Migration Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-boosting-yield-strategies-for-successful-money-making-on-mobile-youtube-for-2024/"><u>[Updated] Boosting Yield Strategies for Successful Money-Making on Mobile YouTube for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-dual-display-audio-preservation-for-2024/"><u>[Updated] Dual-Display Audio Preservation for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-navigating-periscope-detailed-instruction-manual/"><u>[Updated] In 2024, Navigating Periscope Detailed Instruction Manual</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-rapid-learning-from-visuals-to-vivid-youtube-channel-thumbnails/"><u>[Updated] In 2024, Rapid Learning From Visuals To Vivid YouTube Channel Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-premier-selector-exclusive-app-selection-for-your-videos/"><u>[Updated] Premier Selector Exclusive App Selection for Your Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-quick-tunes-explore-video-music-characters-for-2024/"><u>[Updated] Quick Tunes Explore Video Music Characters for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-simplified-strategies-for-muting-or-disabling-youtube-channels-computermobile/"><u>[Updated] Simplified Strategies for Muting or Disabling Youtube Channels (Computer/Mobile)</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/demographic-relevance-for-higher-youtube-rankings-for-2024/"><u>Demographic Relevance for Higher YouTube Rankings for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tlessly-replay-videos-on-iphone-for-2024/"><u>Effortlessly Replay Videos on iPhone for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/examining-the-usefulness-of-artificial-intelligence-for-savings-tips/"><u>Examining the Usefulness of Artificial Intelligence for Savings Tips</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-detect-and-remove-spyware-on-oppo-find-x7-ultra-drfone-by-drfone-virtual-android/"><u>How to Detect and Remove Spyware on Oppo Find X7 Ultra? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-detect-and-stop-mspy-from-spying-on-your-poco-c51-drfone-by-drfone-virtual-android/"><u>How to Detect and Stop mSpy from Spying on Your Poco C51 | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/in-2024-crimson-codec-update/"><u>In 2024, Crimson Codec Update</u></a></li>
+<li><a href="https://fox-that.techidaily.com/overcoming-text-message-alert-issues-on-iphone-with-these-proven-fixes-16plus/"><u>Overcoming Text Message Alert Issues on iPhone with These Proven Fixes (16+)</u></a></li>
+</ul></div>
 

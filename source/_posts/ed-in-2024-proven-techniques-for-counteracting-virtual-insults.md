@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Proven Techniques for Counteracting Virtual Insults"
-date: 2025-01-05T16:20:02.858Z
-updated: 2025-01-13T09:05:21.565Z
+date: 2025-01-13T20:17:26.306Z
+updated: 2025-01-18T23:30:01.490Z
 tags:
   - ai video
   - ai youtube
@@ -27,7 +27,7 @@ thumbnail: https://thmb.techidaily.com/53f3a3394ff2579b0b4baf68462fcda182f1a767b
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to Deal with Negative Comments on YouTube
@@ -59,7 +59,7 @@ thumbnail: https://thmb.techidaily.com/53f3a3394ff2579b0b4baf68462fcda182f1a767b
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -83,18 +83,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/ow-to-rotate-youtube-videos-by-any-angle-2023-guide-andeditors-for-2024/"><u>[New] How to Rotate YouTube Videos by Any Angle [2023 Guide &Editors] for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-elite-media-maestro-picture-perfect-with-pitches/"><u>[New] In 2024, Elite Media Maestro Picture Perfect with Pitches</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nlock-cross-platform-content-sharing-convert-and-upload-with-these-tools-for-2024/"><u>[New] Unlock Cross-Platform Content Sharing Convert and Upload with These Tools for 2024</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/updated-in-2024-enter-the-arena-your-guide-to-social-tiktok-streaming/"><u>[Updated] In 2024, Enter the Arena Your Guide to Social TikTok Streaming</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-propel-your-vlogs-forward-top-seo-tech-unveiled-for-2024/"><u>[Updated] Propel Your Vlogs Forward – Top SEO Tech Unveiled for 2024</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/2024-approved-5-easy-ways-to-multiply-your-youtube-follower-base/"><u>2024 Approved 5 Easy Ways to Multiply Your YouTube Follower Base</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/capturing-motion-with-gopro-time-lapse-techniques/"><u>Capturing Motion with GoPro Time-Lapse Techniques</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/dont-lose-anythpressentiment-recover-iphone-files-quickly-with-stellar-order-now/"><u>Don't Lose Anythpressentiment; Recover iPhone Files Quickly with Stellar - Order Now!</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ng-the-perfect-phrases-for-gamers-videos/"><u>Finding the Perfect Phrases for Gamers' Videos</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/how-to-repair-and-update-hp-monitor-drivers-across-multiple-windows-environments/"><u>How to Repair and Update HP Monitor Drivers Across Multiple Windows Environments</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/solving-the-mystery-effective-strategies-to-recover-missing-msvcrtdll-file/"><u>Solving the Mystery: Effective Strategies to Recover Missing msvcrt.dll File</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/sticker-squash-a-pathway-to-clean-tiktok-videos/"><u>Sticker Squash A Pathway to Clean TikTok Videos</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/windows-11s-new-backup-a-technical-examination/"><u>Windows 11'S New Backup: A Technical Examination</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-cam-titans-collide-sj6-and-yi-4k-showdown/"><u>[New] 2024 Approved Cam Titans Collide SJ6 and Yi 4K Showdown</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-eliminate-unwanted-podcast-suggestions-on-spotify/"><u>[New] 2024 Approved Eliminate Unwanted Podcast Suggestions on Spotify</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-your-go-to-resource-mastering-the-use-of-mobizen-recorders/"><u>[New] 2024 Approved Your Go-To Resource Mastering the Use of Mobizen Recorders</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/scend-your-earning-game-executing-a-three-part-blueprint-for-youtube-revenue-analysis/"><u>[New] Ascend Your Earning Game Executing a Three-Part Blueprint for YouTube Revenue Analysis</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/treamlining-your-spotify-to-youtube-music-library-transition-for-2024/"><u>[New] Streamlining Your Spotify to YouTube Music Library Transition for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/urning-your-youtube-shorts-into-earnings-what-you-need-and-how-much-in-2024/"><u>[New] Turning Your YouTube Shorts Into Earnings What You Need & How Much, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlocking-youtube-success-with-savvy-backlinking-for-2024/"><u>[New] Unlocking YouTube Success with Savvy Backlinking for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-igtv-vs-youtube-differences-and-which-one-should-you-use/"><u>[Updated] 2024 Approved IGTV VS YouTube Differences and Which One Should You Use?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-navigating-common-youtube-short-hurdles/"><u>[Updated] In 2024, Navigating Common YouTube Short Hurdles</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-investing-5-yields-hundreds-of-new-viewers-now-for-2024/"><u>[Updated] Investing $5 Yields Hundreds of New Viewers Now for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-framing-the-frame-top-camera-techniques-for-visuals/"><u>2024 Approved Framing the Frame Top Camera Techniques for Visuals</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-ways-to-send-ringtones-from-apple-iphone-11-pro-max-to-iphone-including-iphone-15-drfone-by-drfone-transfer-from-ios/"><u>5 Ways to Send Ringtones from Apple iPhone 11 Pro Max to iPhone Including iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://fox-access.techidaily.com/discovering-windows-11s-new-additions-for-2024/"><u>Discovering Windows 11'S New Additions for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/re-the-8-premier-zero-cost-video-editors-for-social-media-pros/"><u>Explore the 8 Premier Zero-Cost Video Editors for Social Media Pros</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-edit-youtube-videos-in-imovie-for-2024/"><u>How to Edit YouTube Videos in iMovie for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/leading-graphics-tech-for-uhd-videography-for-2024/"><u>Leading Graphics Tech for UHD Videography for 2024</u></a></li>
 </ul></div>
 
