@@ -1,7 +1,7 @@
 ---
 title: "Elevate Your Content With These 20 Pro Video Shortcuts for 2024"
-date: 2024-08-15T22:27:50.198Z
-updated: 2024-08-16T22:27:50.198Z
+date: 2025-01-19T03:34:21.358Z
+updated: 2025-01-25T04:08:20.687Z
 tags:
   - ai video
   - ai youtube
@@ -32,9 +32,6 @@ With that said, the following two-columned tables give you detailed information 
 
 To make things convenient for you, the shortcut keys are placed under their corresponding categories, where each category is in the form of a two-columned table.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 1: YouTube Playback Hotkeys
 
 While watching a YouTube video, there might be instances when you want to pause and resume the playback. This category teaches how this can be done using the keyboard:
@@ -73,8 +70,9 @@ This category contains information on increasing or decreasing the playback spee
 | 'SHIFT' + ',' (Comma)  | Decrease playback speed |
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Category 4: Managing the Captions
 
 This category talks about managing the video captions using the shortcut keys:
@@ -87,9 +85,6 @@ This category talks about managing the video captions using the shortcut keys:
 | '-' (Minus Key)    | Reduce the font size of the captions (Minus key on the Numpad isn't supported)                                       |
 | '+' (Plus Key)     | Increase the font size of the captions (Plus key on the Numpad isn't supported)                                      |
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Category 5: Managing the Audio Video
 
 This category shows the shortcut keys to manage audio for a YouTube video:
@@ -100,9 +95,6 @@ This category shows the shortcut keys to manage audio for a YouTube video:
 | '↑'               | Increase volume by 5% |
 | '↓'               | Decrease volume by 5% |
 
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Category 6: Switching Between Screen Modes
 
 The shortcut keys given in this table enable you to switch between different screen modes:
@@ -117,6 +109,10 @@ Double press F/T/I on the keyboard will exit the full-screen/theater model/indep
 
 If you are watching video on YouTube mobile app, you can swipe up the video slightly to enter the full screen mode, and swipe down the video slightly to exit the full screen.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Category 7: Viewing 360o/VR Videos
 
 In this category, the navigation and management of shortcut keys for 360o and Virtual Reality (VR) view are discussed:
@@ -130,8 +126,9 @@ In this category, the navigation and management of shortcut keys for 360o and Vi
 | '+' (Plus Key on Keyboard)  | Increase font size                                    |
 
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Bonus: How to Get the YouTube Shortcut List with One-Click
 
 In this section, you will learn how to pull up the list of important YouTube shortcuts by pressing merely one key:
@@ -152,9 +149,14 @@ As one of the most popular video editing software among YouTubers, Filmora provi
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -163,14 +165,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -179,4 +178,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ios-insiders-list-top-rated-downloading-apps-for-video-buffs/"><u>[New] 2024 Approved IOS Insider's List Top-Rated Downloading Apps for Video Buffs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-secure-approach-verifying-your-youtube-login-details/"><u>[New] 2024 Approved Secure Approach Verifying Your YouTube Login Details</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-unveiling-the-role-of-emotions-in-executive-choices-a-neuroscientific-perspective/"><u>[New] 2024 Approved Unveiling the Role of Emotions in Executive Choices A Neuroscientific Perspective</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/igital-riches-unleashed-measuring-your-success-on-youtubes-platform/"><u>[New] Digital Riches Unleashed Measuring Your Success on YouTube's Platform</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ire-harmony-a-collection-of-inspirational-clips-for-2024/"><u>[New] Hire Harmony A Collection of Inspirational Clips for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-sync-fix-twitter-vids-and-chrome/"><u>[New] Sync Fix Twitter Vids and Chrome</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlocking-secrets-for-superior-asmr-viewing/"><u>[New] Unlocking Secrets for Superior ASMR Viewing</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-leverage-loops-for-stirring-instagram-engagement-and-likes/"><u>[Updated] Leverage Loops for Stirring Instagram Engagement & Likes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-navigating-numbers-essential-online-stock-market-guides/"><u>[Updated] Navigating Numbers Essential Online Stock Market Guides</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-youtube-comment-finder-you-should-try/"><u>2024 Approved YouTube Comment Finder You Should Try</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/tifying-mukbang-a-comprehensive-production-guide-for-2024/"><u>Demystifying Mukbang A Comprehensive Production Guide for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-your-nokia-c02-screen-to-pc-with-chromecast-drfone-by-drfone-android/"><u>How to Mirror Your Nokia C02 Screen to PC with Chromecast | Dr.fone</u></a></li>
+<li><a href="https://win-answers.techidaily.com/how-to-prevent-your-personal-playthrough-of-persona-3-fe-from-freezing-on-a-pc/"><u>How to Prevent Your Personal Playthrough of Persona 3 FE From Freezing on a PC</u></a></li>
+<li><a href="https://win11.techidaily.com/realigning-your-gaming-experience-solve-xbox-error-on-win11/"><u>Realigning Your Gaming Experience: Solve Xbox Error on Win11</u></a></li>
+<li><a href="https://common-error.techidaily.com/reviving-your-ps4-controller-expert-advice-for-non-charging-issues/"><u>Reviving Your PS4 Controller: Expert Advice for Non-Charging Issues</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/unlocking-vanished-videos-watching-youtubes-forgotten-gems-online-for-2024/"><u>Unlocking Vanished Videos Watching YouTube's Forgotten Gems Online for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/window-warriors-fixed-wobbling-arrows-await/"><u>Window Warriors, Fixed Wobbling Arrows Await</u></a></li>
+</ul></div>
 

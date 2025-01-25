@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Masterclass in Glamour  Beauty Tutorials for All\""
-date: 2025-01-12T21:30:50.670Z
-updated: 2025-01-18T19:34:46.149Z
+date: 2025-01-21T07:58:29.540Z
+updated: 2025-01-24T16:47:36.312Z
 tags:
   - ai video
   - ai youtube
@@ -52,10 +52,6 @@ Wondershare Filmora is specifically made keeping quality on priority and to make
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Finding Your Niche in Beauty or Lifestyle**
 
 As a new makeup, beauty, or lifestyle YouTuber you’ll be jumping into a category that’s already packed with thousands of channels. In order to gain any momentum, you’ll have to decide on a particular thing you want to be known for. That’s your niche.
@@ -65,10 +61,6 @@ People looking for beauty tutorials are often looking for someone who has someth
 Another way you could find a niche is by taking on a specific area of interest, like a skincare channel with a focus on coping with acne or a makeup channel with a focus on natural products.
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Types of Beauty Videos – Your Content Strategy**
 
@@ -129,10 +121,6 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -170,17 +158,21 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
-For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
 ## **Lighting for Beauty**
 
@@ -228,6 +220,10 @@ One cool feature of the Neewer Ring Light is that you can choose between dayligh
 
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
 #### 2\. [**Prismatic Halo Ring Light**](https://www.amazon.com/Prismatic-Halo-Ring-Light-Stand/dp/B015NJ2YHY/ref=sr%5F1%5F3?s=electronics&ie=UTF8&qid=1530135663&sr=1-3&keywords=prismatic+18%22+halo+ring+light) **\- $260**
@@ -237,7 +233,7 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
@@ -278,7 +274,7 @@ Before you start recording your makeup tutorial there are a few things you shoul
  5. **_Do an audio test._** If you’re going to be talking in your video instead of recording a voiceover after, do an audio test to make sure your audience will be able to hear you clearly.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – Recording**
@@ -289,6 +285,10 @@ Here are some things to keep in mind while you record your makeup tutorial:
 If you’re using autofocus, you can hold products up to the screen and wait for it to kick in. If you’re not using autofocus, just hold them up next to you for a moment. You can also shoot separate closeups of each product and cut them into your main tutorial video.
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **How to Make a Makeup Tutorial – After Shooting**
 
@@ -327,15 +327,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/-leading-tools-for-crafting-superior-video-titles-and-tags/"><u>[New] 5 Leading Tools for Crafting Superior Video Titles and Tags</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-discover-comprehensive-mac-art-app-selection/"><u>[New] Discover Comprehensive Mac Art App Selection</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-discover-the-magic-behind-effective-youtube-short-videos/"><u>[New] In 2024, Discover the Magic Behind Effective YouTube Short Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-how-to-avoid-and-reverse-strikes-on-your-youtube-channel/"><u>[Updated] In 2024, How to Avoid and Reverse Strikes on Your YouTube Channel</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/st-lights-and-lighting-equipment-for-youtube-videos-for-2024/"><u>17 Best Lights and Lighting Equipment for YouTube Videos for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-apple-iphone-14-drfone-by-drfone-virtual-ios/"><u>How to Change Netflix Location to Get More Country Version On Apple iPhone 14 | Dr.fone</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-explore-the-excitement-of-high-speed-photography-with-iphone/"><u>In 2024, Explore the Excitement of High-Speed Photography with iPhone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-unleash-creativity-learning-sony-vegas-techniques-for-youtube-video-editing/"><u>In 2024, Unleash Creativity Learning Sony Vegas Techniques for YouTube Video Editing</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/precision-hardware-health-tracker/"><u>Precision Hardware Health Tracker</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/and-sound-sending-your-private-youtube-videos-online/"><u>Safe and Sound Sending Your Private YouTube Videos Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ive-into-a-stream-of-9-full-length-festive-flicks-no-charge-in-2024/"><u>[New] Dive Into a Stream of 9 Full-Length Festive Flicks - No Charge, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-highest-rated-smartphone-camera-and-recording-apps-iphone-vs-android/"><u>[New] In 2024, Highest Rated Smartphone Camera & Recording Apps IPhone vs Android</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-historical-stop-motion-masterpieces-15-essential-viewing/"><u>[New] In 2024, Historical Stop-Motion Masterpieces #15 Essential Viewing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-precision-in-performance-utilizing-social-blade-for-youtube-data/"><u>[New] In 2024, Precision in Performance Utilizing Social Blade for YouTube Data</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-seamless-video-and-photo-upload-from-pc-to-iphone/"><u>[Updated] Seamless Video & Photo Upload From PC to iPhone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/2024s-elite-list-of-smartwatches-in-depth-analysis-and-ratings/"><u>2024'S Elite List of Smartwatches: In-Depth Analysis and Ratings</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/beating-isolation-harnessing-chatgpts-power/"><u>Beating Isolation: Harnessing ChatGPT's Power</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-spotify-location-after-moving-to-another-country-on-oppo-reno-11-pro-5g-drfone-by-drfone-virtual-android/"><u>How to Change Spotify Location After Moving to Another Country On Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-remove-google-frp-lock-on-realme-c67-4g-by-drfone-android-unlock-remove-google-frp/"><u>How to remove Google FRP Lock on Realme C67 4G</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-unlock-full-potential-of-streaming-with-dual-display-on-netflix/"><u>In 2024, Unlock Full Potential of Streaming with Dual Display on Netflix</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/sh-the-potential-of-youtube-videos-through-strategic-chapters-and-segments/"><u>Unleash the Potential of YouTube Videos Through Strategic Chapters and Segments</u></a></li>
 </ul></div>
 

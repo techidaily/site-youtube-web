@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Free YouTube End Screen Resources - Enhance Video Impact\""
-date: 2024-08-15T22:27:18.499Z
-updated: 2024-08-16T22:27:18.499Z
+date: 2025-01-21T17:01:21.303Z
+updated: 2025-01-25T05:28:32.574Z
 tags:
   - ai video
   - ai youtube
@@ -32,6 +32,10 @@ YouTube end screens are a great way to get your viewers who have watched your Yo
 2. [Give you a step-by-step tutorial on how to build your own outro for free](#diyoutro)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: Free End Screen Templates Download
 
@@ -81,7 +85,15 @@ Here’s one for the Minecraft fans:
 
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![SoapyEdits YouTube end screen template  ](https://images.wondershare.com/filmora/article-images/SoapyEdits-youtube-end-screen-template-3.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Another way to get your YouTube end screens for free, of course, is to make them yourself. Canva is a great free online design tool for this.
 
@@ -94,61 +106,46 @@ Another way to get your YouTube end screens for free, of course, is to make them
 2\. Once logged in, select “use custom dimensions” and plug in “1920” pixels as your width and “1080” pixels as your height (this, of course, may vary depending on the resolution of your video project).
 
 ![create-outro-end-screen-with-canva  ](https://images.wondershare.com/filmora/article-images/create-outro-end-screen-with-canva-2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 3\. After clicking “Design!,” a new browser will open with a blank canvas.
 
 4\. Next, do an image search for “YouTube End Screen,” choose an end screen with a layout that you would like to build off of, and save the image onto your computer.
 
 ![download-youtube-outro-end-screen](https://images.wondershare.com/filmora/article-images/download-youtube-outro-end-screen.jpg)
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=1412049&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-200x200.jpg" border="0"></a>
-<!-- affiliate ads end -->
 
 5\. Upload the image onto your Canva project.
 
 ![upload-downloaded-youtube-end-screen-canva ](https://images.wondershare.com/filmora/article-images/upload-downloaded-youtube-end-screen-canva.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 6\. Stretch your image to the ends of your canvas.
 
 ![stretch-end-screen-templates-canva ](https://images.wondershare.com/filmora/article-images/stretch-end-screen-templates-canva.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 7\. Insert your own shapes, lines, colours, images, and text over the image.
 
 ![adjust-end-screen-templates-in-canva](https://images.wondershare.com/filmora/article-images/adjust-end-screen-templates-in-canva.jpg)
-<!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="1080" height="1620" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:1080px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 8\. When you’re done, delete the original image so that you’re left with just your own design. Go ahead and click “download.”
 
 ![youtube-end-screen-made-with-canva](https://images.wondershare.com/filmora/article-images/youtube-end-screen-made-with-canva.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you're looking for other options to design your end screen, make sure to also check out our article on [The YouTube Outro Guide](https://tools.techidaily.com/wondershare/filmora/download/). To edit the YouTube video with more effects and templates, you can try [Wondershare Filmora video editor.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -156,14 +153,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -172,4 +166,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-enhance-imagery-with-elegant-borders-ig-edition/"><u>[New] Enhance Imagery with Elegant Borders – IG Edition</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-fixed-how-do-i-convert-zip-file-into-srt-file-in-2024/"><u>[Updated] [Fixed!] How Do I Convert Zip File Into Srt File, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-title-tag-and-description-mastery-for-youtube-success/"><u>[Updated] 2024 Approved Title, Tag & Description Mastery for YouTube Success</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-convenient-viewing-setting-up-youtube-on-large-tv-panels-for-2024/"><u>[Updated] Convenient Viewing Setting Up YouTube on Large TV Panels for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-digital-frame-snatchers-top-video-tools-for-2024/"><u>[Updated] Digital Frame Snatchers Top Video Tools for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-acquire-unlimited-stock-images-via-top-4-youtube-sources/"><u>2024 Approved Acquire Unlimited Stock Images via Top 4 YouTube Sources</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-the-ultimate-guide-to-sound-shakers/"><u>2024 Approved The Ultimate Guide to Sound Shakers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-unlocking-income-from-youtube-as-a-newbie/"><u>2024 Approved Unlocking Income From YouTube as a Newbie</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ve-stellar-clickthrough-rates-via-thumbnail-enlargement-on-youtube/"><u>Achieve Stellar Clickthrough Rates via Thumbnail Enlargement on YouTube</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/expert-configuration-clock-integration-for-streaming-software/"><u>Expert Configuration Clock Integration for Streaming Software</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/re-the-best-15-youtube-sources-for-sci-education-for-2024/"><u>Explore the Best 15 YouTube Sources for Sci-Education for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-itel-p40-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Itel P40 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-erase-an-apple-iphone-6-plus-without-apple-id-password-by-drfone-ios/"><u>How To Erase an Apple iPhone 6 Plus Without Apple ID Password?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-mastering-the-art-of-youtube-thumbnails-on-macos/"><u>In 2024, Mastering the Art of YouTube Thumbnails on macOS</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/quick-guide-to-downloading-brother-hl-3170cdw-software-hassle-free-installation/"><u>Quick Guide to Downloading Brother HL-3170cdw Software – Hassle-Free Installation</u></a></li>
+<li><a href="https://win-workspace.techidaily.com/sui-dynasty-legal-innovations-exploring-the-legislative-achievements-of-ancient-china/"><u>Sui Dynasty Legal Innovations: Exploring the Legislative Achievements of Ancient China</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/tricks-to-perfect-time-lapses-using-samsung-cameras/"><u>Tricks to Perfect Time-Lapses Using Samsung Cameras</u></a></li>
+</ul></div>
 

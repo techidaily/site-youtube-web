@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Mastering Customization  Seamlessly Embedding Text & Links in Youtube Videos\""
-date: 2024-08-08T12:44:33.857Z
-updated: 2024-08-09T12:44:33.857Z
+date: 2025-01-17T22:40:43.753Z
+updated: 2025-01-24T22:56:10.297Z
 tags:
   - ai video
   - ai youtube
@@ -32,9 +32,6 @@ YouTube Cards and Annotations are very useful if you want to encourage your view
 
 Do you want to make your YouTube video more attractive? [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a such video editing software designed for YouTube creator. It not only allows you cut, trim, crop, zoom, reverse, rotate the video clips, but also makes the advanced features like green screen, PIP, tilt-shift and mosaic easy like a piece of cake. With Wondershare Filmora, you can ignite your YouTube videos with over 300 effects like Fashion, Beauty, Block Buster, Travel, etc.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ---
@@ -54,34 +51,30 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 * Click on the "Video Manager" tab
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
 * Click on the create button which will open the corresponding video
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
 * Apply changes and exit
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -92,13 +85,18 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -138,20 +136,21 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -160,4 +159,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-access.techidaily.com/new-2024-approved-video-second-count-20-megabits-file-size/"><u>[New] 2024 Approved Video Second Count 20 Megabits File Size</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ffortless-youtube-video-to-text-conversion-at-no-cost/"><u>[New] Effortless YouTube Video to Text Conversion at No Cost!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/s-it-prohibited-to-save-youtube-footage-in-2024/"><u>[New] Is It Prohibited to Save YouTube Footage, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-discover-top-platforms-for-youtube-brand-partnerships/"><u>[Updated] 2024 Approved Discover Top Platforms for YouTube Brand Partnerships</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-step-by-step-backlink-blueprint-for-channel-growth/"><u>[Updated] 2024 Approved Step-by-Step Backlink Blueprint for Channel Growth</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtubes-prime-moments-celebrations-beyond-vidcon-for-2024/"><u>[Updated] Youtube's Prime Moments Celebrations Beyond VidCon for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/effortless-guide-how-to-harness-an-external-gpu-for-enhanced-gaming-and-productivity-on-your-laptop/"><u>Effortless Guide: How To Harness An External GPU For Enhanced Gaming & Productivity On Your Laptop</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/ethernet-over-power-with-the-tp-link-av200-2017-review-great-speed-lacks-in-aesthetics/"><u>Ethernet Over Power with the TP-Link AV200 2017 Review: Great Speed, Lacks in Aesthetics</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-building-brands-earning-dollars-a-comprehensive-guide-to-insta-sponsorships/"><u>In 2024, Building Brands, Earning Dollars A Comprehensive Guide to Insta-Sponsorships</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-samsung-galaxy-s24-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Samsung Galaxy S24 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-cards-of-motorola-moto-g34-5g-without-puk-codes-by-drfone-android/"><u>In 2024, How To Unlock SIM Cards Of Motorola Moto G34 5G Without PUK Codes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-probing-into-youtube-discussions/"><u>In 2024, Probing Into YouTube Discussions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-swiftly-producing-high-quality-thumbnails-for-valorant-screenshots/"><u>In 2024, Swiftly Producing High-Quality Thumbnails for Valorant Screenshots</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-samsung-galaxy-f34-5g-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Samsung Galaxy F34 5G</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/oming-non-displayed-thumbnails-youtube-shorts-guide/"><u>Overcoming Non-Displayed Thumbnails YouTube Shorts Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/scaling-movies-on-a-mac-for-impeccable-instagram-shares/"><u>Scaling Movies on a Mac for Impeccable Instagram Shares</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/understanding-and-solving-the-vcompdll-is-unavailable-mistake/"><u>Understanding and Solving the 'vcomp.dll' Is Unavailable Mistake</u></a></li>
+</ul></div>
 

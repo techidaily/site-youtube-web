@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Crafting Chic Looks  The Ultimate Cosmetic Compendium for 2024\""
-date: 2024-08-08T12:47:08.684Z
-updated: 2024-08-09T12:47:08.684Z
+date: 2025-01-17T21:32:03.684Z
+updated: 2025-01-24T17:36:26.741Z
 tags:
   - ai video
   - ai youtube
@@ -45,14 +45,16 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
 
 Wondershare Filmora is specifically made keeping quality on priority and to make sure all the videos are edited well with the highest accuracy. You can trim, merge, crop, add background music, rotate videos as well as add motion elements, animated texts, overlays, and filters, etc. to your makeup video, and the video can also be uploaded to YouTube or burned to DVD directly.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Finding Your Niche in Beauty or Lifestyle**
 
 As a new makeup, beauty, or lifestyle YouTuber you’ll be jumping into a category that’s already packed with thousands of channels. In order to gain any momentum, you’ll have to decide on a particular thing you want to be known for. That’s your niche.
@@ -64,8 +66,9 @@ Another way you could find a niche is by taking on a specific area of interest, 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
 <!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Types of Beauty Videos – Your Content Strategy**
 
 It’s a lot easier to come up with weekly video ideas when you have an overarching strategy.
@@ -104,9 +107,6 @@ Here are some common types of beauty and lifestyle videos:
 * Kid’s Makeup Challenge
 * No Mirror Makeup Challenge
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -128,9 +128,6 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
-<!-- affiliate ads end -->
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -166,18 +163,12 @@ Turn off autofocus and adjust your focus manually by turning the focus ring on y
 
 An aperture of f/5.0 is good if you’re going to be moving around a lot, but if you’re not going to be moving much and want a blurry background you might want to go with f/2.8 or lower.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
@@ -195,6 +186,10 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -219,8 +214,9 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -230,6 +226,10 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 One cool feature of the Neewer Ring Light is that you can choose between daylight and a more orange-tinted light depending on which of the included filters you use. In almost all situations you’ll want to use white light/daylight because the orange light will make you look orange, but if you ever wanted to create a warmer image to achieve a particular effect you’d have that option with this light.
 
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
 
@@ -285,9 +285,6 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
-<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -310,14 +307,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -326,4 +320,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-the-ultimate-choice-for-affordable-virtual-meetings-online/"><u>[New] 2024 Approved The Ultimate Choice for Affordable Virtual Meetings Online</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-asus-proart-pa-329q-reviewed-a-detailed-look-at-the-leading-4k-workstation-display-for-2024/"><u>[New] Asus ProArt PA 329Q Reviewed A Detailed Look at the Leading 4K Workstation Display for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-thriving-on-both-sides-work-and-youtubing-tips/"><u>[New] In 2024, Thriving on Both Sides Work and YouTubing Tips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-youtubes-entry-level-manual-for-effective-channel-creation/"><u>[New] In 2024, Youtube's Entry-Level Manual for Effective Channel Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-how-to-post-youtube-videos-as-instagram-stories/"><u>[Updated] In 2024, How to Post YouTube Videos as Instagram Stories</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-understanding-youtubes-premier-package/"><u>[Updated] In 2024, Understanding YouTube's Premier Package</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-investigating-prominently-displayed-youtube-comments-for-2024/"><u>[Updated] Investigating Prominently Displayed YouTube Comments for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-mastering-metadata-the-power-of-accurate-video-tags/"><u>[Updated] Mastering Metadata The Power of Accurate Video Tags</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-leading-websites-for-extracting-youtube-intros/"><u>2024 Approved Leading Websites for Extracting YouTube Intros</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-maximizing-video-visibility-on-youtube-through-lighting/"><u>2024 Approved Maximizing Video Visibility on YouTube Through Lighting</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-team-with-expert-talent-selections-for-2024/"><u>Elevate Your Team with Expert Talent Selections for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/exploring-the-benefits-asus-ax6000-rt-ax88u-router-unveiled-the-premier-choice-in-wi-fi-6-technology-and-efficiency/"><u>Exploring the Benefits: Asus AX6000 (RT-AX88U) Router Unveiled - The Premier Choice in Wi-Fi 6 Technology and Efficiency</u></a></li>
+<li><a href="https://win-brilliant.techidaily.com/how-to-protect-your-work-on-a-portable-pc-secure-backups-for-lenovo-users-running-windows-11/"><u>How to Protect Your Work on a Portable PC: Secure Backups for Lenovo Users Running Windows 11</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-from-pixels-to-perfection-selecting-the-premier-screen-recording-software/"><u>In 2024, From Pixels to Perfection Selecting the Premier Screen Recording Software</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-quick-diy-tricks-for-professional-quality-homemade-films/"><u>In 2024, Quick DIY Tricks for Professional-Quality Homemade Films</u></a></li>
+<li><a href="https://extra-information.techidaily.com/lines-that-captivate-the-craft-of-writing-dialogue/"><u>Lines That Captivate The Craft of Writing Dialogue</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/pixel-phone-series-expansion-continues-discover-projected-specs-release-timing-and-price-for-model-10/"><u>Pixel Phone Series Expansion Continues - Discover Projected Specs, Release Timing & Price for Model 10!</u></a></li>
+</ul></div>
 

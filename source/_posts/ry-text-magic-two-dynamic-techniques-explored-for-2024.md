@@ -1,7 +1,7 @@
 ---
 title: "\"Jittery Text Magic  Two Dynamic Techniques Explored for 2024\""
-date: 2024-08-08T12:47:04.742Z
-updated: 2024-08-09T12:47:04.742Z
+date: 2025-01-18T23:56:40.938Z
+updated: 2025-01-25T03:33:22.572Z
 tags:
   - ai video
   - ai youtube
@@ -27,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/2a48b2247fe4fccf62c26b321b73686dd63d342e8
 Earlier, you learned how to have a **[bounce text effect in Adobe After Effects](https://tools.techidaily.com/wondershare/filmora/download/)**. However, because AE is a complex application and has a steep learning curve, this section explains the two alternative ways to get the same effect on your existing video footage.
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Method 1: How to Create Bouncing Text in Filmora Video Editor?
 
 When talking about [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), the application is populated with several presets for texts and titles, animations, effects, filters, and much more.
@@ -47,31 +48,30 @@ Click **Titles** from the standard toolbar at the top, and click and drag your p
 
 In the timeline, double-click the title you just added, use the upper-left section to edit the text, go to the **Animation** tab from the left pane, scroll down the list, and double-click the **Up Down 1** or **Up Down 2** preset to apply the bounce effect to the credits. Click **OK** to save the changes and to get back to the main window.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![Create Bouncing Text video Filmora9](https://images.wondershare.com/filmora/article-images/add-up-down-animation-to-bounce.jpg)
 
 **Step 3: Add Shake Filters**
 
 Go to **Effects** from the standard toolbar, expand the **Filters** category from the left pane, and click **Shake**. From the Library window, click and drag your preferred shake filter to the timeline. Here, I will choose Mild.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Shake filters in Filmora9](https://images.wondershare.com/filmora/article-images/shake-filter.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can customize the default effect by double-clicking the shake filter in the timeline, using the sliders in the upper-left area of the interface to make necessary adjustments, and then clicking **OK** to save the changes and to get back to the previous interface.
 
 ![Mild Shake filters adjust](https://images.wondershare.com/filmora/article-images/mild-shake-filter-adjust.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 4: Export the Final Output**
 
 Click **EXPORT** from the top of the interface, go to the **Local** tab in the **Export** box, choose your preferred output format from the list in the left, make required customizations from the right pane, and click **EXPORT** from the bottom-right corner to export the video.
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
 ![Filmora9 Export Options](https://images.wondershare.com/filmora/article-images/export-filmora9-video.jpg)
 
 Now, you can add the bouncing text video and the background video to the timeline, and then place the bouncing text video above the background video track.
@@ -80,9 +80,6 @@ Double click the text track, go to the **Chroma Key** effect, select the **Color
 
 As explained before, Wondeshare Filmora makes the entire process of creating and adding **bounce text** effect pretty simple. With all the pre-build templates, and the versatility of the options that can be used to customize those presets, you can come up with the effects that are usually obtained when you start generating them from the scratch.
 
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ## Method 2: Generate Animated Bouncing Texts Online
@@ -95,10 +92,11 @@ Some most trusted websites to generate **bounce text** are listed below:
 
 Website: <https://engfto.com/index/create%5Fanimated%5Fbouncing%5Ftext/0-26>
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![Create Animated Bouncing Text with ENGFTO](https://images.wondershare.com/filmora/article-images/engfto-create-animated-bouncing-text.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You can follow the instructions given below to use Engfto to generate bouncing text for your footages:
 
@@ -126,6 +124,10 @@ Launch your favorite web browser and go to <https://loading.io/animation/text/>.
 
 ![Create Animated Bouncing Text with Loading.io](https://images.wondershare.com/filmora/article-images/create-bouncing-text-with-loadingio.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Use the options available on the webpage to type your text, and change its font, color, background, transparency level etc. Select **Bounce** (or any of its variants) from the **Animation** drop-down list, and adjust the speed using the **Speed** slider.
 
 **Step 3: Obtain the Text**
@@ -146,14 +148,11 @@ Liza Brown is a writer and a lover of all things video.
 
 Follow @Liza Brown
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +161,21 @@ Follow @Liza Brown
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/n-2024-maximize-money-from-youtube-shorts-tactics-and-tricks/"><u>[New] In 2024, Maximize Money From YouTube Shorts Tactics & Tricks</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-exploring-classical-works-free-for-all/"><u>[Updated] 2024 Approved Exploring Classical Works Free for All</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-capture-youtubes-iconic-icons-online-tools-desktop-software-and-commands/"><u>[Updated] In 2024, Capture YouTube's Iconic Icons Online Tools, Desktop Software & Commands</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-step-into-wealthy-creator-land-via-youtube-shorts-revenue-for-2024/"><u>[Updated] Step Into Wealthy Creator Land via YouTube Shorts Revenue for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mastery-in-minimalism-essential-thumbnail-font-selection/"><u>2024 Approved Mastery in Minimalism Essential Thumbnail Font Selection</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-power-players-unleashed-youtubes-female-elite/"><u>2024 Approved Power Players Unleashed YouTube’s Female Elite</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/cost-7-3-21/"><u>Cost = 7 3 = 21</u></a></li>
+<li><a href="https://fox-useful.techidaily.com/desktop-strategies-effortlessly-upload-photos-to-instagram-from-your-computer/"><u>Desktop Strategies: Effortlessly Upload Photos to Instagram From Your Computer</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/essential-free-mp3-recorder-for-skype-chats/"><u>Essential Free MP3 Recorder for Skype Chats</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-latest-hp-scanjet-software-for-windows-operating-systems-quick-guide-and-downloads/"><u>Get the Latest HP Scanjet Software for Windows Operating Systems: Quick Guide & Downloads</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-advanced-chat-services-optimizing-teleconferences/"><u>In 2024, Advanced Chat Services Optimizing Teleconferences</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-tips-and-tricks-to-tell-if-your-iphone-se-2022-is-unlocked-by-drfone-ios/"><u>In 2024, Tips And Tricks To Tell if Your iPhone SE (2022) Is Unlocked</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nal-growth-chronicles-for-youtube-audience/"><u>Personal Growth Chronicles for YouTube Audience</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolving-stability-problems-in-metro-exodus-on-pc-end-of-constant-crashing/"><u>Resolving Stability Problems in Metro Exodus on PC – End of Constant Crashing</u></a></li>
+</ul></div>
 

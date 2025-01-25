@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Intros & Ends Without Breaking the Bank"
-date: 2024-08-08T12:42:58.602Z
-updated: 2024-08-09T12:42:58.602Z
+date: 2025-01-21T07:01:59.453Z
+updated: 2025-01-25T00:55:29.168Z
 tags:
   - ai video
   - ai youtube
@@ -18,14 +18,6 @@ thumbnail: https://thmb.techidaily.com/54be1671a1e6779406d2b281070c88b1f34d651b0
 
 # How to Create YouTube Intros & End Cards - Free and Easy
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -49,8 +41,9 @@ thumbnail: https://thmb.techidaily.com/54be1671a1e6779406d2b281070c88b1f34d651b0
 [How To Make an End Card](#how-to)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part1: Intros
 
 #### Elements of an Intro
@@ -77,10 +70,11 @@ This is another site with really professional looking intros for $5\. They only 
 
 You can create a simple intro card in **Filmora**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Choose your background. You may want to use a short clip as your intro, or you may just want a colored background.
 2. Drag your clip or background into the video track of your timeline and trim it down to five seconds.
@@ -92,8 +86,9 @@ You can create a simple intro card in **Filmora**.
 8. Export your video and save it for use in all of your other videos.
 
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 2: End Cards
 
 When your video ends, YouTube will recommend a selection of videos users may want to watch next. Often, these recommendations will not include more of your videos.
@@ -127,10 +122,11 @@ Some creators will leave their end cards at that and play music overtop, but it 
 13. Repeat for any other thumbnails. For your subscribe button, change where it said ‘Video’ to ‘Subscribe’ and enter your channel URL.
 14. Click **Apply Changes**.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -138,14 +134,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -154,4 +147,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-decoding-the-art-of-asmr-filmmaking-techniques/"><u>[New] 2024 Approved Decoding the Art of ASMR Filmmaking Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-from-flickering-camera-lights-to-financial-highlights/"><u>[New] 2024 Approved From Flickering Camera Lights to Financial Highlights</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-leveraging-videos-with-text-a-cost-free-approach/"><u>[New] 2024 Approved Leveraging Videos with Text A Cost-Free Approach</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-maximizing-youtube-gaming-income/"><u>[New] 2024 Approved Maximizing YouTube Gaming Income</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-revolutionizing-video-sharing-alternatives-to-youtube/"><u>[New] 2024 Approved Revolutionizing Video Sharing Alternatives to YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-comprehensively-reviewed-list-of-youtube-video-extractor-apps-android-for-2024/"><u>[New] A Comprehensively Reviewed List of YouTube Video Extractor Apps (Android) for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-earn-with-each-screen-capture-for-2024/"><u>[New] Earn With Each Screen Capture for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-rapid-video-rendering-in-powerpoint-presentations/"><u>[New] Rapid Video Rendering in PowerPoint Presentations</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-5-tips-to-get-more-views-with-youtube-optimization-free-checklist-for-2024/"><u>[Updated] 5 Tips to Get More Views with YouTube Optimization [Free Checklist] for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/call-it-by-gps-smart-strategies-for-concealing-your-phone-number-on-android-devices/"><u>Call It By GPS: Smart Strategies for Concealing Your Phone Number on Android Devices</u></a></li>
+<li><a href="https://win-answers.techidaily.com/dealing-with-fatal-freezing-fixing-ghostrunner-stuck-scenes-on-windows-10-systems/"><u>Dealing with Fatal Freezing: Fixing Ghostrunner Stuck Scenes on Windows 10 Systems</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-updated-geforce-drivers-enhance-your-experience-on-windows-1011-with-rtx-2080-supers/"><u>Download Updated GeForce Drivers: Enhance Your Experience on Windows 10/11 with RTX 2080 Supers!</u></a></li>
+<li><a href="https://video-creation-software.techidaily.com/new-in-2024-how-to-freeze-frame-in-a-video-easily/"><u>New In 2024, How to Freeze Frame in a Video Easily</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/prodigious-plotlines-in-audio-playwriting/"><u>Prodigious Plotlines in Audio Playwriting</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-voices-channeling-lifes-milestinasubscriber-channel-for-impactful-personal-storytelling/"><u>Youth Voices Channeling Life's Milestinasubscriber Channel for Impactful Personal Storytelling.</u></a></li>
+</ul></div>
 

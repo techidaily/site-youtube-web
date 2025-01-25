@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Elegant Aesthetics  Mastering YouTube's Beauty Landscape\""
-date: 2024-08-08T12:44:57.359Z
-updated: 2024-08-09T12:44:57.359Z
+date: 2025-01-18T02:32:39.542Z
+updated: 2025-01-24T21:03:14.761Z
 tags:
   - ai video
   - ai youtube
@@ -41,14 +41,15 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
    9. **[How to Make a Makeup Tutorial – Recording](#recording)**
    10. **[How to Make a Makeup Tutorial – After Shooting](#after)**
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Best YouTube Video Editor- Wondershare Filmora
 
 Wondershare Filmora is specifically made keeping quality on priority and to make sure all the videos are edited well with the highest accuracy. You can trim, merge, crop, add background music, rotate videos as well as add motion elements, animated texts, overlays, and filters, etc. to your makeup video, and the video can also be uploaded to YouTube or burned to DVD directly.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Finding Your Niche in Beauty or Lifestyle**
 
@@ -60,9 +61,6 @@ Another way you could find a niche is by taking on a specific area of interest, 
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=2069351&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-24_%282%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## **Types of Beauty Videos – Your Content Strategy**
 
 It’s a lot easier to come up with weekly video ideas when you have an overarching strategy.
@@ -102,8 +100,9 @@ Here are some common types of beauty and lifestyle videos:
 * No Mirror Makeup Challenge
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **How to Get Products to Review**
 
  You probably already know that a lot of the products popular beauty YouTubers review in their videos were sent to them for free. Brands want to get their products into the hands of creators who have ‘influence’ both in the hopes that their audiences will decide to buy them and as part of generating buzz – getting more people talking about their products so more people become interested.
@@ -126,8 +125,9 @@ Make sure to link to your channel so they can verify what you say (do not hide y
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -163,10 +163,11 @@ Turn off autofocus and adjust your focus manually by turning the focus ring on y
 
 An aperture of f/5.0 is good if you’re going to be moving around a lot, but if you’re not going to be moving much and want a blurry background you might want to go with f/2.8 or lower.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
@@ -177,8 +178,9 @@ ISO 400 should be a happy medium for shooting inside with your ring light, but y
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **Lighting for Beauty**
 
 The key to achieving a high-quality picture for your beauty video is having a lot of light.
@@ -215,6 +217,10 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Top Ring Lights for YouTube**
 
 ####  
@@ -223,9 +229,6 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 
 One cool feature of the Neewer Ring Light is that you can choose between daylight and a more orange-tinted light depending on which of the included filters you use. In almost all situations you’ll want to use white light/daylight because the orange light will make you look orange, but if you ever wanted to create a warmer image to achieve a particular effect you’d have that option with this light.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Neewer Ring Light ](https://images.wondershare.com/filmora/article-images/neewer-ring-light5.jpg)
 
 This light is dimmable and can be adjusted to the angle that suits your shot. That’s true of our number 2 pick too, and the second place light actually has a slight edge over the Neewer light because its color temperature is 5400K which is slightly closer to daylight than Neewer’s 5500K, but that’s honestly not super important for YouTube. They’re close enough that you won’t be able to tell the difference, and this light is over $100 more affordable.
@@ -236,9 +239,6 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## **Build Your Own Diva Ring Light**
 
 A ring light is an important tool for a lot of beauty YouTubers, but it doesn’t fit into everyone’s budget. Here’s one popular way to create your own ring light for about $20\.
@@ -285,9 +285,6 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 2. **_Highlight small details._** Describe what you’re doing in a lot of detail and don’t gloss over anything. Assume the person watching your tutorial doesn’t know anything about putting on makeup.
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -310,14 +307,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -326,4 +320,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-charting-the-unknown-visual-facts-from-2017s-youtube-world/"><u>[New] 2024 Approved Charting the Unknown Visual Facts From 2017'S Youtube World</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-securing-your-contents-reputation-while-gaining-a-million-viewer-engagements/"><u>[New] 2024 Approved Securing Your Content's Reputation While Gaining A Million Viewer Engagements</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-amplify-your-online-presence-top-5-effective-youtube-strategies/"><u>[New] In 2024, Amplify Your Online Presence Top 5 Effective YouTube Strategies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-from-fringe-to-mainstream-highlighting-top-10-gender-balanced-youtubers/"><u>[New] In 2024, From Fringe to Mainstream Highlighting Top 10 Gender-Balanced YouTubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-what-is-the-difference-between-youtube-and-dailymotion/"><u>[New] In 2024, What Is the Difference Between YouTube and Dailymotion</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-avi-images-to-graphics-a-complete-filmora-walkthrough/"><u>[Updated] From AVI Images to Graphics A Complete Filmora Walkthrough</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-increasing-video-popularity-persisting-with-cc-on-youtube/"><u>[Updated] Increasing Video Popularity Persisting with CC on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-strategic-approach-to-crafting-youtube-content-headlines/"><u>[Updated] Strategic Approach to Crafting YouTube Content Headlines</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-ultimate-conversion-guide-youtube-to-igtv/"><u>[Updated] The Ultimate Conversion Guide YouTube to IGTV</u></a></li>
+<li><a href="https://win-trending.techidaily.com/1-essential-dj-controllers-for-newbies-choosing-between-pioneer-and-native-solutions/"><u>1. Essential DJ Controllers for Newbies: Choosing Between Pioneer and Native Solutions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-effortless-conversions-selecting-the-10-prime-flv-to-youtubes-options/"><u>2024 Approved Effortless Conversions Selecting the 10 Prime Flv to YouTubes Options</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-palette-perfection-the-science-of-video-chromaticity/"><u>2024 Approved Palette Perfection The Science of Video Chromaticity</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/erated-steps-to-unsettle-youtube-playlists/"><u>Accelerated Steps to Unsettle YouTube Playlists</u></a></li>
+<li><a href="https://fox-access.techidaily.com/aligning-objectives-brands-and-youtube-collaborative-moves-for-2024/"><u>Aligning Objectives Brands and YouTube Collaborative Moves for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/breathing-life-into-your-phone-the-complete-guide-to-android-audio-customization/"><u>Breathing Life Into Your Phone The Complete Guide to Android Audio Customization</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-oneplus-11r-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On OnePlus 11R? | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/spice-up-your-instagram-feed-incorporate-video-loops/"><u>Spice Up Your Instagram Feed Incorporate Video Loops</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/form-concepts-to-successful-youtube-titles/"><u>Transform Concepts to Successful YouTube Titles</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/updated-2024-approved-unleash-your-creativity-gopro-video-editing-on-mac-made-easy/"><u>Updated 2024 Approved Unleash Your Creativity GoPro Video Editing on Mac Made Easy</u></a></li>
+</ul></div>
 

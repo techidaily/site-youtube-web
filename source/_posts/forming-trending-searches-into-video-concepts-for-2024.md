@@ -1,7 +1,7 @@
 ---
 title: "Transforming Trending Searches Into Video Concepts for 2024"
-date: 2024-08-08T12:43:52.223Z
-updated: 2024-08-09T12:43:52.223Z
+date: 2025-01-23T19:01:23.916Z
+updated: 2025-01-24T16:56:36.029Z
 tags:
   - ai video
   - ai youtube
@@ -34,14 +34,8 @@ Google Trends, of course!
 
 Google Trends is a completely free tool you can use to determine what’s trending on YouTube or in Google’s search engine. Here’s how you can use Google Trends to figure out what’s trending in your niche and make a video before there’s tons of competition.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ## Part 1: Seeing The Big Picture
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ![Google Trends YouTube Ideas](https://images.wondershare.com/filmora/article-images/how-to-use-google-trends-to-come-up-with-video-seeing-big-picture.jpg)
 
 _You’ll need to be signed into your Google account to use Google Trends._
@@ -52,9 +46,6 @@ Unless you do news or political commentary on your channel these probably aren�
 
 To get information more relevant to your channel you’re going to have to do some filtering.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: Getting Results That Matter to You
 
 In the Google Trend home page, scroll down to the 'Recently Trending' section and click on 'More Trending Searches'.
@@ -85,6 +76,10 @@ Having something to say doesn’t have to mean having a strong opinion. If you j
 
 Clicking on these results will give you more specific data including how often the topic has been searched recently and links to recent news articles. These can give you a better idea of why it is trending and help you come up with what you want to say.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Battle of the Keywords
 
 Once you have a topic in mind for your next video – whether it came from Google Trends or your own noggin – think about what the most important keyword for that topic might be.
@@ -97,14 +92,15 @@ Once you have a keyword in mind, type it into the Explore bar at the top of your
 
 What happens after you click **enter** is pretty much magic. Say I want to make a video on how to use Filmora. The first thing I’ll type into that Explore bar is ‘Filmora’.
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![Google Trends YouTube Video Keywords](https://images.wondershare.com/filmora/article-images/google-trends-search-term.jpg)
 
 You can see near the top that this chart represents searches for the topic over the last 5 years, which isn’t necessarily useful (although it is sort of cool that you can see when Filmora was ‘born’). I’m going to narrow that down to results from the U.S in the last week.
 
 ![Google Trends YouTube Video Ideas Filmora](https://images.wondershare.com/filmora/article-images/google-trends-search-term-time-range.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 There, now I can see how the popularity of Filmora as a search term has spiked on specific days and times (if you hover over a spike it tells you the time and day) and plan to post my video at a time that capitalizes on these trends.
 
@@ -131,21 +127,24 @@ One of the biggest benefits of identifying trends and making videos about them q
 Want to make coming up with YouTube video ideas a habit? [This post here](https://www.filmora.io/community-blog/how-to-come-up-with-better-youtube-video-ideas-391.html) will help you develop a process to generate more ideas and properly evaluate them.
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kTHQrw8e1gk?si=gTPIa7KjhSZ0Vz97" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Making Better YouTube Videos with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 As one of the most widely used video editing software among YouTubers, Filmora provides plentiful editing tools, such as cut, trim, [video stabilization](https://tools.techidaily.com/wondershare/filmora/download/), [noise removal](https://tools.techidaily.com/wondershare/filmora/download/), [chroma key compositing](https://tools.techidaily.com/wondershare/filmora/download/), and color grading. Besides, there are royalty-free music track and sound effects available in the built-in Audio library, and title templates and presets, as well as elements and effects. Download the free trial version below and get started now.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -153,14 +152,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -169,4 +165,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ace-your-edits-youtube-studios-time-saving-secrets-revealed/"><u>[New] 2024 Approved Ace Your Edits YouTube Studio's Time-Saving Secrets Revealed</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-audiences-on-the-rise-gauge/"><u>[New] 2024 Approved Audiences on the Rise Gauge</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-connoisseur-of-cinematic-composition/"><u>[New] 2024 Approved Connoisseur of Cinematic Composition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-core-asmr-platforms-explored/"><u>[New] 2024 Approved Core ASMR Platforms Explored</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-from-ordinary-to-outstanding-crafting-unique-shorts-thumbnails/"><u>[New] 2024 Approved From Ordinary to Outstanding Crafting Unique Shorts Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-the-art-of-joining-youtube-clips/"><u>[New] 2024 Approved Mastering the Art of Joining YouTube Clips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mastering-timestamp-placement-in-youtube-clips/"><u>[New] 2024 Approved Mastering Timestamp Placement in YouTube Clips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-perfecting-your-valorant-thumbnails-a-comprehensive-tutorial/"><u>[New] 2024 Approved Perfecting Your Valorant Thumbnails A Comprehensive Tutorial</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-seamless-integration-12-stream-app-experience/"><u>[New] 2024 Approved Seamless Integration 12 Stream App Experience</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-humor-haven-top-15-laugh-factory-channels-online/"><u>[Updated] Humor Haven Top 15 Laugh Factory Channels Online</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-ultimate-affordable-game-controllers-under-100/"><u>[Updated] In 2024, Ultimate Affordable Game Controllers Under $100</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-next-gen-recording-greener-choices/"><u>[Updated] Next-Gen Recording Greener Choices</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/2024-approved-discover-the-10-leading-no-cost-webcalls-for-businesses/"><u>2024 Approved Discover the 10 Leading No-Cost Webcalls for Businesses</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-luminous-android-videography-techniques/"><u>2024 Approved Luminous Android Videography Techniques</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/a-comprehensive-guide-capturing-your-favorite-vudu-content-for-on-the-go-viewing/"><u>A Comprehensive Guide: Capturing Your Favorite Vudu Content for On-the-Go Viewing</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-foremost-top-5-lightweight-video-capturers-guide/"><u>In 2024, Foremost Top 5 Lightweight Video Capturers Guide</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/streamline-a-barrage-of-tiktok-drafts-with-editing-skills/"><u>Streamline a Barrage of TikTok Drafts with Editing Skills</u></a></li>
+</ul></div>
 

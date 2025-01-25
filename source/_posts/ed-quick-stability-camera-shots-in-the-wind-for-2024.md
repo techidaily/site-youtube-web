@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Quick Stability  Camera Shots in the Wind for 2024\""
-date: 2024-08-08T12:45:52.154Z
-updated: 2024-08-09T12:45:52.154Z
+date: 2025-01-22T00:59:03.880Z
+updated: 2025-01-24T21:28:31.250Z
 tags:
   - ai video
   - ai youtube
@@ -32,12 +32,17 @@ When you’re trying to grow a channel on YouTube it can feel like equipment is 
 
 Wondershare Filmora has the best video stabilization tool is your videos have a bad frame or were recorded in dim lights. If a video is shot in bad weather or unfriendly situation where you don’t have all the equipment required for a quality recording, Wondershare Filmora can help you in the background to edit your videos like a pro. And it has all the relevant tools like effects, transitions, background removal, overlays, and background music that could turn your normal video to a professional one.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here are 3 of our favorite DIY tripods.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### **DIY smartphone tripod using binder clips or hair clips**
 
@@ -51,17 +56,14 @@ Hold your phone in landscape mode (horizontally, so it’s long rather than tall
 
 Here it is with binder clips:
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![binder clips](https://images.wondershare.com/filmora/article-images/binder-clips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And here it is with hair clips:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![hair clips](https://images.wondershare.com/filmora/article-images/hair-clips.jpg)
 
 Now you can set your smartphone upon any stable surface, like a table or a stack of books.
@@ -69,8 +71,9 @@ Now you can set your smartphone upon any stable surface, like a table or a stack
  _Here are some more cool ideas!_
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### **DIY adjustable tripod using books and a towel**
 
 You’ve probably heard a million times that you can stabilize your camera by sitting it down on any stable surface – on your desk, on a stack of books, up in a tree, etc. This is very true!
@@ -88,18 +91,12 @@ To get similar functions from the ‘any stable surface’ solution you can use 
 
 Now if your camera isn’t up high enough, or is too high, you can adjust it just by adding or taking away books. If you want to move it closer or farther away from you, just pull the towel forwards or backward.
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ### **DIY gripping ‘Gorillapod’ using wire and tape**
 
 Gorillapod’s are cool because you can use them like normal tripods, carry them around like selfie sticks, or attach them to things like fences and posts. Here’s how you can make something similar using **wire**, **electrical tape** or **duct tape**, and a **1/4 bolt**.
 
 Your wire should be fairly stiff and you’ll need three pieces the same length, which should be at least 10 inches. Old clothes hangers work well. This needs to be something strong enough to support the weight of your camera, but soft enough that it’s not impossible for you to bend.
 
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![wire and type](https://images.wondershare.com/filmora/article-images/wire-and-type.jpg)
 
 _All of your supplies plus the finished product._
@@ -124,20 +121,21 @@ _Note: make sure the bolt is a fit for your camera before you get too far into t
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -146,4 +144,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-2024-approved-zoom-in-on-content-expert-methods-to-minimize-background/"><u>[New] 2024 Approved Zoom In on Content – Expert Methods to Minimize Background</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rafting-visual-stories-in-depth-pc-editing-techniques-for-youtube-for-2024/"><u>[New] Crafting Visual Stories In-Depth PC Editing Techniques for YouTube for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/umbers-in-focus-yearly-yt-trends-and-trivia-2017/"><u>[New] Numbers in Focus! Yearly YT Trends & Trivia (2017)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-artful-swap-from-cold-scenes-to-cozy-vlogs/"><u>[New] The Artful Swap From Cold Scenes to Cozy Vlogs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-how-to-make-a-youtube-intro-video/"><u>[Updated] 2024 | How to Make a YouTube Intro Video？</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-premier-roundup-2023s-top-free-video-editing-apps/"><u>[Updated] 2024 Approved Premier Roundup 2023'S Top Free Video Editing Apps</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-startup-strategy-guide-affordable-channels-to-monetize/"><u>[Updated] In 2024, Startup Strategy Guide Affordable Channels to Monetize</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-making-youtube-audio-mp3s-easily-for-your-mac/"><u>[Updated] Making YouTube Audio MP3s Easily for Your Mac</u></a></li>
+<li><a href="https://discover-helper.techidaily.com/2-diagnosing-and-fixing-graphics-card-errors-with-tips-from-yl-computings-yl-software/"><u>2. Diagnosing and Fixing Graphics Card Errors with Tips From YL Computing's YL Software</u></a></li>
+<li><a href="https://facebook.techidaily.com/cyber-chatter-champions-best-20-conversation-hubs-on-the-web/"><u>Cyber Chatter Champions: Best 20 Conversation Hubs on the Web</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/decoding-the-rationale-hackers-and-chatgpt/"><u>Decoding the Rationale: Hackers and ChatGPT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-1st-place-video-saver-download-anywhere-anytime/"><u>In 2024, 1St Place Video Saver - Download Anywhere, Anytime</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-vivo-y36i-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Vivo Y36i</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-realme-11-prowithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Realme 11 Prowith/without a PC</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/optimizing-system-performance-managing-high-cpu-utilization-from-windows-10-module-installer/"><u>Optimizing System Performance: Managing High CPU Utilization From Windows 10 Module Installer</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-messages-back-from-tecno-spark-10c-by-fonelab-android-recover-messages/"><u>Simple ways to get lost messages back from Tecno Spark 10C</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/your-youtube-clips-to-the-next-level-ultimate-editing-tips/"><u>Take Your YouTube Clips to the Next Level Ultimate Editing Tips</u></a></li>
+</ul></div>
 

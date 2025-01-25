@@ -1,7 +1,7 @@
 ---
 title: "How to Make a Thumbnail for Your YouTube Free Easily for 2024"
-date: 2024-08-08T12:46:00.121Z
-updated: 2024-08-09T12:46:00.121Z
+date: 2025-01-22T16:35:34.873Z
+updated: 2025-01-24T22:35:55.769Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/d998ed1ce4fa21b446a75f0e6c9a8cf84aeb11cbd
 
 # How to Make a Thumbnail for Your YouTube Free Easily
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095385/26400" target="_top" id="2095385"><img src="//a.impactradius-go.com/display-ad/26400-2095385" border="0" alt="" width="1024" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095385/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -38,9 +35,6 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -49,11 +43,12 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
@@ -72,37 +67,36 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
-<!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
@@ -111,9 +105,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
-<!-- affiliate ads end -->
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
 
 #### Conclusion
@@ -132,14 +123,11 @@ Shanoon Cox is a writer and a lover of all things video.
 
 Follow @Shanoon Cox
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,4 +136,22 @@ Follow @Shanoon Cox
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-thumbnail-blueprint-for-successful-videos/"><u>[New] 2024 Approved The Ultimate Thumbnail Blueprint for Successful Videos</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-dual-display-dominance-top-videographer-verdict-for-2024/"><u>[New] Dual Display Dominance Top Videographer Verdict for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outube-subscriber-boost4-simplest-tricks-to-grow-your-channel/"><u>[New] YouTube Subscriber Boost–4 Simplest Tricks to Grow Your Channel</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-navigating-the-financial-aspects-of-youtube-success/"><u>[Updated] 2024 Approved Navigating the Financial Aspects of YouTube Success</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-adding-beats-to-your-instagram-media-a-step-by-step-guide/"><u>[Updated] In 2024, Adding Beats to Your Instagram Media A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-addressed-discrepancy-in-shorts-showcase/"><u>[Updated] In 2024, Addressed Discrepancy in Shorts Showcase</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elite-gamers-capturing-solutions/"><u>2024 Approved Elite Gamers' Capturing Solutions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-from-footage-to-feature-making-youtube-thumbnails-mobile/"><u>2024 Approved From Footage to Feature Making YouTube Thumbnails (Mobile)</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-do-i-stop-someone-from-tracking-my-honor-x7b-drfone-by-drfone-virtual-android/"><u>How Do I Stop Someone From Tracking My Honor X7b? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/how-to-fix-auditory-disruptions-in-your-computers-media-player-windows-10-or-7-resolution-steps-inside/"><u>How To Fix Auditory Disruptions in Your Computer's Media Player (Windows 10 or 7) - Resolution Steps Inside</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/master-multiple-languages-effortlessly-with-mondlys-interactive-vr-app/"><u>Master Multiple Languages Effortlessly with Mondly's Interactive VR App</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/r-your-videos-success-with-leading-rank-monitors/"><u>Master Your Video's Success with Leading Rank Monitors</u></a></li>
+<li><a href="https://techtrends.techidaily.com/optimize-your-online-gaming-experience-by-lowering-latency-latest-techniques/"><u>Optimize Your Online Gaming Experience by Lowering Latency: Latest Techniques</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/tackling-chatgpts-character-restrictions/"><u>Tackling ChatGPT's Character Restrictions</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-the-role-of-vpns-in-chatgpt-access/"><u>Understanding the Role of VPNs in ChatGPT Access?</u></a></li>
+</ul></div>
 

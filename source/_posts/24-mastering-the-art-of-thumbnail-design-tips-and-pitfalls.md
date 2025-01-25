@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Mastering the Art of Thumbnail Design  Tips and Pitfalls\""
-date: 2024-08-08T12:42:19.056Z
-updated: 2024-08-09T12:42:19.056Z
+date: 2025-01-20T18:04:11.378Z
+updated: 2025-01-25T05:56:56.372Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/482c489aae9be3633db03ca123df50eb46b4ca67b
 
 # How To Make Good YouTube Banner - Dos and Don’ts
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -44,8 +40,9 @@ Here are the Dos and Don’ts of YouTube Channel Art.
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part 1: What Kind of Background Should I Use?
 
 #### _DO: High-Quality Photos_
@@ -59,6 +56,10 @@ When choosing great photos for your background, pick ones that are high quality 
 Using patterns for the background of your channel banner can help your channel look super creative and stand out from others. However, if you use a pattern that is chaotic and hard on the eyes, you may not attract many subscribers. When using patterns, choose patterns that are not heavy in color and have too many lines or shapes. There should be an evenness to the shapes and negative space within the pattern itself. Try to stay away from patterns that are 3D which can conflict with the viewer’s eyesight and make them dizzy.
 
 ![ YouTube Channel Banner Background](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: Should I Use My Face?
 
@@ -76,11 +77,12 @@ That doesn’t mean you have to hire a photographer to take pictures for your ch
 
 It is always best to use a current photo of yourself. Many times viewers will go and follow you on social media as well. If they see that you have current photos on your social media but not on your channel, they are become confused and perhaps lose interest.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: What Should I Write on My Banner?
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ YouTube Channel Banner writing](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-write.jpg)
 
 #### _Do: Include Your Channel Name_
@@ -101,9 +103,6 @@ Social media accounts are important to include in your channel art because we li
 
 Including social media icons in your channel art lets people know where they can find you. Another good reason to include your current social media in your banner is that sometimes you might join a new platform or quit an old one. You may be using Twitter for months and then decide that you like Facebook better. Your current social media handles keep subscribers from having to guess which one to follow you on.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![ YouTube Channel Banner Safe Area](https://images.wondershare.com/filmora/article-images/youtube-channel-banner-safe-area.jpg)
 
 _Make sure everything important fits in the safe area!_
@@ -139,16 +138,18 @@ _Joshelle is a YouTuber from Atlanta, GA. She has a YouTube channel called [Elle
 Now that you know how to make a good YouTube banner, what will you do next?
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Touch Up YouTube Videos with Filmora
 
 [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)features lots of utilities for both video and audio editing. You can change the video speed or change the aspect ratio easily. Besides, there are plentiful filters, elements, effects and overlays built, so you can use them without costing any extra fee.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
@@ -158,14 +159,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -174,4 +172,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-conveniently-share-your-videos-youtube-shorts-mobilecomputer-tips/"><u>[New] 2024 Approved Conveniently Share Your Videos YouTube Shorts Mobile/Computer Tips</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-crafting-dynamic-gifs-from-video-an-illustrative-tutorial/"><u>[New] 2024 Approved Crafting Dynamic Gifs From Video An Illustrative Tutorial</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-launch-free-youtube-events-a-step-by-step-guide/"><u>[New] 2024 Approved Launch Free Youtube Events A Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-rhythmic-resonance-top-10-yogis-on-the-web/"><u>[New] 2024 Approved Rhythmic Resonance Top 10 Yogis on the Web</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-web-warriors-championing-screen-recording-tools/"><u>[New] 2024 Approved Web Warriors Championing Screen Recording Tools</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-unleashing-audio-delights-the-art-of-apple-podcast-download/"><u>[Updated] In 2024, Unleashing Audio Delights The Art of Apple Podcast Download</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-pull-off-professional-video-edits-with-ken-burns-effect/"><u>[Updated] Pull Off Professional Video Edits with Ken Burns Effect</u></a></li>
+<li><a href="https://win-tips.techidaily.com/effective-strategies-for-handling-user-profiles-with-yl-computings-solutions/"><u>Effective Strategies for Handling User Profiles with YL Computing's Solutions</u></a></li>
+<li><a href="https://android-frp.techidaily.com/full-guide-to-bypass-realme-narzo-60x-5g-frp-by-drfone-android/"><u>Full Guide to Bypass Realme Narzo 60x 5G FRP</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-itel-p55-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Itel P55 | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/pc-troubles-heres-how-to-restore-voice-chat-functionality-in-sea-of-thieves/"><u>PC Troubles? Here's How to Restore Voice Chat Functionality in Sea of Thieves</u></a></li>
+<li><a href="https://fox-that.techidaily.com/recognize-these-9-warning-signs-of-liquid-damage-on-your-iphone-device/"><u>Recognize These 9 Warning Signs of Liquid Damage on Your iPhone Device</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-up-influence-crafting-content-that-resonates/"><u>Scale Up Influence Crafting Content That Resonates</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-guide-creating-a-duel-on-tiktok/"><u>The Ultimate Guide: Creating a Duel on TikTok</u></a></li>
+</ul></div>
 

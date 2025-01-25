@@ -1,7 +1,7 @@
 ---
 title: "Unveiling the 12 Superior Portable Cams for Flip Screen Use"
-date: 2024-08-08T12:47:24.538Z
-updated: 2024-08-09T12:47:24.538Z
+date: 2025-01-17T19:57:38.164Z
+updated: 2025-01-24T18:44:56.075Z
 tags:
   - ai video
   - ai youtube
@@ -51,61 +51,67 @@ A flip screen is a very important feature on a camera for vloggers. With a flip 
 
 Check out my full list of [10 Things To Look For In A Vlogging Camera](https://tools.techidaily.com/wondershare/filmora/download/) to understand the importance of these camera features.
 
-<!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## THE 12 BEST VLOGGING CAMERAS WITH A FLIP SCREEN (2018)
 
  | Camera                     | Release Date                                                                                                   | Camera Type   | Flip Screen Type | Mic Port          | Price   |       |
 | -------------------------- | -------------------------------------------------------------------------------------------------------------- | ------------- | ---------------- | ----------------- | ------- | ----- |
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
-<!-- affiliate ads end -->
 | CanonEOSM50                | ![Canon M50](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-1.png)          | February2018  | Mirrorless       | Fully Articulated | **Yes** | $-   |
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 | PanasonicLumixDC-GH5S      | ![Panasonic GH5S](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-2.png)     | January2018   | Mirrorless       | Fully Articulated | **Yes** | $$$ |
 | CanonEOSM100               | ![Canon M100](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-3.png)         | August2017    | Mirrorless       | Flip Up           | **No**  | $    |
 | CanonEOS6D Mark II         | ![6D Mark II](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-4.png)         | June2017      | Mid-size SLR     | Fully Articulated | **Yes** | $$  |
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 | CanonEOS RebelSL2          | ![Canon SL2](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-5.png)          | June2017      | Compact SLR      | Fully Articulated | **Yes** | $    |
+
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 | CanonEOS RebelT7i          | ![Canon T7i](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-6.png)          | February2017  | Mid-size SLR     | Fully Articulated | **Yes** | $-   |
 | CanonEOSM6                 | ![Canon M6](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-7.png)           | February2017  | Mirrorless       | Flip Up           | **Yes** | $    |
+
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 | NikonD5600                 | ![Canon D5600](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-8.png)        | November2016  | Compact SLR      | Fully Articulated | **Yes** | $-   |
 | SonyCyber-Shot DSCRX 100 V | ![Sony RX100 V](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-9.png)       | October2016   | Compact          | Flip Up           | **No**  | $-   |
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 | PanasonicLumixDMC-G85      | ![Panasonic G85](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-10.png)     | September2016 | Mirrorless       | Flip Up           | **Yes** | $-   |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 | CanonEOS80D                | ![Canon 80D](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-11.png)         | February2016  | Mid-size SLR     | Fully Articulated | **Yes** | $$   |
 | CanonPowerShotG7 X Mark II | ![Canon G7X mark II](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-12.png) | February2016  | Compact          | Flip Up           | **No**  | $    |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  | ![Sony RX 100 V](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-9.png)    | Best daily vlogging camera with a flip screen: Sony Cyber-Shot DSC-RX 100 V If you want to use a compact camera with a flip screen, Sony's Cyber-shot DSC-RX 100 V is an exceptional daily vlogging camera. This camera's 20.1 MP Exmor RS BSI CMOS sensor with a maximum of 12800 in ISO sensitivity, can record footage in UHD 4K at 30 or 24 fps. The lens on this camera, a non-interchangeable Carl Zeiss Vario Sonnar T lens, performs well even under low-light conditions. With its fast hybrid AF system with 315 phase-detection points and an anti-motion blur mode, you can expect your shots to be accurately focused. The Sony RX 100 V packs so much power into such a small, portable camera, making it a great daily vlogging device.  **PROS** _\- Light and easy to carry around_ _\- Produces high-res videos_   **CONS** _\- Short battery life_ _\- Lacking a touchscreen_                                                                                                                                                                                                                                                                                           |
 | ------------------------------------------------------------------------------------------------------------ | ------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------ |
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 | ![Canon M100](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-3.png)       | Best cheap vlogging camera with a flip screen: Canon EOS M100 The Canon EOS M100 is another great small vlogging camera with a flip screen. This mirrorless camera shoots up to full HD 1080p videos at 60 fps. Its 24.2 MP APS-C CMOS sensor and DIGIC 7 image processor will accurately lock the right focus and produce videos with rich detail. The camera's ISO sensitivity goes as high as ISO 25600\. Even in difficult light conditions, this camera will be able to capture a scene. You can control and navigate through the difficult functions of this camera using its 3-inch touchscreen LCD. This camera has a flip screen that flips upward so that you can see yourself while you vlog. With built-in Wi-Fi and NFC, you can also transfer your videos seamlessly to a computer without any cables. If you don't want to spend a fortune but still want to produce videos with great picture quality, the Canon EOS M100 is the best entry-level camera for daily vlogging that's currently on the market.  **PROS** _\- Affordable_ _\- Great connectivity options_   **CONS** _\- Lacks advanced video recording features_ _\- No viewfinder_                           |
-<!-- affiliate ads begin -->
-<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 | ![Canon M100](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-3.png)       | Best entry-level mirrorless camera with a flip screen for vlogging: Canon EOS M100 The Canon EOS M100 is the best entry-level mirrorless camera with a flip screen for vlogging. In case you missed it, check out my review on the [Canon EOS M100](#Best-cheap-vlogging-camera-with-a-flip-screen).                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                       |
 | ![Canon M50](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-1.png)        | Best mid-range mirrorless camera with a flip screen for vlogging: Canon EOS M50 The Canon EOS M50 is already regarded as one of the best mirrorless cameras for vlogging though it has only been on the market for just a few months. This mirrorless camera comes with the newer DIGIC 8 Image Processor that find a focus for your footage even better than the last generation's image processor. You can crank up the ISO sensitivity to ISO 51200 with the Canon EOS M50. The Canon EOS M50 can shoot UHD 4K videos at 23.98 fps. You can also capture 720p slow-motion videos at 120 fps.  **PROS** _\- Has an external microphone port_ _\- Has a 2.36m-dot OLED electronic viewfinder_   **CONS** _\- No image stabilization_ _\- Battery life could be longer_                                                                                                                                                                                                                                                                                                                                                                                                                    |
+
 <!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 | ![Panasonic GH5S](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-2.png)   | Best professional mirrorless camera with a flip screen for vlogging: Panasonic Lumix DC-GH5S When Panasonic made its Lumix DC-GH5, it was a hybrid camera that performed equally well in both photo and video. In response to customers' interest in a video-focused camera, Panasonic released the GH5S. This camera is equipped with a micro four-thirds sensor and can shoot UHD 4K and DCI videos at 60 fps, up to 150 Mbps. If you want to capture slow-motion footage, you can shoot full HD 1080p videos at 240 fps as well. With its 10.28MP multi-aspect ratio MOS sensor, you'll be able to produce high-quality videos even under very challenging lighting conditions. In a fraction of a second, this camera can also automatically grab focus during your video with its advanced depth-from-focus technology. It is also equipped with a microphone jack so that you can record better audio while shooting with this camera. The GH5S has a fully articulated touchscreen so that you can compose your shot from any angle.  **PROS** _\- ISO sensitivity goes up to 204800_ _\- High video bit rates_   **CONS** _\- Expensive_ _\- The camera body weighs about 1.5 lbs_ |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 | ![Canon SL2](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-5.png)        | Best entry-level DSLR camera with a flip screen for vlogging: Canon EOS SL2 If you’re looking for a low priced entry-level vlogging camera with a flip screen, the Canon EOS Rebel SL2 is the best option. You can precisely and quickly grab focus during video recording with its 9-point AF system and dual pixel CMOS AF technology. The camera powers these functions with its DIGIC 7 image processor. You can shoot up to full HD 1080p videos at 60 fps with its 24.2 MP APS-C CMOS sensor and crank the ISO up to ISO 51200 in case you need to shoot under low light conditions. If you want better audio for your vlogs, you can connect an external microphone to the SL2’s microphone jack.  **PROS** _\- Microphone jack_ _\- Wi-Fi connectivity_   **CONS** _\- No 4K video support_ _\- Optical image stabilizer could be better_                                                                                                                                                                                                                                                                                                                                          |
 | ![Canon 80D](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-11.png)       | Best mid-range DSLR camera with a flip screen for vlogging: Canon EOS 80D  The 80D is the best camera to go with if you’re looking for a mid-range DLSR vlogging camera with a flip screen. It is equipped with a 24.2 MP APS-C CMOS sensor, comes with the DIGIC 6 image processor, and shoots up to full HD 1080p videos at 60 fps. For low lighting conditions, you can set the camera’s ISO to as high as ISO 25600. The 80D is great for autofocusing during video recording as it comes with a 45-point all cross phase detection autofocus system and a dual pixel CMOS AF system.  **PROS** _\- Feature-rich_ _\- Continuous AF feature performs beautifully while recording high-res videos_   **CONS** _\- Just one SD card slot_ _\- PC sync connection features could be better_                                                                                                                                                                                                                                                                                                                                                                                               |
 | ![Canon 6D Mark II](https://images.wondershare.com/filmora/article-images/vlogging-camera-flip-screen-4.png) | Best professional DSLR camera with a flip screen for vlogging: Canon 6D Mark II The 6D Mark II is currently (at the time of writing this review) the only full-frame DSLR camera that comes with both a fully-articulated screen and a microphone jack. It is equipped with a 26.2 MP full-frame CMOS sensor, comes with the DIGIC 7 image processor, and shoots up to full HD 1080p videos at 60 fps. The 6D is also equipped with the same 45-point all cross-phase detection and dual pixel CMOS autofocusing system as the 80D. If you’re wanting to vlog with a full-frame camera, the 6D Mark II is the best option.  **PROS** _\- ISO sensitivity goes up to 102400_ _\- Amazing touchscreen controls_   **CONS** _\- No 4K video recording option_ _\- No USB 3.0_                                                                                                                                                                                                                                                                                                                                                                                                                 |
@@ -117,9 +123,6 @@ Want to compare even more cameras? Check out...
 [7 Best DSLR Cameras For Vlogging (2018)](https://tools.techidaily.com/wondershare/filmora/download/)  
 [8 Best Mirrorless Cameras For Vlogging (2018)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087407/7443" target="_top" id="2087407"><img src="//a.impactradius-go.com/display-ad/7443-2087407" border="0" alt="" width="600" height="500"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087407/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 Richard Bennett
@@ -128,14 +131,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -144,4 +144,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/levate-your-content-mastering-the-art-of-selected-youtube-channels-for-2024/"><u>[New] Elevate Your Content Mastering the Art of Selected YouTube Channels for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/verything-you-need-to-know-about-youtube-shorts-templates/"><u>[New] Everything You Need To Know About YouTube Shorts Templates</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-flow-and-flourish-with-these-elite-yogis-online/"><u>[Updated] 2024 Approved Flow & Flourish with These Elite Yogis Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-keep-your-videos-secure-youtube-to-mp4-downloading-safely/"><u>[Updated] Keep Your Videos Secure - YouTube-to-MP4 Downloading Safely</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-preventing-social-media-platforms-intrusive-ads/"><u>2024 Approved Preventing Social Media Platform's Intrusive Ads</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-youtube-studio-editors-guide-to-flawless-filming/"><u>2024 Approved YouTube Studio Editor's Guide to Flawless Filming</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/boosting-visibility-with-cookiebot-a-revolutionary-approach-to-web-analytics-and-optimization/"><u>Boosting Visibility with Cookiebot: A Revolutionary Approach to Web Analytics and Optimization</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/comparing-the-superiority-of-google-nest-audio-vs-nest-mini/"><u>Comparing the Superiority of Google Nest Audio Vs. Nest Mini</u></a></li>
+<li><a href="https://some-tips.techidaily.com/exclusive-offer-save-24-on-apple-airtag-4-pack-during-labor-day-sale-at-walmart-insider-details/"><u>Exclusive Offer: Save $24 on Apple AirTag 4-Pack During Labor Day Sale at Walmart – Insider Details</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-recover-unintentionally-erased-notes-from-your-iphone-expert-methods/"><u>How to Recover Unintentionally Erased Notes From Your iPhone: Expert Methods</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-free-fires-voice-alteration-strategies/"><u>In 2024, Free Fire's Voice Alteration Strategies</u></a></li>
+<li><a href="https://win-tricks.techidaily.com/overcome-system-update-problems-with-easy-fixes-for-error-0x80073374-where-your-files-arent-found/"><u>Overcome System Update Problems with Easy Fixes for Error 0X80073^[374]: Where Your Files Aren't Found</u></a></li>
+<li><a href="https://extra-information.techidaily.com/top-ranked-5-backdrop-change-apps-for-iphones-x-8-7/"><u>Top-Ranked 5 Backdrop Change Apps for iPhones (X, 8, 7)</u></a></li>
+</ul></div>
 

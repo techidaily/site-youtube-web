@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Rapid Fortnite Tile-Making Hacks\""
-date: 2024-08-08T12:47:31.319Z
-updated: 2024-08-09T12:47:31.319Z
+date: 2025-01-18T04:39:40.119Z
+updated: 2025-01-25T04:42:33.195Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c4666c711fc9c9a338b2d08e469c371e9c8d5fe0d
 
 # How to Make Fortnite Thumbnail for Free and Easy in 2024
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -35,37 +32,22 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 01:** To start making a Fortnite thumbnail, it is important to have a screenshot of your gameplay. We can make a perfect screenshot using Fortnite Replay Mode. If you have recently played a Fortnite match, you can access its replay under the Career tab. Under the Career tab select Replays.
 
-<!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step1](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step1.jpg)
 
 **Step 02:** If you are using a console, the game will only store 10 recent gameplays, but if you are using a PC, it will store 100 recent gameplays in this section. From all these gameplays, select the one that you want to use for the Thumbnail. Once you choose gameplay, you can control everything in it. The angle, speed, and camera mode.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=36245101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/zang_box_trust.png" border="0">ZoneAlarm Extreme Security NextGen</a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step2](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step2.jpg)
 
 **Step 03:** For creating a perfect thumbnail, select "Drone Free Camera" mode from the camera mode located on the bottom right corner of the screen. It will allow us to change the angle the way we want. Choose an angle of your choice and take the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step3](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step3.jpg)
 
 **Step 04:** Open Filmora X, make sure to select the 16:9 screen ratio. Import the screenshot using the import button.
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step4](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step4.jpg)
 
 **Step 05:** Drag and drop the screenshot into the timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step5](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step5.jpg)
 
 **Step 06:** Now, let's separate the background and character. Go to the Effects, then AI Portrait, select Human Segmentation, and drop it into the screenshot.
@@ -82,9 +64,6 @@ Filmora has recently introduced a new feature named AI Portrait that uses Artifi
 
 **Step 09:** To add a background, go to the media and navigate to "Sample Color." Drag a color of your choice and drop it below the screenshot.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ![make-fortnite-thumbnail-step9](https://images.wondershare.com/filmora/article-images/make-fortnite-thumbnail-step9.jpg)
 
 **Step 10:** To add titles in the Thumbnail, go to the Titles tab. Here you can find several categories of titles. Find your preferred title and drop it above all the layers. You can choose titles, lower thirds, and other texts depending upon your need and requirement.
@@ -115,14 +94,11 @@ Ollie Mattison is a writer and a lover of all things video.
 
 Follow @Ollie Mattison
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -131,4 +107,28 @@ Follow @Ollie Mattison
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/astering-sound-selecting-mics-for-varied-youtube-formats-for-2024/"><u>[New] Mastering Sound Selecting Mics for Varied YouTube Formats for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-present-state-of-drones-and-their-future-expansion/"><u>[New] The Present State of Drones and Their Future Expansion</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-audiophiles-recommend-top-5-headset-choices/"><u>[Updated] 2024 Approved Audiophiles Recommend Top 5 Headset Choices</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-tips-for-crafting-effective-igtv-titles-and-summaries/"><u>[Updated] In 2024, Tips for Crafting Effective IGTV Titles & Summaries</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-tv-for-everyone-no-expertise-required/"><u>[Updated] In 2024, YouTube TV for Everyone No Expertise Required</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-interactive-content-the-key-to-boosted-facebook-pages/"><u>[Updated] Interactive Content The Key to Boosted Facebook Pages</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-writers-guide-embedding-images-in-articles-without-spending-for-2024/"><u>[Updated] Writers' Guide Embedding Images in Articles Without Spending for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1-best-free-tools-for-converting-mov-files-to-mp4-top-5-options/"><u>1. Best Free Tools for Converting MOV Files to MP4: Top 5 Options</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1-get-the-complete-package-secure-your-official-macxdvd-professional-suite-with-a-complimentary-upgrade/"><u>1. Get the Complete Package: Secure Your Official MacXDVD Professional Suite with a Complimentary Upgrade!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-unique-coverage-awaits-crafting-your-own-custom-youtube-shorts-images/"><u>2024 Approved Unique Coverage Awaits Crafting Your Own Custom YouTube Shorts Images</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210095754-9780648922117-divine-love-twin-flames/"><u>Divine Love Twin Flames | Free Book</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/all-game-analysis-premier-insights-in-graphs/"><u>Football Game Analysis Premier Insights in Graphs</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-can-we-bypass-vivo-s18-frp-by-drfone-android/"><u>How Can We Bypass Vivo S18 FRP?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-discover-device-friendly-ways-to-locate-your-yt-comments/"><u>In 2024, Discover Device-Friendly Ways to Locate Your YT Comments</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-in-2024-access-all-matches-free-world-cup-live-streaming-options/"><u>New In 2024, Access All Matches Free World Cup Live Streaming Options</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nvisible-threads-weaving-through-youtube-shorts-success-for-2024/"><u>The Invisible Threads Weaving Through YouTube Shorts Success for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-pick-the-best-ultraportable-laptop-with-all-day-battery-expert-review/"><u>Top Pick: The Best Ultraportable Laptop with All-Day Battery - Expert Review</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Streamlining Your Method for Erasing YouTube Post-Comments\""
-date: 2025-01-14T18:00:32.342Z
-updated: 2025-01-18T20:09:54.423Z
+date: 2025-01-24T03:34:51.840Z
+updated: 2025-01-24T17:33:57.056Z
 tags:
   - ai video
   - ai youtube
@@ -41,6 +41,10 @@ So how do you delete all YouTube comments? In this how-to blog, we will show you
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete YouTube Comments from Desktop?
 
 In this section, we will tell you how you can do it from your desktop.
@@ -51,6 +55,10 @@ In this section, we will tell you how you can do it from your desktop.
 4. When you locate the comment, click on the three vertical dots on the right-hand side of the comment. From the drop-down list, click on Remove. The process is complete, and YouTube will remove your comment.
 
 You also have the option to report the comment or [hide the user from your channel](https://tools.techidaily.com/wondershare/filmora/download/).
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How to Delete All YouTube Comments from Mobile?
 
@@ -63,7 +71,7 @@ The steps to deleting someone else’s YouTube comments from your mobile are sim
 5. This will create another dialog box on the mobile app where you have to click on Remove again to delete the comment.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/B2MlLvGxMwI?si=q_blGjXyJrGtzT8d" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from YouTube?
@@ -79,7 +87,7 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How Do You Delete Your Comments from Your Phone?
@@ -95,10 +103,6 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -129,10 +133,6 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
@@ -141,11 +141,11 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/remove-youtube-content.jpg)
 
-1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+1. YouTube will now show you what will happen when you hide your channel. Check all the boxes to confirm that you understand, and then tap on Hide My Channel. YouTube will now delete all comments made by your account.
 
 ### Final Thoughts
 
@@ -174,22 +174,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-love-in-full-bloom-top-7-premium-marriage-films-from-youtube-and-vimeo/"><u>[New] In 2024, Love in Full Bloom Top 7 Premium Marriage Films From YouTube and Vimeo</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ayout-layers-a-guide-to-organizing-online-videos-for-2024/"><u>[New] Layout Layers A Guide to Organizing Online Videos for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-10-commandments-of-eye-catching-podcast-album-imagery/"><u>[Updated] 10 Commandments of Eye-Catching Podcast Album Imagery</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-2024-approved-tech-trends-unveiled-excellence-in-vr-treadmills/"><u>[Updated] 2024 Approved Tech Trends Unveiled Excellence in VR Treadmills</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-from-zero-to-cool-video-star-your-mac-youtube-journey-starts-here/"><u>[Updated] In 2024, From Zero to Cool Video Star Your Mac Youtube Journey Starts Here</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-the-cheapest-way-designing-successful-youtube-ad-campaigns/"><u>[Updated] The Cheapest Way Designing Successful YouTube Ad Campaigns</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-unsubscribing-from-youtube-computer-and-mobile-techniques-for-2024/"><u>[Updated] Unsubscribing From Youtube Computer & Mobile Techniques for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-create-a-standout-presence-with-youtube-custom-imagery/"><u>2024 Approved Create a Standout Presence with YouTube Custom Imagery</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-the-ultimate-image-sharing-blueprint-for-youtube-enthusiasts/"><u>2024 Approved The Ultimate Image Sharing Blueprint for YouTube Enthusiasts</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/comprehensive-caixun-75-4k-smart-tv-android-cost-effective-quality-on-screen/"><u>Comprehensive Caixun 75 4K Smart TV (Android) - Cost Effective Quality on Screen</u></a></li>
-<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-poco-m6-pro-4g-drfone-by-drfone-virtual-android/"><u>Full Guide to Fix iToolab AnyGO Not Working On Poco M6 Pro 4G | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-premier-asmr-videography-choices/"><u>In 2024, Premier ASMR Videography Choices</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-the-art-of-playlist-construction-on-youtube/"><u>In 2024, The Art of Playlist Construction on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nt-movie-magician-for-2024/"><u>Instant Movie Magician for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/netgears-enhanced-range-wifi-solution-the-powerful-nighthawk-x6s-extender/"><u>Netgear's Enhanced Range WiFi Solution - The Powerful Nighthawk X6S Extender</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/revolutionize-patient-engagement-with-ad-insights/"><u>Revolutionize Patient Engagement with Ad Insights</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unlock-the-power-of-future-proof-tweeting-a-comprehensive-guide/"><u>Unlock the Power of Future-Proof Tweeting: A Comprehensive Guide</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-secrets-of-the-top-8-social-apps-for-popularity-on-facebook-platform/"><u>[New] 2024 Approved Secrets of the Top 8 Social Apps for Popularity on Facebook Platform</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-entering-the-fullscreen-realm-choosing-a-cms/"><u>[New] In 2024, Entering the Fullscreen Realm Choosing a CMS</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-economics-of-evaluating-everything-on-electronic-streams/"><u>[Updated] 2024 Approved The Economics of Evaluating Everything on Electronic Streams</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-from-novice-to-pro-your-complete-reddit-post-blueprint/"><u>[Updated] From Novice to Pro Your Complete Reddit Post Blueprint</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-dive-into-video-production-mastering-green-screens-on-yt/"><u>[Updated] In 2024, Dive Into Video Production Mastering Green Screens on YT</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-virtual-artisans-haven-retreat/"><u>[Updated] In 2024, Virtual Artisans' Haven Retreat</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-join-the-fortune-changing-club-free-50-banners-await/"><u>[Updated] Join The Fortune-Changing Club Free 50 Banners Await!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-your-next-best-source-for-world-exploration-for-2024/"><u>[Updated] Your Next-Best Source for World Exploration for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-premium-notebooks-select-the-best-for-professional-edits/"><u>2024 Approved Premium Notebooks Select the Best for Professional Edits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-youtube-channel-harmony-matching-your-narrative-with-the-right-mic/"><u>2024 Approved YouTube Channel Harmony Matching Your Narrative With the Right Mic</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/amplifying-zoom-picture-quality-insider-secrets-for-2024/"><u>Amplifying Zoom Picture Quality Insider Secrets for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-unlock-apple-iphone-12-mini-with-a-mask-on-drfone-by-drfone-ios/"><u>How to Unlock Apple iPhone 12 mini with a Mask On | Dr.fone</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-the-complete-setup-scoop-easy-youtube-tech-for-starters/"><u>In 2024, The Complete Setup Scoop Easy YouTube Tech for Starters</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/in-2024-top-10-ae-text-styles-guide/"><u>In 2024, Top 10 AE Text Styles Guide</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-livekernelevent-117-mishap-a-comprehensive-guide/"><u>Solving the LiveKernelEvent 117 Mishap: A Comprehensive Guide</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/1125745-9781609250157-the-great-shift/"><u>The Great Shift | Free Book</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/top-6-business-driven-social-networks-for-2024/"><u>Top 6 Business-Driven Social Networks for 2024</u></a></li>
 </ul></div>
 

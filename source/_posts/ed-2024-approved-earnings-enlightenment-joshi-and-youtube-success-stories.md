@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Earnings Enlightenment  Joshi and YouTube Success Stories\""
-date: 2025-01-13T22:51:43.489Z
-updated: 2025-01-18T16:05:20.349Z
+date: 2025-01-21T09:22:40.356Z
+updated: 2025-01-25T06:44:03.787Z
 tags:
   - ai video
   - ai youtube
@@ -103,10 +103,6 @@ It’s no secret that with dedication and hard work Sourav has managed to create
 
 He also gives off humble vibes. Looking at his content, you’ll see and feel adoration he has for his brother and cousin brother. He seems like a genuine and fun guy, too.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Engaging and Interactive Content
 
 ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-3.jpg)
@@ -114,10 +110,6 @@ He also gives off humble vibes. Looking at his content, you’ll see and feel ad
 Since he’s got two channels, both are great in terms of content. On his art channel, he’s drawn images of known people, such as Bollywood actor Tiger Shroff, Indian Cricketer MS Dhoni, and many more.
 
 More so, on his vlog channel, he created daily-life vlogs which most people can relate to. From travel videos to surprises for family, you can see enjoyable content on Sourav’s vlog channel.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Most Viewed Vlogs/Videos
 
@@ -163,19 +155,11 @@ The first step is to click on “import” to access the folder where you can br
 
 ![drag video to timeline](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-8.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Drag and drop your files from the media library to be used as the background in the first round. Then, drag and drop another video to be used on the top of that background in the second round.
 
 ##### Step3 Work on Speed and Duration Settings
 
 ![speed and duration setting](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-9.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 In the duration settings, you can adjust the video duration. If there’s need for adding more video clips together, repeat the same process on several tracks, sharing the same frame.
 
@@ -195,10 +179,6 @@ _Motion effects_
 
 ![motion effects](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-11.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _Adjustment of video tone_
 
 ![adjust video tone](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-12.jpg)
@@ -208,7 +188,7 @@ _Color correction of the video_
 ![color correction](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-13.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 _Options for audio_
@@ -218,10 +198,6 @@ _Options for audio_
 _Apply masks to your video, they feature different shape and positions, so adjust them accordingly._
 
 ![video mask](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-15.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ##### Step6 Use More Features from Library
 
@@ -243,6 +219,10 @@ _Elements_
 
 ![elements](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-18.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Go to the top menu and find “elements.” You can add these elements to ensure your video appear interesting and engaging.
 
 _Transitions_
@@ -255,11 +235,11 @@ Using various video clips in a single video? Use transitions, located on the top
 
 ![save and export](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-20.jpg)
 
-Once you’re satisfied with the end result, it’s time to save and export the video for actual usage.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+Once you’re satisfied with the end result, it’s time to save and export the video for actual usage.
 
 ## Wrap Up
 
@@ -276,6 +256,10 @@ You can try creating a video for YouTube. And use Filmora to make your videos im
 Part 1: Who is Sourav Joshi?
 
 ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 An Indian YouTuber, Sourav started his first channel “Sourav Joshi Arts” on the Platform in September, 2015\. You can find drawings of famous people, including Abraham Lincoln on his arts channel.
 
@@ -303,6 +287,10 @@ Being creative and unique can help you go big on YouTube. With his art videos an
 
 Now that you know who Sourav Joshi is and what he does to earn dollars from YouTube, see how YouTube calculates income.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Sourav Joshi YouTube Income
 
 As an established YouTuber, Sourav makes money from affiliate marketing, sponsorships, paid partnerships, and Google AdSense.
@@ -310,10 +298,6 @@ As an established YouTuber, Sourav makes money from affiliate marketing, sponsor
 Want to know Sourav Joshi's income from YouTube? He’s known to earn $30,000 to $45,000 monthly, and has a current net worth, $1 million.
 
 Sourav receives 320-350 million views monthly on his two YouTube videos that helped him elevate his net worth.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Sourav Joshi YouTube Stats
 
@@ -343,6 +327,10 @@ The reasons for his success and popularity are:
 
 ![sourav joshi image](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 It’s no secret that with dedication and hard work Sourav has managed to create himself a successful YouTuber.
 
 He also gives off humble vibes. Looking at his content, you’ll see and feel adoration he has for his brother and cousin brother. He seems like a genuine and fun guy, too.
@@ -355,15 +343,15 @@ Since he’s got two channels, both are great in terms of content. On his art ch
 
 More so, on his vlog channel, he created daily-life vlogs which most people can relate to. From travel videos to surprises for family, you can see enjoyable content on Sourav’s vlog channel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Most Viewed Vlogs/Videos
 
 As an artist, Sourav has created some stunning portraits of popular people. But one video where he drew hair got the most views.
 
 ![how to draw hair](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 His “How I Draw Hairs | Step by Step” got around 13,353, 361 views.
 
@@ -372,6 +360,10 @@ His “How I Draw Hairs | Step by Step” got around 13,353, 361 views.
 In this 8-minute video clip, you can see him draw hair with absolute perfection, making the final product look 100% realistic.
 
 ![golgappa challenge](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 During the lockdown, Sourav vlogs got massive popularity. One such vlog was “Golgappa CHALLENGE WITH PIYUSH.”
 
@@ -386,6 +378,10 @@ People love watching vlogs, especially when they’re relatable to their persona
 [Highway Pe Faas Gye 馃槄 Popat Hi Popat](https://www.youtube.com/watch?v=YVIRaXMvhI0)
 
 This is one of the most-viewed vlogs by Sourav with 23,431,594 views.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Pro Tips: How to be a YouTuber and Make Videos Like Sourav Joshi
 
@@ -462,6 +458,10 @@ _Stock Video_
 _Elements_
 
 ![elements](https://images.wondershare.com/filmora/article-images/2022/11/sourav-joshi-income-on-youtube-2022-18.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Go to the top menu and find “elements.” You can add these elements to ensure your video appear interesting and engaging.
 
@@ -510,20 +510,14 @@ You can try creating a video for YouTube. And use Filmora to make your videos im
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-the-ultimate-playlist-tweaking-on-youtube/"><u>[New] 2024 Approved The Ultimate Playlist Tweaking on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unveiling-subscriber-lists-a-youtube-guide/"><u>[Updated] 2024 Approved Unveiling Subscriber Lists A YouTube Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-how-to-optimize-youtube-tagstitledescription-for-more-views-for-2024/"><u>[Updated] How to Optimize YouTube Tags/Title/Description for More Views for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-master-pip-feature-while-consuming-youtube-videos-on-iphones/"><u>[Updated] Master PIP Feature While Consuming YouTube Videos on iPhones</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-realme-12-5g-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Realme 12 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-inside-look-at-youtubes-creator-studio-interface/"><u>2024 Approved Inside Look at YouTube's Creator Studio Interface</u></a></li>
-<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-realme-gt-5-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Realme GT 5 Pro to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/best-video-grabbers-for-windows-11-pc-for-2024/"><u>Best Video Grabbers for Windows 11 PC for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/efficient-recording-methods-for-skype-calls-using-obs-for-2024/"><u>Efficient Recording Methods for Skype Calls Using OBS for 2024</u></a></li>
-<li><a href="https://printer-issues.techidaily.com/fix-for-non-operational-post-upgrade-printer/"><u>Fix for Non-Operational Post-Upgrade Printer</u></a></li>
-<li><a href="https://howto.techidaily.com/full-guide-how-to-fix-connection-is-not-private-on-samsung-galaxy-a54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Guide How To Fix Connection Is Not Private on Samsung Galaxy A54 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-3-facts-you-need-to-know-about-screen-mirroring-realme-gt-neo-5-se-drfone-by-drfone-android/"><u>In 2024, 3 Facts You Need to Know about Screen Mirroring Realme GT Neo 5 SE | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-unlocking-earnings-potential-essential-view-numbers/"><u>In 2024, Unlocking Earnings Potential Essential View Numbers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ization-mastery-thriving-in-the-youtube-economy-no-ads-included-for-2024/"><u>Monetization Mastery Thriving in the YouTube Economy, No Ads Included for 2024</u></a></li>
-<li><a href="https://windows11.techidaily.com/post-upgrade-realignment-of-the-windows-and-wsl-system/"><u>Post-Upgrade: Realignment of the Windows and WSL System</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-starting-a-sports-network-with-your-mac/"><u>[New] 2024 Approved Starting a Sports Network with Your Mac</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-expert-market-approach-rapid-eradication-on-youtube/"><u>[New] 2024 Approved The Expert' Market Approach Rapid Eradication on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-the-pathway-to-creating-high-quality-youtube-ads-on-a-dime/"><u>[New] 2024 Approved The Pathway to Creating High-Quality YouTube Ads on a Dime</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ultimate-7-video-streaming-apps-your-ally-in-going-live-with-youtube-from-iphones-and-android/"><u>[New] 2024 Approved Ultimate 7 Video Streaming Apps Your Ally in Going Live with YouTube From iPhones & Android</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-download-and-organize-facebook-urls-top-8-tools-of-the-year/"><u>[Updated] Download & Organize Facebook URLs Top 8 Tools of the Year</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-best-tools-to-hard-reset-oppo-a78-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Best Tools to Hard Reset Oppo A78 5G | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-lava-yuva-2-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Lava Yuva 2</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-gt-neo-5-se-phone-without-google-account-by-drfone-android/"><u>In 2024, How to Unlock Realme GT Neo 5 SE Phone without Google Account?</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-the-best-ispoofer-alternative-to-try-on-apple-iphone-11-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, The Best iSpoofer Alternative to Try On Apple iPhone 11 Pro | Dr.fone</u></a></li>
 </ul></div>
 

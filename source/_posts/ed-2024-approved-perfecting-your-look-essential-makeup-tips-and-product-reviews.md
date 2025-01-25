@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Perfecting Your Look  Essential Makeup Tips & Product Reviews\""
-date: 2024-08-08T12:44:21.837Z
-updated: 2024-08-09T12:44:21.837Z
+date: 2025-01-19T00:38:58.030Z
+updated: 2025-01-25T08:36:16.052Z
 tags:
   - ai video
   - ai youtube
@@ -41,17 +41,15 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
    9. **[How to Make a Makeup Tutorial – Recording](#recording)**
    10. **[How to Make a Makeup Tutorial – After Shooting](#after)**
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Best YouTube Video Editor- Wondershare Filmora
 
 Wondershare Filmora is specifically made keeping quality on priority and to make sure all the videos are edited well with the highest accuracy. You can trim, merge, crop, add background music, rotate videos as well as add motion elements, animated texts, overlays, and filters, etc. to your makeup video, and the video can also be uploaded to YouTube or burned to DVD directly.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uV3vm805eX0?si=YSPcsFxBcJmoxLsU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Finding Your Niche in Beauty or Lifestyle**
 
@@ -122,10 +120,6 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
-WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
-<!-- affiliate ads end -->
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -149,10 +143,11 @@ You might want to experiment with sitting at different distances to see how the 
 
 **_Step 2:_** Set your camera up a bit higher than your face and tilt it down towards yourself (shooting from slightly above is always more flattering). It should be set up at about a 15° angle to you.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![tilt down your camera](https://images.wondershare.com/filmora/article-images/tilt-down-camera1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **_Step 3:_** Check your frame (this is easiest if your camera has a screen that flips out) to make sure there’s not too much empty space in your shot.
 
@@ -170,17 +165,10 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## **Lighting for Beauty**
 
 The key to achieving a high-quality picture for your beauty video is having a lot of light.
@@ -193,9 +181,6 @@ There are, however, some reasons you might want additional light:
 
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
-<!-- affiliate ads end -->
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
@@ -219,6 +204,10 @@ You can use softboxes, LED panels, clamp lights, household lamps, or any other l
 
 * **_Clamp lights ($10 each) and paper lanterns ($10 each) provide great lighting and are much more affordable than professional lighting kits._ The paper lanterns will provide even, diffused, light and the clamp lights will be easy to set up wherever you need them.**
 * **_Check out these [DIY tips for creating your own reflectors and diffusers](https://www.filmora.io/community-blog/save-money-with-clever-diy-youtube-gear%21-462.html)._**
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Top Ring Lights for YouTube**
 
@@ -266,8 +255,9 @@ This is your ring light. Continue to step 5 if you want it to have a stand (you 
 **_Step 5:_** Fasten your ring light tightly to your paper towel stand securely with several zip ties. Make sure to fasten it at the bottom (where the excess rope light is coming out of your ring light). Cut off the tails of the zip ties.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – Before You Start**
 
 Before you start recording your makeup tutorial there are a few things you should do.
@@ -288,8 +278,9 @@ If you’re using autofocus, you can hold products up to the screen and wait for
 3. **_Take stills for your thumbnail._** Remember to take some still photos of your finished makeup to use in your YouTube thumbnail.
 
 <!-- affiliate ads begin -->
-<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## **How to Make a Makeup Tutorial – After Shooting**
 
 Once you’ve finished recording and put away all your camera gear, there’s still work to do. You still need to edit your video and post it on YouTube. Here are some tips for that:
@@ -306,20 +297,21 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -328,4 +320,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-6-proven-techniques-to-elevate-your-youtube-engagement-and-reduce-churn/"><u>[New] 2024 Approved 6 Proven Techniques to Elevate Your YouTube Engagement and Reduce Churn</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-best-10-video-card-selections-for-peak-streaming-performance/"><u>[New] 2024 Approved Best 10 Video Card Selections for Peak Streaming Performance</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-most-reliable-platforms-to-gather-video-intro-templates/"><u>[New] 2024 Approved Most Reliable Platforms to Gather Video Intro Templates</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-perfect-your-youtube-videos-after-publishing/"><u>[New] 2024 Approved Perfect Your YouTube Videos After Publishing</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-pursuing-well-being-top-10-yoga-channel-recommendations/"><u>[New] 2024 Approved Pursuing Well-Being Top 10 Yoga Channel Recommendations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-break-down-barriers-streaming-google-meet-on-youtube-stepwise/"><u>[Updated] 2024 Approved Break Down Barriers Streaming Google Meet on YouTube, Stepwise</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-comprehensive-razer-camera-study/"><u>[Updated] 2024 Approved Comprehensive Razer Camera Study</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-the-magic-of-time-expansion-a-comprehensive-guide-to-making-beautifully-long-movies-with-still-images-and-online-tools/"><u>[Updated] 2024 Approved The Magic of Time Expansion A Comprehensive Guide to Making Beautifully Long Movies with Still Images & Online Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-synchronizing-teams-mastering-device-agnostic-zoom-events/"><u>[Updated] Synchronizing Teams Mastering Device-Agnostic Zoom Events</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/enhance-your-livestreams-with-advanced-virtual-camcorders-including-the-powerful-manycam-suite/"><u>Enhance Your Livestreams with Advanced Virtual Camcorders, Including the Powerful ManyCam Suite!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-ready-top-dj-templates-download-guide-for-2024/"><u>Event-Ready Top DJ Templates Download Guide for 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-ringtone-manipulation-from-default-sounds-to-custom-beat-selections/"><u>New In 2024, Ringtone Manipulation From Default Sounds to Custom Beat Selections</u></a></li>
+<li><a href="https://fox-that.techidaily.com/quick-fixes-to-accelerate-your-iphones-safari-experience/"><u>Quick Fixes to Accelerate Your iPhone's Safari Experience</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-strategies-tailoring-your-microphone-to-align-with-your-youtube-channel-for-2024/"><u>Sound Strategies Tailoring Your Microphone to Align With Your YouTube Channel for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-the-momentum-channels-best-inspirational-videos/"><u>Spark the Momentum Channel's Best Inspirational Videos</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlock-nubia-red-magic-8s-pro-phone-password-without-factory-reset-full-guide-here-by-drfone-android/"><u>Unlock Nubia Red Magic 8S Pro Phone Password Without Factory Reset Full Guide Here</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-locating-hilarious-audio-effects-online/"><u>Updated Locating Hilarious Audio Effects Online</u></a></li>
+</ul></div>
 

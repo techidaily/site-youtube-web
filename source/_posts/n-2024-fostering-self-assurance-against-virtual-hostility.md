@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Fostering Self-Assurance Against Virtual Hostility\""
-date: 2024-08-08T12:44:03.452Z
-updated: 2024-08-09T12:44:03.452Z
+date: 2025-01-20T04:10:27.030Z
+updated: 2025-01-24T19:26:00.699Z
 tags:
   - ai video
   - ai youtube
@@ -18,10 +18,6 @@ thumbnail: https://thmb.techidaily.com/b89ffcd4bf4187d5ce782fa255f3d31e70eba20fb
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -31,8 +27,9 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -59,11 +56,11 @@ Epubor Ultimate for Win：Helps you read books anywhere, including the best eBoo
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/grbt-5VvbuI?si=qnoirlmljslpqcQj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -71,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -87,4 +81,18 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-a-filmmakers-companion-the-journey-from-capturing-to-post-production-of-360-videos/"><u>[New] 2024 Approved A Filmmaker's Companion The Journey From Capturing to Post-Production of 360 Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-beats-and-bands-how-to-upload-music-online/"><u>[New] 2024 Approved Beats & Bands How to Upload Music Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-ethical-approaches-to-extract-and-convert-youtube-videos/"><u>[New] 2024 Approved Ethical Approaches to Extract and Convert YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-in-video-earnings-techno-gamers-guide/"><u>[New] 2024 Approved In-Video Earnings Techno Gamers' Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-premium-content-at-a-low-price-the-ultimate-list-of-free-intros-makers/"><u>[New] 2024 Approved Premium Content at a Low Price The Ultimate List of Free Intros Makers</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-correcting-smudged-stream-content-on-facebook-devices-for-2024/"><u>[New] Correcting Smudged Stream Content on Facebook Devices for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-transform-your-youtube-channels-with-impactful-branding-strategies/"><u>[New] Transform Your YouTube Channels with Impactful Branding Strategies</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-pro-tips-combining-gopro-with-time-lapse-shooting-techniques/"><u>[Updated] In 2024, Pro Tips Combining GoPro with Time-Lapse Shooting Techniques</u></a></li>
+<li><a href="https://howto.techidaily.com/6-solutions-to-fix-error-505-in-google-play-store-on-honor-90-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>6 Solutions to Fix Error 505 in Google Play Store on Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/elite-methodology-for-unrivaled-mobile-screen-recording-using-mobizen-for-2024/"><u>Elite Methodology for Unrivaled Mobile Screen Recording Using Mobizen for 2024</u></a></li>
+<li><a href="https://win-webster.techidaily.com/resolving-the-failed-to-generate-snapshot-of-storage-volume-error-best-fixes/"><u>Resolving the 'Failed to Generate Snapshot of Storage Volume' Error - Best Fixes</u></a></li>
+</ul></div>
 

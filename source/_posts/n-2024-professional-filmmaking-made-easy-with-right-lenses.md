@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Professional Filmmaking Made Easy with Right Lenses"
-date: 2024-08-08T12:43:23.011Z
-updated: 2024-08-09T12:43:23.011Z
+date: 2025-01-18T03:55:00.586Z
+updated: 2025-01-24T17:24:56.559Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/c6507ef1a8c1967e04b9a71ecc3df4d6b245a6412
 
 # A Vlogger's Guide To Camera Lenses
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -42,6 +39,10 @@ In this article, I’m going to help you figure that out.
 * [Part 5: Aperture](#aperture)
 * [Part 6: Vlogging With a Fast Lens](#VloggingWithAFastLens)
 * [Part 7: Optical Image Stabilization](#OpticalImageStabilization)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Three Focal Length Groups: Wide, Standard, Telephoto
 
@@ -81,9 +82,6 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -91,6 +89,10 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -109,17 +111,19 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
 ### Aperture
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
 
@@ -141,9 +145,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -156,10 +157,11 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -167,14 +169,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -183,4 +182,21 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-blitzing-sharing-easy-youtube-playlist-methods/"><u>[New] 2024 Approved Blitzing Sharing Easy YouTube Playlist Methods</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-crafting-chorus-in-a-click-essential-insights-into-shortform-song-videos/"><u>[New] 2024 Approved Crafting Chorus in a Click Essential Insights Into Shortform Song Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-cured-non-appearance-of-tiny-vid-content/"><u>[New] 2024 Approved Cured Non-Appearance of Tiny Vid Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-discover-the-7-most-wanted-apps-to-boost-your-youtube-live-quality/"><u>[New] 2024 Approved Discover the 7 Most Wanted Apps to Boost Your YouTube LIVE Quality</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-discover-top-ten-unforgettable-youtube-vr-videos/"><u>[New] Discover Top Ten Unforgettable YouTube VR Videos</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-scripting-journalisms-closing-statements/"><u>[New] Scripting Journalism's Closing Statements</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-2024-approved-annotating-emotions-through-trailer-tunes/"><u>[Updated] 2024 Approved Annotating Emotions Through Trailer Tunes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-masterfulaiimageeditor-the-best-of-both-worlds/"><u>[Updated] MasterfulAiImageEditor The Best of Both Worlds</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-perfect-guide-youtube-videos-on-instagram-feed-for-2024/"><u>[Updated] Perfect Guide YouTube Videos on Instagram Feed for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/collabcanvas-mosaic-magic-on-instagram-devices/"><u>CollabCanvas Mosaic Magic on Instagram Devices</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-call-logs-from-tecno-camon-20-premier-5g-by-fonelab-android-recover-call-logs/"><u>How to rescue lost call logs from Tecno Camon 20 Premier 5G</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-honor-magic-6-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-android-adblockers-seamless-browsing-experience-for-2024/"><u>Top 7 Android AdBlockers Seamless Browsing Experience for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/-proven-techniques-to-amplify-content-for-2024/"><u>Top 8 Proven Techniques to Amplify Content for 2024</u></a></li>
+</ul></div>
 

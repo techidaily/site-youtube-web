@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate Networking Haven  Beyond VidCon\""
-date: 2024-08-08T12:45:17.158Z
-updated: 2024-08-09T12:45:17.158Z
+date: 2025-01-22T00:55:55.985Z
+updated: 2025-01-24T22:43:04.250Z
 tags:
   - ai video
   - ai youtube
@@ -36,14 +36,15 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
-<!-- affiliate ads end -->
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
 
@@ -54,6 +55,10 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 **VidCon Australia:** August/September
 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
 
@@ -81,14 +86,6 @@ You have a two-week window (usually the first half of May) to submit your choice
 
 **Washington DC:** September
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
-	Home Use license is dedicated for personal, non-commercial use only. 
-	If Action! is used for commercial gain or to further any commercial purpose, 
-	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
- 
-	company, user or members of the same household. Action! - screen and game recorder</a>
-<!-- affiliate ads end -->
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
@@ -123,11 +120,11 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 **London, UK:** November
 
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
@@ -151,9 +148,6 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -166,9 +160,6 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 
 Sydney, Australia: February
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -209,6 +200,10 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -231,11 +226,11 @@ If you buy your tickets during early bird pricing, the prices will look like thi
 
 Have you ever attended an offline YouTube event? Which one, and how did you like it?
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -243,14 +238,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -259,4 +251,20 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-a-visual-journey-the-art-of-editing-with-snapchat-filters/"><u>[New] In 2024, A Visual Journey The Art of Editing with Snapchat Filters</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/n-2024-your-step-by-step-equipment-plan-for-youtube-beginnings/"><u>[New] In 2024, Your Step-by-Step Equipment Plan for YouTube Beginnings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-premier-selector-master-your-video-grabs/"><u>[New] The Premier Selector Master Your Video Grabs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/hat-is-filmora-certified-creative-program-and-how-to-become-an-fcc/"><u>[New] What Is Filmora Certified Creative Program and How to Become an FCC?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-gain-more-loyal-viewers-unlock-top-strategies-for-enhancing-viewer-retention-on-youtube-for-2024/"><u>[Updated] Gain More Loyal Viewers Unlock Top Strategies for Enhancing Viewer Retention on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-young-entrepreneurs-guide-buying-profitable-youtube-sites/"><u>[Updated] Young Entrepreneur's Guide Buying Profitable YouTube Sites</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/advanced-viewing-techniques-for-tiktok-content-for-2024/"><u>Advanced Viewing Techniques for TikTok Content for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/correcting-dim-laptop-screen-problem-in-lenovo/"><u>Correcting Dim Laptop Screen Problem in Lenovo</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-10-easy-to-use-frp-bypass-tools-for-unlocking-google-accounts-on-nokia-c210-by-drfone-android/"><u>In 2024, 10 Easy-to-Use FRP Bypass Tools for Unlocking Google Accounts On Nokia C210</u></a></li>
+<li><a href="https://article-posts.techidaily.com/optimal-introduction-editor-software-apps/"><u>Optimal Introduction Editor Software (Apps)</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/shattering-performance-records-ryzen-9-9950x-hits-67ghz-overclocked-with-ln2-cooling/"><u>Shattering Performance Records: Ryzen 9 9950X Hits 6.7GHz Overclocked With LN2 Cooling</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/solving-surface-pro-7s-screenshot-stutter/"><u>Solving Surface Pro 7'S Screenshot Stutter</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/step-by-step-commands-to-access-pc-health-stats/"><u>Step-by-Step Commands to Access PC Health Stats</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Capturing the Best Visuals in Vlogs"
-date: 2025-01-11T22:16:24.467Z
-updated: 2025-01-18T16:06:36.682Z
+date: 2025-01-22T05:19:03.497Z
+updated: 2025-01-25T04:26:11.641Z
 tags:
   - ai video
   - ai youtube
@@ -34,12 +34,16 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -54,13 +58,13 @@ The **fill light** is less bright than the primary source of light and it is pla
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Lightning Tips for Aspiring YouTube Videographers
@@ -89,10 +93,6 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,20 +130,17 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-the-beginners-guide-to-efficient-zoom-meeting-recordings/"><u>[New] 2024 Approved The Beginner's Guide to Efficient Zoom Meeting Recordings</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unlocking-the-million-sub-code-insights-for-digital-growth/"><u>[New] 2024 Approved Unlocking the Million-Sub Code Insights for Digital Growth</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/lassic-film-aesthetics-masterclass-in-video-production-for-2024/"><u>[New] Classic Film Aesthetics Masterclass in Video Production for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/iscovering-and-dominating-unique-segments-in-youtube-for-2024/"><u>[New] Discovering and Dominating Unique Segments in YouTube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/gnite-your-brands-potential-immerse-in-our-exclusive-collection-of-over-50-free-youtube-banners-for-2024/"><u>[New] Ignite Your Brand's Potential Immerse in Our Exclusive Collection of over 50 Free YouTube Banners for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-rise-through-the-instagram-rankings-fast/"><u>[Updated] 2024 Approved Rise Through the Instagram Rankings Fast</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-enhance-your-online-skills-a-guide-to-youtube-editing-via-sony-vegas/"><u>[Updated] Enhance Your Online Skills A Guide to YouTube Editing via Sony Vegas</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-content-creation-evolution-studio-vs-innovative-beta/"><u>[Updated] In 2024, Content Creation Evolution Studio Vs. Innovative Beta</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-tailored-viewing-experience-constructing-a-personalized-watch-later-list/"><u>[Updated] In 2024, Tailored Viewing Experience Constructing a Personalized 'Watch Later' List</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-solo-scrutiny-an-examination-of-3dr-printers-for-2024/"><u>[Updated] Solo Scrutiny An Examination of '3DR' Printers for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-streamline-your-screencast-the-best-obs-tools-insider-tips/"><u>2024 Approved Streamline Your Screencast The Best OBS Tools Insider Tips</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/convert-twitter-video-to-audiomp4webm-for-2024/"><u>Convert Twitter Video to Audio/MP4/WebM for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/ios-app-store-vs-androids-google-play-a-comprehensive-comparison/"><u>IOS App Store Vs. Android's Google Play: A Comprehensive Comparison</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/izing-your-channels-earnings-a-guide-to-creating-impactful-trailers-for-2024/"><u>Maximizing Your Channel's Earnings A Guide to Creating Impactful Trailers for 2024</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/the-future-of-gaming-ais-role-in-game-development/"><u>The Future of Gaming: AI's Role in Game Development</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-how-to-make-a-channel-trailer/"><u>[New] In 2024, How to Make a Channel Trailer</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-where-custom-visuals-for-youtube-live-and-breathe/"><u>[New] In 2024, Where Custom Visuals for YouTube Live and Breathe</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/implified-playlist-crafting-for-youtube-fans-on-desktop-and-mobile-devices/"><u>[New] Simplified Playlist Crafting for YouTube Fans on Desktop & Mobile Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ultimate-watchlist-the-best-unboxers-of-the-new-era-for-2024/"><u>[New] Ultimate Watchlist The Best Unboxers of the New Era for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-compiling-leading-short-form-video-editors-iosandroid-edition/"><u>[Updated] In 2024, Compiling Leading Short-Form Video Editors IOS/Android Edition</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-streamlined-approach-save-youtube-videos/"><u>[Updated] In 2024, Streamlined Approach Save YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-ultimate-guide-choosing-powerful-notebooks-for-filmmakers/"><u>[Updated] In 2024, Ultimate Guide Choosing Powerful Notebooks for Filmmakers</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-leap-into-virality-with-tiktoks-best-kept-editing-techniques-for-2024/"><u>[Updated] Leap Into Virality with TikTok's Best-Kept Editing Techniques for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-innovative-windows-media-cutting-tools/"><u>2024 Approved Innovative Windows Media Cutting Tools</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-smooth-shadows-and-dynamics-motion-blur-techniques-explained/"><u>In 2024, Smooth Shadows and Dynamics Motion Blur Techniques Explained</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/navigating-artifical-intelligence-in-apple-devices-comprehensive-insight-on-upcoming-ai-features-for-iphones-macs-and-ipads-exclusive/"><u>Navigating Artifical Intelligence in Apple Devices: Comprehensive Insight on Upcoming AI Features for iPhones, Macs & iPads Exclusive</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-the-hottest-youtube-music-playback-vids-2023/"><u>Unboxing the Hottest YouTube Music Playback Vids, 2023</u></a></li>
 </ul></div>
 

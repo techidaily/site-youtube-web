@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Swapping Sequence  A Simple Guide to Reversed Playlists\""
-date: 2024-08-08T12:47:11.559Z
-updated: 2024-08-09T12:47:11.559Z
+date: 2025-01-19T05:27:38.819Z
+updated: 2025-01-25T05:32:51.546Z
 tags:
   - ai video
   - ai youtube
@@ -22,9 +22,6 @@ Surprisingly, there is no built-in way to do this on YouTube. However, four simp
 
 So, keep reading to learn how to reverse a YouTube playlist so you can watch the videos in the order you want!
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## How to Reverse a YouTube Playlist?
 
 Below we've provided four different solutions to help you reverse your YouTube playlist on your computer:
@@ -38,10 +35,11 @@ The ["Iridium for YouTube"](https://chrome.google.com/webstore/detail/iridium-fo
 Here's how to install the "Iridium for YouTube" extension on your Chrome browser to reverse the playlist:  
 Step 1: In the first step, launch a browser on your computer and click the three dots (ellipsis icon) in the top-right corner of the screen. Scroll down, select "More Tools," and click Extensions."
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![access google web store](https://images.wondershare.com/filmora/article-images/accessing-google-web-store.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step 2:
 
@@ -49,9 +47,6 @@ Step 2:
 * Click the"Open Chrome Web Store"option.
 * Search for theIridium for YouTubeextension using the search bar.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ![search irdium youtube extension](https://images.wondershare.com/filmora/article-images/searching-iridium-for-youtube-extension.png)
 
 Step 3:
@@ -60,9 +55,6 @@ Step 3:
 * Click"Add to Chrome."
 * Click the"Add Extension"option in the pop-up menu.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->
 ![add extension on youtube](https://images.wondershare.com/filmora/article-images/adding-iridium-for-youtube-to-chrome.png)
 
 Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up window will appear. Select"Close"to terminate it, and clickthe"Menu"(hamburger) icon in the top left corner of the screen. Next, scroll down and open your savedPlaylistthat you want to reverse.
@@ -71,9 +63,6 @@ Step 4:Open a new page, visit [YouTube](https://www.youtube.com/), and a pop-up 
 
 Step 5: Click the "Play All" option in the details section of the playlist and click the Iridium button on the right side of the screen. This will open a new tab with different settings for your playlist. Go to the Video tab, and under the "Playlist" header, toggle the button next to "Enable reverse playlist control" to change the settings.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->
 ![set iridim for youtube](https://images.wondershare.com/filmora/article-images/setting-iridium-for-youtube-to-reverse-playlist.png)
 
 That's about it. You will now be able to watch a YouTube playlist in reverse order.
@@ -92,9 +81,6 @@ Step 2: In the next step, open a new tab and visit the ["Playlist.Tools"](https:
 
 Step 3: Finally, click the "Sort" icon and select descending order to reverse your playlist. You can always return to the original sequence by clicking the "Original Sequence" option in the top right corner of the screen.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Changing the Ordering in Settings
 
 If you are a content creator on YouTube and want to reverse the videos' order in a playlist on your channel, do the following steps in sequence:
@@ -107,13 +93,18 @@ You can also utilize the "Sort" option to reverse the playlist. To do so, click 
 
 ![reverse youtube playlist order](https://images.wondershare.com/filmora/article-images/sorting-the-playlist-order-to-reverse-it.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## A Bonus Tip for YouTube Creator: Make Your Own YouTube Channel Trailer
 
 As a YouTube content creator, you need to set your videos' order in your Playlist. Besides, the video's trailer also influences your audiences' browsing and watching experience. To help you with this part in case you are in need, we have prepared a video tutorial for you - How To Make Your Own YouTube Channel Trailer. If you have any interests, please don't miss it, and see how to make a fantastic video trailer with a user-friendly video editor [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/):
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Adding Playlist to Your Private Playlist
 
 If you want to reverse a YouTube playlist order, you can create a new private playlist. This quick and easy method will help you get the desired results.
@@ -128,11 +119,19 @@ Step 3: Scroll down on your channel's dashboard, select a video, and click the t
 
 ![youtube playlist reverse order](https://images.wondershare.com/filmora/article-images/adding-playlist-to-private-playlist-to-reverse-order.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Next, provide a name, set the privacy settings to "Private," and click "Create."
 
 Step 4: In the final step, head to the Playlist tab, click "View Full Playlist" to open the new playlist, and click the "three dots" in the details area on the left. Next, select "Playlist Settings" and toggle the button next to "Add new videos to top of playlist" to enable it.
 
 You can now add more videos to your playlist, and each one will be added to the top. This method helps you arrange the YouTube playlist as you desire.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -146,14 +145,11 @@ Surprisingly, there is no built-in way to do this on YouTube. However, four simp
 
 So, keep reading to learn how to reverse a YouTube playlist so you can watch the videos in the order you want!
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -162,4 +158,21 @@ So, keep reading to learn how to reverse a YouTube playlist so you can watch the
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ut-to-the-chase-8-simple-youtube-thumbnail-builders/"><u>[New] Cut-to-the-Chase 8 Simple YouTube Thumbnail Builders</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-the-ultimate-guide-to-crafting-killer-bios-on-tinder/"><u>[New] The Ultimate Guide to Crafting Killer Bios on Tinder</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-from-novice-to-notable-top-course-recommendations-for-youtubers/"><u>[Updated] 2024 Approved From Novice to Notable Top Course Recommendations for YouTubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-social-broadcast-battleground-fb-live-yt-live-twitvision/"><u>[Updated] 2024 Approved Social Broadcast Battleground FB Live, YT Live, TwitVision</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-crafting-a-revenue-generating-online-presence-for-2024/"><u>[Updated] Crafting a Revenue-Generating Online Presence for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-prime-selection-of-webcams-for-optimal-zoom-video-quality/"><u>[Updated] Prime Selection of Webcams for Optimal Zoom Video Quality</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-story-and-reels-transform-your-vocal-brand-with-these-tricks/"><u>2024 Approved Instagram Story & Reels Transform Your Vocal Brand with These Tricks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-unleash-creative-potential-best-free-title-crafting-for-yt/"><u>2024 Approved Unleash Creative Potential Best Free Title Crafting for YT</u></a></li>
+<li><a href="https://discover-community.techidaily.com/best-childrens-and-family-friendly-christmas-animation-top-10-films/"><u>Best Children's and Family-Friendly Christmas Animation: Top 10 Films</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-direct-encouraging-content-for-daily-living-vids/"><u>How to Direct Encouraging Content for Daily Living Vids</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-xiaomi-redmi-k70-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Xiaomi Redmi K70 Pro? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/izing-exposure-the-art-of-applying-youtube-tags/"><u>Maximizing Exposure The Art of Applying YouTube Tags</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/reviving-your-corsair-hs60-mic-solutions-for-when-it-stops-working/"><u>Reviving Your Corsair HS60 Mic - Solutions for When It Stops Working</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-goals-and-achievements-behind-googles-innovative-project-gemini/"><u>The Goals and Achievements Behind Google's Innovative Project Gemini</u></a></li>
+</ul></div>
 

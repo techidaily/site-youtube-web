@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Expert Advice on Selecting The Best Lenses For Filmmaking"
-date: 2025-01-18T00:11:26.064Z
-updated: 2025-01-18T23:05:55.321Z
+date: 2025-01-21T17:04:24.151Z
+updated: 2025-01-25T09:16:17.860Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ In this article, I’m going to help you figure that out.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Three Focal Length Groups: Wide, Standard, Telephoto
@@ -88,7 +88,7 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Crop Factor
@@ -97,14 +97,10 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
 
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
@@ -121,6 +117,10 @@ This table shows you the focal lengths needed to achieve the same shot between c
 | Telephoto                   | 70mm       | 44mm  | 35mm      |
 | Telephoto                   | 100mm      | 63mm  | 50mm      |
 | Telephoto                   | 200mm      | 125mm | 100mm     |
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Aperture
 
@@ -150,10 +150,6 @@ But do you even need a fast lens?
 * Moving subjects more likely to get out of focus when shooting with a large aperture
 * Better continuous autofocus performance needed when shooting moving subjects with a large aperture
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Optical Image Stabilization
 
 Finally, you’ll have to decide whether or not you want your lens to have built-in optical image stabilization (OIS).
@@ -167,6 +163,10 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
  Looking for ways to set up your talking-head shot for YouTube with any of these lenses? Check out our post on [4 Ways To Set Up Your Talking-Head Shots For YouTube](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -189,20 +189,21 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-crafting-online-fame-essential-instagram-tips-for-star-status-for-2024/"><u>[New] Crafting Online Fame Essential Instagram Tips for Star Status for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/reating-compelling-content-with-powerful-youtube-titles-for-2024/"><u>[New] Creating Compelling Content with Powerful YouTube Titles for 2024</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-ideal-top-5-ios-apps-for-podcasting-for-2024/"><u>[New] Ideal Top 5 iOS Apps for Podcasting for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/onetizing-popularity-pay-per-million-views/"><u>[New] Monetizing Popularity Pay Per Million Views</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/cream-loud-with-joy-our-picks-from-the-best-funny-youtubers/"><u>[New] Scream Loud with Joy Our Picks From the Best Funny YouTubers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-multimedia-designers-space/"><u>[Updated] 2024 Approved Multimedia Designer's Space</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-elevate-your-brand-explore-these-10-essential-youtube-creators-for-2024/"><u>[Updated] Elevate Your Brand Explore These 10 Essential YouTube Creators for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-from-blogging-to-earning-big-sourav-joshis-youtube-journey-2024/"><u>[Updated] From Blogging to Earning Big Sourav Joshi’s YouTube Journey, 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-precision-screening-advanced-tips-for-hp-laptop-recording/"><u>[Updated] In 2024, Precision Screening Advanced Tips for HP Laptop Recording</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-expert-guidelines-to-improve-zoom-on-chromeos/"><u>2024 Approved Expert Guidelines to Improve Zoom on ChromeOS</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/expert-analysis-unveiling-the-power-of-playstation-4-pros-ultra-hd-capabilities/"><u>Expert Analysis: Unveiling the Power of PlayStation 4 Pro's Ultra HD Capabilities</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/get-the-edge-in-gaming-secure-your-copy-of-steelseries-engine-for-windows-11-today/"><u>Get the Edge in Gaming: Secure Your Copy of SteelSeries Engine for Windows 11 Today!</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-change-lock-screen-wallpaper-on-nokia-c02-by-drfone-android/"><u>In 2024, How to Change Lock Screen Wallpaper on Nokia C02</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-flip-it-a-step-by-step-guide-to-rotating-clips-in-fcp-for-2024/"><u>Updated Flip It! A Step-by-Step Guide to Rotating Clips in FCP for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/-the-best-youtube-symbols-are-hidden-for-2024/"><u>Where the Best YouTube Symbols Are Hidden for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-rhythms-ally-finding-best-dj-content-online/"><u>[New] Rhythm's Ally Finding Best DJ Content Online</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-10-best-photo-frame-apps-of-2024/"><u>[Updated] 10 Best Photo Frame Apps of 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-essential-tips-for-incorporating-dynamic-cards-in-youtube-videos/"><u>[Updated] 2024 Approved Essential Tips for Incorporating Dynamic Cards in YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-professional-choice-high-quality-laptops-for-media-workers/"><u>[Updated] 2024 Approved Professional Choice High-Quality Laptops for Media Workers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-best-sound-transforming-apps-for-youtube-vloggers/"><u>[Updated] Best Sound Transforming Apps for YouTube Vloggers</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-choosing-the-right-horizon-smart-strategies-for-buying-an-impressive-4k-display/"><u>[Updated] Choosing the Right Horizon Smart Strategies for Buying an Impressive 4K Display</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-flv-file-symphony-creating-a-single-youtube-playlist/"><u>[Updated] FLV File Symphony Creating a Single YouTube Playlist</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-ideal-top-ten-video-calls-applications-for-alltech/"><u>[Updated] Ideal Top-Ten Video Calls Applications for Alltech</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-cinematic-footage-showdown-gopro-and-sj7/"><u>2024 Approved Cinematic Footage Showdown GoPro & SJ7</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-expanding-photography-quality/"><u>2024 Approved Expanding Photography Quality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-expert-video-making-opt-for-studio-versus-beta-version/"><u>2024 Approved Expert Video Making Opt for Studio Versus Beta Version</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/fy-your-imovie-with-youtube-audio-streams-for-2024/"><u>Amplify Your iMovie with YouTube Audio Streams for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-channel-boost-achieve-youtube-affiliate-milestone-with-10k-vistas/"><u>In 2024, Channel Boost Achieve YouTube Affiliate Milestone with 10K Vistas</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-guide-on-how-to-remove-apple-id-from-iphone-15-by-drfone-ios/"><u>In 2024, Guide on How To Remove Apple ID From iPhone 15</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/the-ultimate-selection-5-key-twitch-resources-to-enhance-your-live-streaming-experience/"><u>The Ultimate Selection: 5 Key Twitch Resources to Enhance Your Live Streaming Experience</u></a></li>
+<li><a href="https://some-tips.techidaily.com/top-10-programming-bootcamp-schools-a-comprehensive-review-by-techeducation-insider/"><u>Top 10 Programming Bootcamp Schools : A Comprehensive Review by TechEducation Insider</u></a></li>
 </ul></div>
 
