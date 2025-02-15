@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Uncomplicated Process  How to Swiftly Eliminate YouTube Comments\""
-date: 2024-07-29T13:40:58.840Z
-updated: 2024-07-30T13:40:58.840Z
+date: 2025-01-29T06:24:44.799Z
+updated: 2025-02-03T18:03:36.438Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/0b4edc9260dee73e74c6f70d4608ea90c51d96ccb
 
 # Deleting YouTube Comments
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -73,8 +70,9 @@ Fear not. Read on to know how to **delete all comments you posted on someone els
 2. Click on the three vertical dots that you see beside the target comment. You will find a Delete option. Tap on it, and confirm that you want to delete the comment. That completes the process. No more embarrassing comments!
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How Do You Delete Your Comments from Your Phone?
 
 Don’t have a desktop handy? This section will tell you how you can delete your comments you posted on your or someone else’s YouTube video from your mobile.
@@ -88,6 +86,10 @@ If it is your video where the comment to be removed is, you can go to My Channel
 
 1. Once you locate the video, you need to find the comment you want to delete. On the YouTube app, you may need to scroll down for a while to do this.
 2. When you reach it, click on the three vertical dots at the bottom corner of your comment. You should see an option called Delete. Click on that. You need to confirm once more that you want to delete it, and the process will be complete.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Delete Other People’s Comments on Others’ Channels
 
@@ -107,14 +109,16 @@ To find your History from your desktop, you need to click on the three horizonta
 2. Once you find your target comment, click on the three vertical dots that appear on its right side. You will find the Report option from the pop-up menu. Click on that.
 3. When you tap Report, another dialogue box will appear. From the list of options, choose the most appropriate option, tap on Report at the lower right corner of the pop-up, and complete the process. YouTube will do the rest.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
-<!-- affiliate ads end -->
 ![ Report YouTube comments](https://images.wondershare.com/filmora/article-images/report-youtube-comment.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to Delete All Your Posted YouTube Comments?
 
 You can also delete all comments you ever posted on any YouTube video by hiding your channel. When you do this, you can hide your video content temporarily. But it will irreversibly erase all your comments throughout YouTube. If you are curious, read on to know how you can do it.
@@ -122,16 +126,10 @@ You can also delete all comments you ever posted on any YouTube video by hiding 
 1. You need to go to YouTube from your desktop and sign in to your account.
 2. Next, you can either click on the profile icon at the top right corner or the three horizontal lines beside the YouTube logo on your homepage. From the list of options, click Settings.
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![   YouTube Settings](https://images.wondershare.com/filmora/article-images/two-ways-settings-youtube-channel.jpg)
 
 1. YouTube will direct you to the Settings page of your account. Choose Advanced Settings from the list on your left. You can also access it from[here](https://www.youtube.com/account%5Fadvanced).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 ![   YouTube Advanced  Settings](https://images.wondershare.com/filmora/article-images/youtube-advanced-settings.jpg)
 
 1. Scroll down and select Delete Channel. Clicking it will not delete your account. When you click on Delete Channel, you will get two choices – ‘I want to hide my channel’ and ‘I want to permanently delete my content’. Select the first.
@@ -146,20 +144,21 @@ YouTube can be an unsafe place with unwanted comments everywhere. In this blog, 
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -168,4 +167,26 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-charting-your-course-in-the-world-of-youtube-tracking-success-and-monetary-value/"><u>[New] 2024 Approved Charting Your Course in the World of YouTube Tracking Success & Monetary Value</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-cutting-confinement-with-comedy-best-facebook-incarceration-laughs-of-today/"><u>[New] Cutting Confinement with Comedy Best Facebook Incarceration Laughs of Today</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rom-passive-to-profitable-youtube-revenue-techniques-for-2024/"><u>[New] From Passive to Profitable YouTube Revenue Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-comparing-streams-vimeo-versus-youtube/"><u>[New] In 2024, Comparing Streams Vimeo Versus YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-macs-2023-update-youtube-audio-to-mp3-step-by-step/"><u>[New] In 2024, Mac's 2023 Update YouTube Audio to MP3 Step-by-Step</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/everaging-seo-for-youtube-popularity-a-budget-guide/"><u>[New] Leveraging SEO for YouTube Popularity A Budget Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/aster-the-craft-essential-filmmaking-advice-from-youtube-pros-for-2024/"><u>[New] Master the Craft Essential Filmmaking Advice From YouTube Pros for 2024</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-unveiling-the-simplicity-of-storytelling/"><u>[New] Unveiling the Simplicity of Storytelling</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-utilizing-jump-cuts-to-amplify-your-vlog-impact/"><u>[New] Utilizing Jump Cuts to Amplify Your Vlog Impact</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-new-age-of-youtube-branding-ideal-channel-titles-for-video-blogging-limited-to-156-characters/"><u>[Updated] In 2024, The New Age of YouTube Branding Ideal Channel Titles for Video Blogging (Limited to 156 Characters)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-sound-engineering-tips-to-elevate-your-video-content-for-2024/"><u>[Updated] Sound Engineering Tips to Elevate Your Video Content for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-techno-titans-earnings-forecast-on-gaming-channels-for-2024/"><u>[Updated] Techno Titans Earnings Forecast on Gaming Channels for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-curls-and-contours-creating-a-personalized-beauty-channel/"><u>Crafting Curls and Contours Creating a Personalized Beauty Channel</u></a></li>
+<li><a href="https://discover-deluxe.techidaily.com/downloadable-software-for-reviving-accidentally-erased-photographs-on-sd-cards-at-no-cost/"><u>Downloadable Software for Reviving Accidentally Erased Photographs on SD Cards at No Cost</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-delve-into-the-art-of-text-animation-14-stunning-examples/"><u>In 2024, Delve Into the Art of Text Animation 14 Stunning Examples</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-how-to-find-youtube-sponsorships-by-using-famebit/"><u>In 2024, How to Find YouTube Sponsorships by Using FameBit</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-mastering-streams-weighing-xsplit-against-obs-capabilities/"><u>In 2024, Mastering Streams Weighing XSplit Against OBS Capabilities</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/lg-smart-tv-compatibility-now-available-in-kodi-version-210-omega/"><u>LG Smart TV Compatibility Now Available in Kodi Version 21.0 Omega</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/1723086046477-the-ultimate-guide-for-budget-minded-traffic-alert-devices-uncover-escortpassports-insightful-s55-examination/"><u>The Ultimate Guide for Budget-Minded Traffic Alert Devices - Uncover EscortPassport’s Insightful S55 Examination</u></a></li>
+</ul></div>
 

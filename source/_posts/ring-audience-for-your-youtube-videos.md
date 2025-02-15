@@ -1,7 +1,7 @@
 ---
 title: "Tailoring Audience for Your Youtube Videos"
-date: 2025-01-20T06:47:02.616Z
-updated: 2025-01-25T06:01:40.439Z
+date: 2025-01-27T16:12:59.722Z
+updated: 2025-02-03T22:47:56.273Z
 tags:
   - ai video
   - ai youtube
@@ -44,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: Public VS Unlisted VS Private
@@ -69,10 +69,6 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: How to Change Privacy Settings
 
  There are two ways to change the privacy settings: firstly, when you upload the video, and secondly through Creator Studio.
@@ -83,17 +79,21 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
@@ -102,7 +102,7 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -114,7 +114,7 @@ thumbnail: https://thmb.techidaily.com/6fa8c212e32cacf403b164cddaa0641d8c8c97401
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -138,18 +138,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-2024-approved-beauty-brilliance-inside-the-world-of-youtube-cosmetics/"><u>[New] 2024 Approved Beauty Brilliance Inside the World of Youtube Cosmetics</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-creating-high-impact-short-waterway-previews/"><u>[New] 2024 Approved Creating High-Impact Short Waterway Previews</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/horeographing-narrative-news-wrappers/"><u>[New] Choreographing Narrative News Wrappers</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-playspectate-screen-recorder/"><u>2024 Approved PlaySpectate Screen Recorder</u></a></li>
-<li><a href="https://windows11.techidaily.com/altering-winterrals-visual-theme/"><u>Altering WinTerral's Visual Theme</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/mizing-your-watch-the-art-of-altering-youtube-video-pace-for-2024/"><u>Customizing Your Watch The Art of Altering YouTube Video Pace for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/efficient-ways-to-identify-cpu-generation-on-windows-platform/"><u>Efficient Ways to Identify CPU Generation on Windows Platform</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-bypass-the-required-apple-store-verification-for-apple-iphone-15-pro-drfone-by-drfone-ios/"><u>In 2024, How To Bypass the Required Apple Store Verification For Apple iPhone 15 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-making-yt-thumbnails-pop-a-mac-centric-approach/"><u>In 2024, Making YT Thumbnails Pop A Mac-Centric Approach</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-youtube-optimization-for-new-vloggers/"><u>In 2024, YouTube Optimization for New Vloggers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/e-sound-library-explore-the-best-free-downloader-apps-for-youtube-for-2024/"><u>Mobile Sound Library Explore the Best Free Downloader Apps for YouTube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/usiness-of-blogging-and-earning-on-youtube-platform-for-2024/"><u>The Business of Blogging and Earning on YouTube Platform for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-10-exceptional-cost-saving-passport-portrait-maker-applications/"><u>[New] In 2024, 10 Exceptional, Cost-Saving Passport Portrait Maker Applications</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nnovators-amalgamating-photography-plus-music-into-videography-for-2024/"><u>[New] Innovators Amalgamating Photography + Music Into Videography for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/cholarstreams-essential-educational-youtube-sites-for-2024/"><u>[New] ScholarStreams Essential Educational YouTube Sites for 2024</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-connecting-dots-spotify-plus-discord-easy-steps/"><u>[Updated] 2024 Approved Connecting Dots Spotify + Discord Easy Steps</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-echoes-of-excellence-10-strategies-for-superior-sound-quality/"><u>2024 Approved Echoes of Excellence 10 Strategies for Superior Sound Quality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-surge-your-viewer-numbers-a-comprehensive-guide-to-youtube-growth/"><u>2024 Approved Surge Your Viewer Numbers A Comprehensive Guide to YouTube Growth</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/apple-iphone-6-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>Apple iPhone 6 Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/your-hashtag-game-tripled-traffic-6kplus-vistas-for-2024/"><u>Hone Your Hashtag Game Tripled Traffic, $6K+ Vistas for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ssional-insights-crafting-youtube-trailers-using-filmora-for-2024/"><u>Professional Insights Crafting YouTube Trailers Using Filmora for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/sound-step-down-strategy-a-pro-guide-to-fading-audio/"><u>Sound Step-Down Strategy A Pro Guide to Fading Audio</u></a></li>
 </ul></div>
 

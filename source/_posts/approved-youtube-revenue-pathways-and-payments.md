@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  YouTube Revenue  Pathways and Payments\""
-date: 2025-01-18T03:27:05.313Z
-updated: 2025-01-25T04:08:11.236Z
+date: 2025-02-01T18:13:53.861Z
+updated: 2025-02-03T19:28:02.359Z
 tags:
   - ai video
   - ai youtube
@@ -50,6 +50,10 @@ In this article, we're going to walk you through our 4-step process to outline t
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1: When does youtube pay you \[threshold to meet\]
 
@@ -115,19 +119,11 @@ Drag the YouTube Video Views Slider right or left based on your daily video view
 
 ![enter youtube channel url](https://images.wondershare.com/filmora/article-images/2022/11/how-does-youtube-pay-you-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This tool only requires your channel URL. Copy and paste the URL and click 'Check.' You'll get a short report of your channel that includes your total subscribers, the last 90 days' progress, and an estimated earning per video.
 
 **3.[Youtube Money Calculator](https://influencermarketinghub.com/youtube-money-calculator/#:~:text=Powered%20by-,Youtube%20Money%20Calculator,-Estimated%20Total%20Earnings)**
 
 ![total earnings by channel and video](https://images.wondershare.com/filmora/article-images/2022/11/how-does-youtube-pay-you-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The Youtube money calculator will show you the exact profit you are earning per day and will let you track your earnings daily, weekly and monthly. You can use the youtube money calculator to see if you should stop or continue your videos. You will also get to know how to improve your income.
 
@@ -155,13 +151,13 @@ Emma Chamberlain, a vlogger and a social media personality, has a net worth of $
 
 Roman Atwood became famous with prank videos on his YouTube channel back in 2009\. He started another channel, "RomanAtwoodVlogs", which now has over 15.5 million subscribers and 5.5 billion views. Total of all his endeavors is a staggering net worth of $14.5 million.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 18\. [JJ Olatunji (AKA KSI)](https://www.youtube.com/user/KSIOlajidebtHD) – $15 million
 
 KSI is number 18 on our list, with a net worth of $15 million. In 2009, he created a new channel under the name moniker KSI. Now his channel has about 23.7 million subscribers and over 5.8 billion views.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 17\. [Stevin John (AKA Blippi)](https://www.youtube.com/c/Blippi) – $16 million
 
@@ -170,6 +166,10 @@ Blippihis is a fun character for kids who make educational videos for them. His 
 ### 16\. [Sean McLoughlin (AKA Jacksepticeye)](https://www.youtube.com/c/jacksepticeye) – $16 million
 
 This Irish YouTube personality has a vlogging and video games channel. This year, he has over 28 million subscribers and makes about $300,000 per month, making his net worth around $16 million.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 15\. [David Dobrik](https://www.youtube.com/c/DavidDobrik) – $20 million
 
@@ -211,10 +211,6 @@ Daniel Middleton has made millions from his gaming YouTube channel DanTDM. He's 
 
 Mark's channel is one of the top 100 most subscribed Youtube channels. His career as a writer, actor, director and producer made him a fortune of $35 million.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5.[Felix Kjellberg (AKA PewDiePie)](https://www.youtube.com/user/PewDiePie) – $40 million
 
 Pewdiepie channel is often among the most subscribed channels on YouTube, and today it has around a whopping 111 million subscribers and over 28.2 billion views. Despite some setbacks, he still earned a staggering net worth of $40 million.
@@ -245,19 +241,11 @@ Making good content that people love to watch repeatedly is a great way to earn 
 
 Creating content that is both entertaining and informative helps people to make decisions. An audience can get a lot of information from the video, but if it is not of good quality, it will not have a good impression.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Bonus: Spice up your videos with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 A powerful video editing software can help you a lot. With an impactful editor software like Filmora, it allows you to add titles, music, and transition effects to give your video more visual appeal.
 
 ![total earnings by channel and video](https://images.wondershare.com/filmora/article-images/2022/11/how-does-youtube-pay-you-4.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The current most popular video editing software application on the market is, hands down, Wondershare Filmora. Editing is incredibly easy with Filmora. Even the most inexperienced user can create a compelling, professional-looking video with Filmora in minutes. With Filmora's video creation tools, anyone can easily edit, add effects, change text, and even make voiceovers. Filmora's intuitive interface is a dream for non-experts as well. Some of its unique features include:
 
@@ -268,6 +256,10 @@ A royalty-free stock media, smart templates, and visual effects plug-ins will he
 ### AI Portrait
 
 Remove backgrounds from photographs with great accuracy, plus includes 80+ artificial intelligence portraits and photo editing stickers.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Green Screen
 
@@ -296,10 +288,6 @@ But brands tend to sponsor only content deemed relevant to the brand. So if you 
 ### 1\. What if I don't meet the program threshold?
 
 While trying to meet the threshold, focus on making content that will stand out from the competition and build your channel.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. If I meet the threshold, do I automatically get into the YouTube Partner Program (YPP)?
 
@@ -339,10 +327,6 @@ It would be best if you were in the listed countries where Youtube Partner Progr
 
 Remember to avoid any strikes if you are planning to monetize your channel.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. 4,000 watch hours
 
 To qualify as a creator with a sustainable audience, you'll need at least 4,000 public watch hours within 12 months in your channel.
@@ -355,9 +339,17 @@ You'll need to ensure that you have a Google Adsense account set up and ready to
 
 We know that making money from YouTube can be challenging but not impossible. We'll help you figure out how to get paid. Whether you want to create your videos and monetize them or you want to take advantage of the huge pool of talent. We'll show you what the impact of the Youtube Partner program is on the revenue of YouTube channel owners:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Video length
 
 One of the most noteworthy characteristics of a YouTube video is its length. A longer video provides a greater amount of information, which means a greater likelihood of the viewer actually watching it to completion.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Ad Quality
 
@@ -381,15 +373,15 @@ A YouTube pay calculator is a simple way to estimate how much money you can make
 
 ![drag the slider to calculate earning](https://images.wondershare.com/filmora/article-images/2022/11/how-does-youtube-pay-you-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fHWdQw1gRyI?si=ve9wZnPupiooLThG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Drag the YouTube Video Views Slider right or left based on your daily video views. It's important to set your Estimated Click-Through Rate based on your channels. All that combined, you can view your monthly estimated earnings potential in seconds.
 
 **2.[YouTube Channel Analytics](https://hypeauditor.com/)**
 
 ![enter youtube channel url](https://images.wondershare.com/filmora/article-images/2022/11/how-does-youtube-pay-you-2.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 This tool only requires your channel URL. Copy and paste the URL and click 'Check.' You'll get a short report of your channel that includes your total subscribers, the last 90 days' progress, and an estimated earning per video.
 
@@ -439,9 +431,17 @@ This Irish YouTube personality has a vlogging and video games channel. This year
 
 David, a viral social media star, has gathered 18.2 million subscribers and over 8 billion views. His combined followers from different social media platforms are over 45 million. David's other business endeavors and social media success explain his worth of $20 million.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 14\. [Anastasia Radzinskaya (AKA Like Nastya)](https://www.youtube.com/channel/UCJplp5SjeGSdVdwsfb9Q7lQ) – $20 million
 
 Nastya is an eight-year-old Russian girl who, in just a few years, has become one of the known children's YouTubers in the world. Nowadays, she has over 110 million subscribers combining her six channels with over 42 billion views. In 2017, she partnered with Yoolato to monetize the content. It was worth it – Radzinskaya is now worth a massive $20 million.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 13\. [Rhett McLaughlin and Link Neal](https://www.youtube.com/c/rhettandlink)– $20 million
 
@@ -450,6 +450,10 @@ They are Best known as the comedy duo Rhett and Link, one of the best comedy cha
 ### 12\. [Lilly Singh](https://www.youtube.com/c/LillySingh) – $20 million
 
 Lilly Singh has comedic sketches featuring other YouTubers and celebrities in her YouTube videos. She released his first YouTube video in 2010, and his comedy sketches have attracted more than 14 million subscribers. Her total worth is $20 million.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 11\. [Preston Arsement](https://www.youtube.com/c/PrestonPlayz) – $20 million
 
@@ -544,10 +548,6 @@ If you're wondering if getting brand sponsorships for Youtube is worth the money
 But brands tend to sponsor only content deemed relevant to the brand. So if you want to be a sponsored content creator, you must get to know your audience first and then build out your social media strategy around the products you sell and the messages you want to communicate.
 
 ## Hot FAQs on YouTube channel monetization
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. What if I don't meet the program threshold?
 
@@ -592,18 +592,21 @@ Your content must be unique so your viewers will want to stick around and engage
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-digital-dominance-the-top-global-youtube-creators/"><u>[New] 2024 Approved Digital Dominance The Top Global YouTube Creators</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-zerocomplicationlivecast-your-simple-pathway-to-livestreaming-a-podcast/"><u>[New] 2024 Approved ZeroComplicationLivecast Your Simple Pathway to Livestreaming a Podcast</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-mastering-canons-timelapse-a-quick-guide/"><u>[New] Mastering Canon's Timelapse A Quick Guide</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-perfectly-suited-8-recommended-tools-for-subtitles-and-srts/"><u>[New] Perfectly Suited 8 Recommended Tools for Subtitles & SRTs</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-making-science-fiction-real-teleportation-effects/"><u>[Updated] 2024 Approved Making Science Fiction Real Teleportation Effects</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-mp4-screen-grabber-free-easy-access/"><u>[Updated] 2024 Approved MP4 Screen Grabber Free, Easy Access</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-enhance-your-channels-image-adding-watermarks-and-logos-to-video-posts/"><u>[Updated] In 2024, Enhance Your Channel's Image Adding Watermarks & Logos to Video Posts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-webs-winners-circle-worlds-most-subscribed-youtubers/"><u>[Updated] In 2024, Web's Winners Circle World's Most Subscribed YouTubers</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/get-ahead-of-the-curve-everything-you-need-to-know-about-apples-series-8-smartwatch-specs-release-timeline-and-price-tag/"><u>Get Ahead of the Curve: Everything You Need to Know About Apple's Series 8 Smartwatch – Specs, Release Timeline & Price Tag</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-perfect-your-asmr-recordings-with-these-mic-choices/"><u>In 2024, Perfect Your ASMR Recordings with These Mic Choices</u></a></li>
-<li><a href="https://win-answers.techidaily.com/launch-unlocked-the-duo-behind-the-success/"><u>Launch Unlocked: The Duo Behind the Success</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ct-cuts-on-demand-top-10-apps-for-youtube-short-edits/"><u>Perfect Cuts on Demand Top 10 Apps for Youtube Short Edits</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/the-ultimate-guide-to-swapping-ps3-hdd-for-more-storage/"><u>The Ultimate Guide to Swapping PS3 HDD for More Storage</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ffordable-subscriber-boost-buy-and-sell-youtube-views/"><u>[New] Affordable Subscriber Boost Buy & Sell YouTube Views</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-cutting-edge-concepts-for-captivating-youtube-video-thumbnails/"><u>[New] In 2024, Cutting-Edge Concepts for Captivating YouTube Video Thumbnails</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-spectacle-of-speed-simulators-top-5/"><u>[New] In 2024, Spectacle of Speed Simulators (Top 5)</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-newest-camstudio-capture-and-review-2023-update-for-2024/"><u>[New] Newest CamStudio Capture & Review 2023 Update for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-profile-pictures-download-for-free/"><u>[New] Profile Pictures - Download for FREE</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ay-goodbye-to-vertical-and-horizontal-bars-in-youtube-movies/"><u>[New] Say Goodbye to Vertical and Horizontal Bars in YouTube Movies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-cultivate-creativity-20plus-inspiring-youtube-concepts/"><u>[Updated] Cultivate Creativity 20+ Inspiring YouTube Concepts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-path-to-profitability-enrolling-in-the-youtube-partner-program/"><u>[Updated] In 2024, Path to Profitability Enrolling in the YouTube Partner Program</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-pinpointing-your-individual-playlist-hub-on-youtube-for-2024/"><u>[Updated] Pinpointing Your Individual Playlist Hub on YouTube for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/avoid-the-last-batch-meltdown-expert-strategies-for-windows-systems-updated-for-2024/"><u>Avoid the Last Batch Meltdown: Expert Strategies for Windows Systems (Updated for 202#4)</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/chatgpt-the-key-to-unlocking-the-door-to-your-perfect-job-position/"><u>ChatGPT: The Key to Unlocking the Door to Your Perfect Job Position</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-libertycam-studio-a-user-friendly-review/"><u>In 2024, LibertyCam Studio A User-Friendly Review</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/instant-impact-applying-motion-blur-to-ai-artwork/"><u>Instant Impact Applying Motion Blur to AI Artwork</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/asters-ideal-dj-videos-to-download-for-2024/"><u>Mix Masters Ideal DJ Videos to Download for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/ultimate-guide-on-nokia-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Nokia FRP Bypass</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/zdnet-reveals-the-future-of-in-car-technology-with-new-features-for-upgraded-apple-carplay-announced-at-wwdc-2024/"><u>ZDNet Reveals the Future of In-Car Technology with New Features for Upgraded Apple CarPlay Announced at WWDC 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: The Ultimate Verdict on Unihertz Atom XL - Small Size, Huge Durability and Performance!
-date: 2025-01-12T06:41:44.056Z
-updated: 2025-01-12T23:37:29.485Z
+date: 2025-01-28T19:28:57.195Z
+updated: 2025-02-03T18:45:40.490Z
 categories:
   - BestProducts
 description: This Article Describes The Ultimate Verdict on Unihertz Atom XL - Small Size, Huge Durability and Performance!
@@ -18,12 +18,16 @@ thumbnail: https://www.lifewire.com/thmb/G_k85uM6rdIn8lEZfqHd0vFtWrE=/400x300/fi
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/F035WaL3U8Q-n4fK2WBE6844lMo=/1000x1000/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
@@ -50,17 +54,9 @@ Lifewire / Emily Isaacs
 
 4.4
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Microsoft Sculpt Ergonomic Keyboard
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/kImh0m4twEbigZ9dAMqYCtAxbnk=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_HeroSquare-518c472b5b5341fe8c0cf05954c8cc94.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Lifewire / Emily Isaacs
 
@@ -88,10 +84,6 @@ Lifewire / Emily Isaacs
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/Cgdvz2K5QV0PheSGAjQNXTdhKP4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_02-e457e23b0c0848dbaad1197549efcc47.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Lifewire / Emily Isaacs
 
  One unique feature of the Sculpt we loved was the function switch. Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key. Options include refreshing the active page, navigating to the home page in web, opening up the computer’s settings, a play/pause button, switching between active windows, and increasing or decreasing volume.
@@ -99,6 +91,10 @@ Lifewire / Emily Isaacs
  Located on the upper-right hand side of the keyboard, this switch allows you to toggle the functionality of the top row keys, replacing the function key.
 
  Often, keyboards include a next track or previous track multimedia feature, which the Sculpt was decidedly lacking. This was a disappointment, but otherwise, the functions are good inclusions and easy to use. If this extra functionality isn't your thing, you simply flip this switch to the gray position and these F1-F12 keys retain their standard functionality.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Setup Process: Batteries required**
 
@@ -118,11 +114,19 @@ Lifewire / Emily Isaacs
 
  One major drawback to the Sculpt’s design is the dongle that associates the keyboard to your PC is one of a kind. This is thanks to the AES 128-bit encryption technology the Sculpt uses to keep your keystrokes safe. Associated to the keyboard at the factory, there simply is no replacing it if it’s lost. While the Sculpt isn’t really travel-friendly due to its size, it would do best in an environment where it’s set up once and stays put so as to prevent losing this important piece of tech.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Price: Great for the features**
 
  Ergonomic keyboards tend to cost anywhere from $50-$200\. Generally retailing for around $90 on Amazon or $129.95 MSRP, the Sculpt sits in the middle. Its features are nice for the price, too. Encrypted keystrokes, wireless technology, a detached numpad, a magnetic riser, and an ergonomic design with a wrist pad for extra comfort makes this keyboard surefire winner in our books.
 
 ![Microsoft Sculpt Ergonomic Keyboard](https://www.lifewire.com/thmb/BarmRhIEQlGkF0UEDLP9peOh3co=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Microsoft_ErgoKeyboards_5LW4147386_05-646724c396184c12836f3f2ce2ced675.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Lifewire / Emily Isaacs
 
@@ -149,10 +153,6 @@ Lifewire / Emily Isaacs
  **A secure, mid-priced wireless keyboard with lots of customization options.**
 
  The Microsoft Sculpt Ergonomic Keyboard is a great mid-priced wireless keyboard with multiple customization options thanks to its detached numpad and magnetic riser. Combined with its AES 128-bit encryption technology, comfortable wrist pad, and handy function switch, it’s a great investment for the price. The intuitive, natural angles it creates will have your hands thanking you later.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -184,19 +184,17 @@ Lifewire / Emily Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-avoiding-youtube-copyright-claims-understanding-the-rules/"><u>[New] 2024 Approved Avoiding YouTube Copyright Claims Understanding the Rules</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-targeted-ads-spreading-awareness-in-the-medical-sphere/"><u>[New] 2024 Approved Targeted Ads Spreading Awareness in the Medical Sphere</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-mastering-color-correction-applying-free-luts-in-obs-productions/"><u>[New] Mastering Color Correction Applying Free LUTs in OBS Productions</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/tep-into-editing-excellence-with-youtube-studio-toolset/"><u>[New] Step Into Editing Excellence with YouTube Studio Toolset</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-laughter-lab-top-7-sketches-and-vignettes-for-youtubers/"><u>[Updated] In 2024, Laughter Lab Top 7 Sketches & Vignettes for YouTubers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ed-in-2024-zany-zooms-a-list-of-10-hilarious-short-youtube-video-scenes/"><u>[Updated] In 2024, Zany Zooms A List of 10 Hilarious, Short YouTube Video Scenes</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-secrets-to-maximizing-youtube-traffic-with-optimized-metadata-for-2024/"><u>[Updated] Secrets to Maximizing YouTube Traffic with Optimized Metadata for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-exploring-the-possibility-of-monthly-youtube-income/"><u>2024 Approved Exploring the Possibility of Monthly YouTube Income</u></a></li>
-<li><a href="https://facebook.techidaily.com/enhance-your-online-anonymity-with-these-7-methods-fb/"><u>Enhance Your Online Anonymity with These 7 Methods (FB)</u></a></li>
-<li><a href="https://win-remarkable.techidaily.com/esegui-il-salvataggio-di-tutti-i-tuoi-contatti-gmail-strategie-superiori-per-una-protezione-affidabile/"><u>Esegui Il Salvataggio Di Tutti I Tuoi Contatti Gmail: Strategie Superiori per Una Protezione Affidabile</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-a-comprehensive-guide-to-icloud-unlock-from-apple-iphone-14-online-by-drfone-ios/"><u>In 2024, A Comprehensive Guide to iCloud Unlock From Apple iPhone 14 Online</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-high-definition-ready-enabling-av1-on-youtube/"><u>In 2024, High Definition Ready Enabling AV1 on YouTube</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-starting-with-hauls-a-step-by-step-editing-manual/"><u>In 2024, Starting with Hauls A Step-by-Step Editing Manual</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ing-off-determining-your-creative-passion/"><u>Starting Off Determining Your Creative Passion</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-navigating-the-seas-of-success-utilizing-social-blade-for-youtube-data/"><u>[New] In 2024, Navigating the Seas of Success Utilizing Social Blade for YouTube Data</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-swift-comment-removal-on-youtube-a-practical-guide/"><u>[New] In 2024, Swift Comment Removal on YouTube A Practical Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-top-ten-entrepreneurial-youtube-outlets-and-tips/"><u>[New] In 2024, Top Ten Entrepreneurial YouTube Outlets & Tips</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-2024-approved-one-source-livestream-perfection-a-streamers-blueprint/"><u>[Updated] 2024 Approved One-Source Livestream Perfection A Streamer's Blueprint</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-becoming-an-illustration-maestro-best-mac-free-tools/"><u>[Updated] In 2024, Becoming an Illustration Maestro - Best Mac Free Tools</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-get-to-know-the-pros-of-engaging-with-asmr/"><u>[Updated] In 2024, Get to Know the Pros of Engaging with ASMR</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-stream-titling-service/"><u>[Updated] In 2024, Stream Titling Service</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-mastering-iphone-photo-blurring-4-techniques-explored/"><u>[Updated] Mastering iPhone Photo Blurring 4 Techniques Explored</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/can-i-recover-permanently-deleted-photos-from-pova-5-pro-by-stellar-photo-recovery-android-mobile-photo-recover/"><u>Can I recover permanently deleted photos from Pova 5 Pro</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/exploring-new-frontiers-in-gaming-top-titles-for-rift-vive-and-playstation-vr-for-2024/"><u>Exploring New Frontiers in Gaming Top Titles for Rift, Vive, and PlayStation VR for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-xiaomi-14-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Xiaomi 14 Phone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlocking-new-communication-safety-how-ios-18-brings-essential-messaging-enhancements-to-iphones-without-relying-on-ai-in-depth-coverage-by-zdnet/"><u>Unlocking New Communication Safety: How iOS 18 Brings Essential Messaging Enhancements to iPhones without Relying on AI | In-Depth Coverage by ZDNet</u></a></li>
 </ul></div>
 

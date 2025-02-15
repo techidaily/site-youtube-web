@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Tailoring Audience for Your Youtube Videos"
-date: 2025-01-19T23:47:14.666Z
-updated: 2025-01-25T00:32:44.544Z
+date: 2025-02-03T02:15:38.496Z
+updated: 2025-02-04T05:34:37.214Z
 tags:
   - ai video
   - ai youtube
@@ -66,7 +66,7 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 ![youtube privacy setting](https://images.wondershare.com/filmora/article-images/youtube-privacy-setting.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Change Privacy Settings
@@ -79,17 +79,21 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 
 ![upload youtube video privacy](https://images.wondershare.com/filmora/article-images/upload-youtube-video-privacy.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Method 2:**
 
  To change the privacy setting later, go to Creator Studio, then Video Manager. On the right-hand side you’ll see one of three icons: a world, a chain, and a lock. The world means **"public"**, the chain means **"unlisted"**, and the lock is for **"private"**.
 
 ![youtube privacy settings](https://images.wondershare.com/filmora/article-images/unlisted-video.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  To change the privacy, click the icon. You’ll be taken to the video's info and settings page. Down below where you see the thumbnails you'll see the selected privacy setting. Click this to open a drop down menu, and select your desired privacy level.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3: Sharing Private Videos
 
@@ -98,11 +102,11 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 ![share youtube privacy video](https://images.wondershare.com/filmora/article-images/share-private-video.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -112,10 +116,6 @@ thumbnail: https://thmb.techidaily.com/f8310fb64fe59131a1a603b74493ef91ec9be3bf9
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fm0XhU5H8R4?si=cFPk6XK3X3CQSI7Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -138,22 +138,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-info.techidaily.com/new-exploring-lgs-27ud68-4k-freesync-tv-reviews/"><u>[New] Exploring LG's 27UD68 4K FreeSync TV Reviews</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-achieving-youtube-live-prominence-with-pro-level-tips/"><u>[New] In 2024, Achieving YouTube Live Prominence with Pro-Level Tips</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/eal-time-engagement-tracker/"><u>[New] Real-Time Engagement Tracker</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-art-of-captivating-viewers-an-experts-guide-to-youtube-banners/"><u>[New] The Art of Captivating Viewers An Expert's Guide to YouTube Banners</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-symphony-of-screens-coordinated-content-consumption-for-2024/"><u>[New] The Symphony of Screens Coordinated Content Consumption for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/outube-clip-maker/"><u>[New] Youtube Clip Maker</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-10-record-screen-and-upload-to-youtube-tools-pc-mac-online-for-2024/"><u>[Updated] 10 Record Screen and Upload to YouTube Tools [PC, Mac, Online] for 2024</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-optimizing-vimeo-media-velocity-for-2024/"><u>[Updated] Optimizing Vimeo Media Velocity for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-thriving-as-an-online-gaming-content-creator/"><u>2024 Approved Thriving as an Online Gaming Content Creator</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/can-chatgpt-and-bard-safely-steer-your-money-moves/"><u>Can ChatGPT and Bard Safely Steer Your Money Moves?</u></a></li>
-<li><a href="https://win-answers.techidaily.com/cold-war-in-the-gaming-world-how-to-launch-cod-black-ops-successfully-on-pc/"><u>Cold War in the Gaming World: How to Launch COD: Black Ops Successfully on PC</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/get-your-hands-on-an-iphone-15-pro-max-at-just-a-penny-unlocking-amazons-steep-discount-strategy-a-detailed-guide/"><u>Get Your Hands on an iPhone 15 Pro Max at Just a Penny: Unlocking Amazon's Steep Discount Strategy - A Detailed Guide!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-depth-analysis-optimizing-sticker-eradication-on-tiktok-for-2024/"><u>In-Depth Analysis Optimizing Sticker Eradication on TikTok for 2024</u></a></li>
-<li><a href="https://win-able.techidaily.com/resolved-how-to-fix-baldurs-gate-3-from-failing-to-open/"><u>Resolved! How to Fix Baldur's Gate 3 From Failing to Open</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/seamlessly-update-your-ryzen-graphics-find-and-download-the-right-drivers-for-model-2600/"><u>Seamlessly Update Your Ryzen Graphics: Find & Download the Right Drivers for Model #2600</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/the-process-to-pinpoint-a-personalized-identifier-for-tiktok/"><u>The Process to Pinpoint a Personalized Identifier for TikTok</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ate-camera-picks-for-aspiring-youtubers/"><u>Ultimate Camera Picks for Aspiring YouTubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/levate-your-content-game-with-these-powerful-youtube-shortcuts-for-2024/"><u>[New] Elevate Your Content Game with These Powerful YouTube Shortcuts for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-innovative-editions-filmmaker-writers-on-windows-for-2024/"><u>[New] Innovative Editions Filmmaker' Writers on WIndows for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/treamlining-success-strategies-for-daily-vlog-authenticity/"><u>[New] Streamlining Success Strategies for Daily Vlog Authenticity</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nleashing-creativity-how-to-make-dynamic-gifs-with-youtube-tracks-pcmobile/"><u>[New] Unleashing Creativity How to Make Dynamic GIFs with YouTube Tracks (PC/Mobile)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-3-part-blueprint-to-monitor-and-maximize-your-youtube-profits-for-2024/"><u>[Updated] 3-Part Blueprint to Monitor and Maximize Your YouTube Profits for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-bypassing-identification-to-explore-instagram-stories-desktop-android-ios-for-2024/"><u>[Updated] Bypassing Identification to Explore Instagram Stories [Desktop, Android, iOS] for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-craft-a-masterpiece-techniques-for-engaging-viral-tiktok-unpacks-for-2024/"><u>[Updated] Craft a Masterpiece Techniques for Engaging, Viral TikTok Unpacks for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unleash-your-creativity-cutting-edge-pc-techniques-for-youtube-success/"><u>[Updated] In 2024, Unleash Your Creativity Cutting-Edge PC Techniques for YouTube Success</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-understanding-and-mastering-google-chromes-pip-functionality/"><u>[Updated] Understanding and Mastering Google Chrome’s PIP Functionality</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-a-deep-dive-into-the-world-of-youtubes-minis/"><u>2024 Approved A Deep Dive Into the World of Youtube's Minis</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-rethinking-streaming-new-platforms-challenge-obs/"><u>2024 Approved Rethinking Streaming New Platforms Challenge OBS</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/crusader-kings-ii-how-to-fix-non-responsive-game-instances/"><u>Crusader Kings II - How to Fix Non-Responsive Game Instances</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/e-your-youtube-preferences-with-these-6-fan-favorite-questionnaires/"><u>Decode Your YouTube Preferences with These 6 Fan-Favorite Questionnaires</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-how-to-promote-youtube-videos-without-paying/"><u>In 2024, How to Promote YouTube Videos (Without Paying)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-step-into-the-world-of-youtube-transcription-a-comprehensive-no-fee-guide/"><u>In 2024, Step Into the World of YouTube Transcription A Comprehensive No-Fee Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-7-phone-number-locators-to-track-vivo-x100-pro-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Phone Number Locators To Track Vivo X100 Pro Location | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-huawei-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Huawei Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/top-rated-business-tablet-unrelated-to-microsoft-and-lenovo-a-comprehensive-review/"><u>Top-Rated Business Tablet Unrelated to Microsoft and Lenovo: A Comprehensive Review</u></a></li>
+<li><a href="https://some-skills.techidaily.com/transforming-spoken-words-into-written-text-using-in-built-tools-of-office-suite-ms-word-for-2024/"><u>Transforming Spoken Words Into Written Text Using In-Built Tools of Office Suite - MS Word for 2024</u></a></li>
 </ul></div>
 

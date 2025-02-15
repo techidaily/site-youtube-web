@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Elevating Your Content's Presence  Perfecting YouTube Thumbnails Size\""
-date: 2025-01-24T09:10:19.269Z
-updated: 2025-01-24T21:16:35.109Z
+date: 2025-01-28T19:21:27.687Z
+updated: 2025-02-03T19:05:25.656Z
 tags:
   - ai video
   - ai youtube
@@ -38,7 +38,7 @@ So you may be wondering what the best **youtube thumbnail size** is, and how to 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Part 1: The Ultimate Guide of Youtube Thumbnail Size**
@@ -61,10 +61,6 @@ The maximum YouTube thumbnail size must be below 2MB. Keeping the limit in mind 
 
 Usually, the 16:9 ratio is deemed an ideal choice for any YouTube video aiming high view volume. As it is most widely used in YouTube players and previews.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: Upload and Change a Custom YouTube Thumbnail
 
 With a verified account, you can upload custom thumbnail on new videos as well as change the thumbnail of uploaded videos.
@@ -81,13 +77,17 @@ YouTube makes it very simple and easy for any content creator to publish custom 
 
 ![set video thumbnail](https://images.wondershare.com/filmora/article-images/video-thumbnail2.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You will be able to see a button right next to the image – **Custom thumbnail**. Click on the button and you can upload a set of images of your choice as the thumbnail of your video.
 * Once done you can see the custom image just uploaded as the thumbnail of your video.
 
 ![custom thumbnail size](https://images.wondershare.com/filmora/article-images/custom-thumbnail3.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * If you want to update the image or change it with another one you can just click on the same image in the video thumbnail section and swap it with any other image.
@@ -108,16 +108,16 @@ To change the thumbnail on an already uploaded video you need to follow these st
 
 ![best thumbnail size](https://images.wondershare.com/filmora/article-images/change-thumbnail6.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3: Q&A-- About YouTube Thumbnail Images
 
 You may want to know:
 
 * [**Question 1:** **How do I make my youtube thumbnail less than 2mb?**](#question1)
 * [**Question 2:** **How can I create an attractive youtube thumbnail?**](#question2)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. How do I make my youtube thumbnail less than 2mb?
 
@@ -127,6 +127,10 @@ YouTube will not allow you to upload a custom thumbnail image if it is bigger th
 * 2\. Now go to the File menu and click **Save as** then select JPEG picture
 * 3\. Select the location you want the file to be saved to
 * 4\. The thumbnail picture will be reduced to Kilobytes only while maintaining the image quality
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. How can I create an attractive youtube thumbnail?
 
@@ -158,10 +162,6 @@ YouTube thumbnail plays an important part for the audience's first impression on
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -183,21 +183,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-2024-approved-replicating-your-best-self-with-finesse-on-tiktok/"><u>[New] 2024 Approved Replicating Your Best Self with Finesse on TikTok</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-deciphering-how-tseries-benefits-from-youtube/"><u>[New] In 2024, Deciphering How TSeries Benefits From YouTube</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-in-2024-removing-obscured-display-issues-in-recording/"><u>[New] In 2024, Removing Obscured Display Issues in Recording</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/new-in-2024-social-scoop-twitters-trending-talks/"><u>[New] In 2024, Social Scoop Twitter’s Trending Talks</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-tackling-social-media-platforms-an-in-depth-look-at-igtv-and-youtube/"><u>[Updated] 2024 Approved Tackling Social Media Platforms An In-Depth Look at IGTV and YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-zero-price-strategies-for-solo-frame-analysis-in-videos/"><u>[Updated] 2024 Approved Zero-Price Strategies for Solo Frame Analysis in Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-from-raw-to-refined-tailoring-youtube-videos-with-premiere-pro-for-2024/"><u>[Updated] From Raw to Refined Tailoring YouTube Videos with Premiere Pro for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-rhythm-revivers-10-androidios-audio-challengers/"><u>[Updated] In 2024, Rhythm Revivers 10 Android/iOS Audio Challengers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-key-metrics-to-track-igtv-video-analytics/"><u>[Updated] Key Metrics to Track IGTV Video Analytics</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-comedic-choreography-producing-funny-mock-films/"><u>2024 Approved Comedic Choreography Producing Funny Mock Films</u></a></li>
-<li><a href="https://extra-support.techidaily.com/2024-approved-learn-iphone-collage-techniques-like-a-pro/"><u>2024 Approved Learn iPhone Collage Techniques Like a Pro</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-guide-top-5-ways-to-record-audio-in-windows-11/"><u>2024 Approved The Ultimate Guide Top 5 Ways to Record Audio in Windows 11</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/guidelines-for-addressing-error-0x800700e1-on-windows-11/"><u>Guidelines for Addressing Error 0X800700E1 on Windows 11</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-realme-12-proplus-5g-mirror-screen-to-pc-drfone-by-drfone-android/"><u>How Realme 12 Pro+ 5G Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/humor-haven-identifying-rising-comedy-icons-in-tiktok-for-2024/"><u>Humor Haven Identifying Rising Comedy Icons in TikTok for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ssential-blueprint-for-inspiring-valorant-video-thumbnails/"><u>The Essential Blueprint for Inspiring Valorant Video Thumbnails</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ptimize-video-views-with-these-top-5-link-shrinkers-for-2024/"><u>[New] Optimize Video Views with These Top 5 Link Shrinkers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/afe-mp4-extraction-from-youtube-videos/"><u>[New] Safe MP4 Extraction From YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-crafting-a-music-career-15-essential-video-tutorials-for-artists/"><u>[Updated] 2024 Approved Crafting a Music Career 15 Essential Video Tutorials for Artists</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-streamlined-approach-upload-your-videos-from-youtube-to-dailymotion/"><u>[Updated] Streamlined Approach Upload Your Videos From YouTube to Dailymotion</u></a></li>
+<li><a href="https://article-files.techidaily.com/15-ways-to-make-most-of-your-podcast-time-for-2024/"><u>15 Ways to Make Most of Your Podcast Time for 2024</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-streamlining-song-selection-for-youtube-playlist-curation/"><u>2024 Approved Streamlining Song Selection for YouTube Playlist Curation</u></a></li>
+<li><a href="https://some-tips.techidaily.com/apple-acquires-mira-startup-to-launch-enterprise-focused-augmented-reality-headsets-tech-news/"><u>Apple Acquires Mira Startup To Launch Enterprise-Focused Augmented Reality Headsets - Tech News</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/effectively-reducing-svchostexes-impact-on-your-system-speed-in-windows-11/"><u>Effectively Reducing svchost.exe's Impact on Your System Speed in Windows 11</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/getting-samsung-m2020-driver-updates-a-step-by-step-guide/"><u>Getting Samsung M2020 Driver Updates: A Step-By-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-ace-your-viewing-experience-onboarding-av1-in-youtube/"><u>In 2024, Ace Your Viewing Experience Onboarding AV1 in YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-creator-payment-frequency-on-youtube-platform/"><u>In 2024, Creator Payment Frequency on YouTube Platform</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-vivo-x100-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Vivo X100? | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/resolved-fixes-for-arcadegeddons-persistent-pc-malfunctions/"><u>Resolved: Fixes for Arcadegeddon's Persistent PC Malfunctions</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/troubleshooting-common-dying-light-lagging-challenges-for-smooth-gaming/"><u>Troubleshooting Common Dying Light Lagging Challenges for Smooth Gaming</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/yitian-710-by-alibaba-shatters-records-as-the-most-rapid-server-processor-powering-cloud-infrastructures/"><u>Yitian 710 by Alibaba Shatters Records as the Most Rapid Server Processor Powering Cloud Infrastructures</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Say No to YouTube Shorts Forever  Your Guide for 2024\""
-date: 2025-01-23T04:41:52.655Z
-updated: 2025-01-25T08:15:03.675Z
+date: 2025-01-30T01:22:24.548Z
+updated: 2025-02-03T20:10:38.299Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ Now, as you have reached this section, you should be curious, what are the steps
 You can choose either of them as per your suitability or the one which best suits you. Some of these methods are pretty easy to follow, or you might need to follow some steps for some. But the main essence is, following any method will show how to remove shorts from YouTube. So, now go with the methods one by one and follow the guidelines to remove shorts from YouTube.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 1: Three dots option
@@ -61,7 +61,15 @@ One of the primary things you can do with any short videos is to click on the th
 
 ![not intereted to ban youtube shorts](https://images.wondershare.com/filmora/disable-youtube-shorts-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Here, no doubt the method is simple, but this method needs repetitiveness. As, whenever you see Shorts videos, you need to click on three dots to remove that.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Method 2: Settings menu of YouTube
 
@@ -70,10 +78,6 @@ At your YouTube homepage at the top end, you will see the profile icon. If you c
 From there, you need to select “General”, which will show up some options. Here, click on the Shorts option to turn it off.
 
 ![turn of youtube shorts](https://images.wondershare.com/filmora/article-images/2023/04/turn-off-youtube-shorts.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 This way, by simply following and managing settings, you can easily disable YouTube shorts from the platform.
 
@@ -103,6 +107,10 @@ When you click on the **Uninstall** option, the YouTube version will get downgra
 
 Also, if you have not updated your YouTube app, then don’t go with that. However, you will receive notifications many times that you should update your application. Just ignore it, especially if you are not willing to add the Shorts video option on your YouTube application.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Method 5: Link to downgrade the YouTube
 
 Friends, for every problem, there exists some solution. And, if you are finding it difficult to factory reset the YouTube, you can download the downgraded version of YouTube. This is the version that does not contain the YouTube Shorts feature. Do like this:
@@ -121,12 +129,16 @@ Get started easily with Filmora's powerful performance, intuitive interface, and
 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg) ](https://app.adjust.com/w06dr6m%5F19za1f6)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![filmora box](https://images.wondershare.com/filmora/banner/filmora-latest-product-box-right-side.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Method 6: Removing all update
@@ -137,15 +149,7 @@ On your smartphone, open the **Settings** \> **Apps** or **Manage Apps** option 
 
 ![filmora](https://images.wondershare.com/filmora/disable-youtube-shorts-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Using this method, you can remove shorts easily from YouTube. And, it is not going to take much amount of time. So, go and follow the steps.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Method 7: Try YouTube Vanced
 
@@ -169,6 +173,10 @@ Once you have launched the application, under the settings, you need to go for t
 
 ![filmora](https://images.wondershare.com/filmora/disable-youtube-shorts-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Doing so will disable the YouTube Shorts option from the **Home** screen.
 
 Alternatively, remove the **YouTube Shorts** button also from the screen. Under the “Vanced settings” > Visit **Layout settings** \> Switch on the **Comments location** option. That will further remove the Shorts button from the bottom end of the Home screen of the YouTube page.
@@ -180,10 +188,6 @@ Voila, now you can say that you get rid of those shorts videos by removing short
 Thus, following the methods mentioned above gives you multiple ways to turn off shorts on YouTube. I hope that now you will be able to use YouTube without any concern or interference of YouTube Shorts videos.
 
 ![filmora logo](https://neveragain.allstatics.com/2019/assets/icon/logo/filmora-horizontal.svg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A cross-platform for making videos anywhere for all creators
 
@@ -207,7 +211,7 @@ Thus, following the methods mentioned above gives you multiple ways to turn off 
 ![filmora12](https://images.wondershare.com/filmora/12-filmora/img/filmora12-01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -219,10 +223,6 @@ Thus, keeping that issue in mind, this article assisted with both the ways to tu
 So, friends, let’s not wait for anymore. Scroll up the article and get a detailed steps-wise guide and get a good grab of the process. So that your concern will get resolved, and soon you will be able to access the platform with the last look.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KF793jv1LIc?si=fJOogQJ2f8JUfTzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -245,18 +245,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/024-approved-top-10-online-yogis-for-peak-physique-and-harmony/"><u>[New] 2024 Approved Top 10 Online Yogis for Peak Physique and Harmony</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-unlocking-potential-creating-compelling-content-on-your-phone/"><u>[New] 2024 Approved Unlocking Potential Creating Compelling Content on Your Phone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/024-approved-vlogging-vs-micro-video-which-outperforms-youtubes-shorts-or-tiktoks/"><u>[New] 2024 Approved Vlogging Vs. Micro-Video Which Outperforms? YouTubes Shorts or TikToks?</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-elevate-photo-fidelity-larger-not-lesser/"><u>[Updated] Elevate Photo Fidelity - Larger, Not Lesser</u></a></li>
-<li><a href="https://article-helps.techidaily.com/2024-approved-soundscapes-of-apple-in-the-realm-of-vids/"><u>2024 Approved Soundscapes of Apple in the Realm of Vids</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-vivo-v30-pro-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On Vivo V30 Pro? | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/20880876-how-to-embed-a-youtube-playlist-on-a-website-for-2024/"><u>How to Embed A YouTube Playlist On a Website for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-samsung-galaxy-z-fold-5-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Samsung Galaxy Z Fold 5? | Dr.fone</u></a></li>
-<li><a href="https://article-files.techidaily.com/in-2024-top-10-heavy-lift-drones/"><u>In 2024, Top 10 Heavy Lift Drones</u></a></li>
-<li><a href="https://win-blog.techidaily.com/resolving-startup-difficulties-in-red-dead-redemption-2-expert-tips-and-tricks/"><u>Resolving Startup Difficulties in Red Dead Redemption 2: Expert Tips and Tricks</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/the-ultimate-guide-to-fluent-socializing-across-latam-languages/"><u>The Ultimate Guide to Fluent Socializing Across LatAm Languages</u></a></li>
-<li><a href="https://some-tips.techidaily.com/transforming-patient-experiences-with-apples-cutting-edge-vision-pro-applications-in-modern-medicine-zdnet-insight/"><u>Transforming Patient Experiences with Apple's Cutting-Edge Vision Pro Applications in Modern Medicine - ZDNet Insight</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-pro-editing-techniques-l-cuts-and-j-cuts-in-fcpx-made-easy/"><u>Updated In 2024, Pro Editing Techniques L-Cuts and J-Cuts in FCPX Made Easy</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-uncovering-8-honestly-backed-promotion-services/"><u>[New] In 2024, Uncovering 8 Honestly Backed Promotion Services</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-best-of-breed-capture-card-for-switch/"><u>[Updated] Best of Breed Capture Card for Switch</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-jumpstart-your-channelstopwatch-seeking-viewers-with-these-youtube-seo-essentials/"><u>[Updated] In 2024, Jumpstart Your Channel’stopwatch-Seeking Viewers with These YouTube SEO Essentials.</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-tickling-titles-top-10-comedy-centric-youtube-short-ideas/"><u>[Updated] In 2024, Tickling Titles Top 10 Comedy-Centric YouTube Short Ideas</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-pros-playbook-mastering-gameplay-logging-in-windows-10-for-2024/"><u>[Updated] Pro's Playbook Mastering Gameplay Logging in Windows 10 for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-top-bargain-video-snippets-grab-youtube-images-without-cost-in-2024/"><u>[Updated] Top Bargain Video Snippets - Grab YouTube Images Without Cost, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elevating-brand-awareness-with-tailored-engaging-youtube-banners/"><u>2024 Approved Elevating Brand Awareness with Tailored, Engaging YouTube Banners</u></a></li>
+<li><a href="https://fox-http.techidaily.com/2024-approved-unlimited-picture-pools-the-best-10-resources/"><u>2024 Approved Unlimited Picture Pools The Best 10 Resources</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/a-comprehensive-analysis-whatsapps-vocal-communication-for-2024/"><u>A Comprehensive Analysis WhatsApp’s Vocal Communication for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/founders-edition-vs-aib-which-gpu-model-is-right-for-you/"><u>Founders Edition Vs. AIB: Which GPU Model Is Right for You?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/icgenius-suite-for-2024/"><u>GraphicGenius Suite for 2024</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-nvidia-g-sync-ensures-your-games-are-picture-perfect/"><u>How Nvidia G-Sync Ensures Your Games Are Picture Perfect</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726029922176-mp4/"><u>MP4フォーマットでビデオが再生されない場合、パソコン専用対策ガイド</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-oppo-k11x-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Oppo K11x Android SIM Unlock APK</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/en-youtube-regulations-to-abide-by-for-2024/"><u>Top Ten YouTube Regulations to Abide By for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/video-stability-tips-for-all-devices-windows-mac-android-and-ios-users/"><u>Video Stability Tips for All Devices - Windows, Mac, Android & iOS Users</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-premium-subscription-should-you-get-one-for-2024/"><u>YouTube Premium Subscription - Should You Get One for 2024</u></a></li>
 </ul></div>
 

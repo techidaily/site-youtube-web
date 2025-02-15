@@ -1,7 +1,7 @@
 ---
 title: "\"Youtube's Exclusive Club  Festivities After VidCon\""
-date: 2025-01-18T07:41:28.461Z
-updated: 2025-01-25T01:03:42.634Z
+date: 2025-01-31T20:23:07.385Z
+updated: 2025-02-03T18:30:47.717Z
 tags:
   - ai video
   - ai youtube
@@ -36,6 +36,10 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **The Most Important YouTube Events**
 
 Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video editing software for all creators.
@@ -43,7 +47,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://download.wondershare.com/filmora9-mac%5Ffull718.zip)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### 1. **[VidCon](http://vidcon.com/)**
@@ -57,7 +61,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
@@ -87,10 +91,6 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -126,6 +126,10 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -149,10 +153,6 @@ The final type of pass, the **Two-Day Beauty Insider** ($1999) pass, has everyth
 These events are customized to the wherever festival is visiting, so you’re always sure to see the big and rising YouTube stars from your region. Generally, these events include performances and activities as well as a Meet & Greet.
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
@@ -205,7 +205,7 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
@@ -253,19 +253,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-launching-a-successful-vlog-a-guide-to-profitability/"><u>[New] In 2024, Launching a Successful Vlog A Guide to Profitability</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-mastering-the-art-of-zip-to-srt-conversion/"><u>[Updated] 2024 Approved Mastering the Art of Zip to Srt Conversion</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-ultimate-guide-to-the-best-10-video-saving-devices/"><u>[Updated] 2024 Approved Ultimate Guide to the Best 10 Video Saving Devices</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-free-youtube-earning-predictors-for-2024/"><u>[Updated] Free YouTube Earning Predictors for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-enhancing-instagram-presence-with-picture-borders/"><u>[Updated] In 2024, Enhancing Instagram Presence with Picture Borders</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-step-by-step-for-quick-chromakey-application/"><u>[Updated] In 2024, Step-by-Step for Quick Chromakey Application</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ultimate-videographers-accessory-list-the-top-9-essentials/"><u>[Updated] In 2024, The Ultimate Videographer’s Accessory List - The Top 9 Essentials</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-skyrocket-to-fame-with-these-30-innovative-tiktok-nicknames-for-2024/"><u>[Updated] Skyrocket to Fame with These 30 Innovative TikTok Nicknames for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-unpacking-audafreewares-audio-retrieval-capabilities/"><u>[Updated] Unpacking AudaFreeware's Audio Retrieval Capabilities</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-navigating-whatsapps-vocal-messaging-system/"><u>2024 Approved Navigating WhatsApp's Vocal Messaging System</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/2024-approved-vidtap-chatcam-sniper-app/"><u>2024 Approved VidTap - ChatCam Sniper App</u></a></li>
-<li><a href="https://win-best.techidaily.com/ejecucion-simple-de-la-sincronizacion-automatica-de-archivos-en-windows-11-y-versiones-anteriores/"><u>Ejecución Simple De La Sincronización Automática De Archivos en Windows 11 Y Versiones Anteriores</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-historical-highlights-topping-the-list-of-learning-yt-sources/"><u>In 2024, Historical Highlights Topping the List of Learning YT Sources</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-make-every-sound-count-comprehensive-guide-to-free-youtube-video-transcriptions/"><u>In 2024, Make Every Sound Count Comprehensive Guide to Free YouTube Video Transcriptions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-behind-the-scenes-how-to-master-voice-manipulation-with-free-tools/"><u>[New] Behind the Scenes How to Master Voice Manipulation with Free Tools</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-best-windows-video-calls-the-top-8-list/"><u>[New] Best Windows Video Calls The Top 8 List</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eciphering-digital-domination-a-deep-dive-into-directors-videos-for-2024/"><u>[New] Deciphering Digital Domination A Deep Dive Into Directors' Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ain-command-over-youtubes-video-playback-speed-for-2024/"><u>[New] Gain Command Over YouTube's Video Playback Speed for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-6-must-visit-destinations-for-top-notch-youtube-branding-elements/"><u>[New] In 2024, 6 Must-Visit Destinations For Top-Notch YouTube Branding Elements</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-boost-traffic-to-your-videos-top-seo-practices-for-youtube-success/"><u>[New] In 2024, Boost Traffic to Your Videos Top SEO Practices for YouTube Success</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-the-art-of-beats-pure-dj-visuals-available-online/"><u>[New] In 2024, The Art of Beats Pure DJ Visuals Available Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-art-of-acoustic-capture-secrets-to-high-end-home-recordings-for-2024/"><u>[New] The Art of Acoustic Capture Secrets to High-End Home Recordings for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-the-step-by-step-guide-to-obs-streaming-success-for-2024/"><u>[New] The Step-by-Step Guide to OBS Streaming Success for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-elevate-your-content-game-with-these-5-proven-youtube-marketing-hacks/"><u>[Updated] Elevate Your Content Game with These 5 Proven YouTube Marketing Hacks</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-effortless-post-scheduling-our-list-of-top-8-apps-iosandroid-compatible/"><u>[Updated] In 2024, Effortless Post Scheduling Our List of Top 8 Apps, iOS/Android-Compatible</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-from-screen-to-share-mastering-youtubes-thumbnail-artistry/"><u>[Updated] In 2024, From Screen to Share Mastering YouTubes' Thumbnail Artistry</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/updated-sticker-savvy-on-discord-platform/"><u>[Updated] Sticker Savvy on Discord Platform</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-legal-download-how-to-safely-transfer-youtube-to-mp4/"><u>In 2024, Legal Download How to Safely Transfer YouTube to MP4</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-top-8-youtube-ranks-tracker-essentials-guide/"><u>In 2024, Top 8 YouTube Ranks Tracker Essentials Guide</u></a></li>
+<li><a href="https://some-tips.techidaily.com/inside-look-the-unexpected-appeal-of-apples-vision-pro-explained-by-retail-staff/"><u>Inside Look: The Unexpected Appeal of Apple's Vision Pro Explained by Retail Staff</u></a></li>
+<li><a href="https://discover-bytes.techidaily.com/konnte-ihr-upgrade-von-windows-7-32-bit-zu-windows-7-64-bit-erfolgreich-abschliessen-ohne-dass-dabei-daten-verloren-gegangen-sind/"><u>Konnte Ihr Upgrade Von Windows 7 (32-Bit) Zu Windows 7 (64-Bit) Erfolgreich Abschließen, Ohne Dass Dabei Daten Verloren Gegangen Sind?</u></a></li>
+<li><a href="https://facebook.techidaily.com/legal-battle-trump-vs-social-media-over-free-expression/"><u>Legal Battle: Trump Vs. Social Media Over Free Expression</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Honor Magic V2 | Dr.fone</u></a></li>
 </ul></div>
 

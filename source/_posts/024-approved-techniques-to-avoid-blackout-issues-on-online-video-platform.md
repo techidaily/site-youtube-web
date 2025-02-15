@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Techniques to Avoid Blackout Issues on Online Video Platform\""
-date: 2024-07-29T13:42:24.735Z
-updated: 2024-07-30T13:42:24.735Z
+date: 2025-02-02T05:53:52.974Z
+updated: 2025-02-04T02:38:07.210Z
 tags:
   - ai video
   - ai youtube
@@ -21,8 +21,9 @@ There might be some instances where when you try to play a clip on one of the mo
 That said, the following sections discuss some of the common causes of **YouTube video black screen**, and explain how you can fix the issue easily with merely a few simple mouse clicks. Here, you will also learn how to resolve the problem if it occurs on your smartphone.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Best Video Editor for YouTubers: Wondershare Filmora
 
 Filmora is one of the most popular video editing software among YouTubers, whether you’re creating gameplay, education, travel videos, or other types of videos, you will find Filmora perfectly meets your needs. You can create the YouTube video at the correct aspect ratio to [remove the black bar](https://tools.techidaily.com/wondershare/filmora/download/), record the screen, webcam, and voiceover at the same time, edit as you like.
@@ -59,9 +60,6 @@ Every time you visit a website, its DNS (Domain Name System) record is automatic
 
 As it is with Windows itself, even the graphic card driver must be updated regularly to maintain your PC’s health. If an updated version of the display driver is not installed on your Windows computer, you may experience **YouTube black screen**.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
-<!-- affiliate ads end -->
 ## Part 2: How to Fix YouTube Video Black Screen \[\*Quick Way\]
 
 Depending on the root cause of the issue, the solutions to fix the **YouTube video black screen** issue may differ. Nevertheless, some of the most effective remedies are discussed below in detail:
@@ -92,17 +90,15 @@ Sometimes even the web browser history and caches can also prevent a YouTube vid
 
 After launching the web browser (Google Chrome is used here for example), go to the **Customize and control Google Chrome** menu, and then go to **More tools**, and then select **Clear browsing data**.
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![clear google chrome cache](https://images.wondershare.com/filmora/article-images/clear-google-chrome-cache.jpg)
 
 Switch between the **Basic** and **Advanced** tabs on the **Clear browsing data** box to choose the records that you want to delete, and then choose your preferred duration of the records from the **Time range** drop-down list.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![clear google chrome browsing data](https://images.wondershare.com/filmora/article-images/clear-browsing-data-chrome.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Click **Clear data** from the bottom-right corner to clear browsing caches.
 
@@ -115,6 +111,10 @@ Launch Google Chrome and go to the **Customize and control Google Chrome** menu,
 Turn off the switch for each of the installed extensions to check if the issue is fixed.
 
 ![disable google chrome extension](https://images.wondershare.com/filmora/article-images/disable-google-chrome-extensions.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Note:** If this solution works, you can try enabling the extensions one at a time, and check turning on which one causes **YouTube video black screen**. Once the culprit extension is found, you can click **Remove** to get rid of it altogether.
 
@@ -129,6 +129,10 @@ If the video is visible on a different web browser, probably the default one tha
 • Click to select the browser from the list of installed apps (Google Chrome here) and select **Uninstall** from above the list.
 
 • Follow the on-screen instructions from there to remove the web browser from your PC. Next, use Microsoft Edge (or any other browser) to download and install a fresh copy of Google Chrome and see if the issue is fixed
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 2\. ISP or Internet Speed Solution(s)
 
@@ -154,23 +158,6 @@ Type **CMD** in the **Cortana** search box, and click **Run as administrator** f
 
 Click **Yes** on the **User Account Control** confirmation box, and in the **Command Prompt** window, type **IPCONFIG /FLUSHDNS** and press Enter
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4693127&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.videosoftdev.com/images/video_editor/screenshots/1.jpg" border="0">
-VSDC Pro Video Editor is a light professional non-linear video editing suite for creating a movie of any complexity. It supports the most popular video/audio formats and codecs, including 4K, HD and GoPro videos. Preconfigured profiles make the creation of videos for various multimedia and mobile devices absolutely hassle-free.
-
-Key features:
-
-•	Import from any devices and cams, including GoPro and drones. All formats supported. Сurrently the only free video editor that allows users to export in a new H265/HEVC codec, something essential for those working with 4K and HD.
-•	Everything for hassle-free basic editing: cut, crop and merge files, add titles and favorite music
-•	Visual effects, advanced color correction and trendy Instagram-like filters   
-•	All multimedia processing done from one app: video editing capabilities reinforced by  a video converter, a screen capture, a video capture, a disc burner and a YouTube uploader
-•	Non-linear editing: edit several files with simultaneously 
-•	Easy export to social networks: special profiles for YouTube, Facebook, Vimeo, Twitter and Instagram
-•	High quality export – no conversion quality loss, double export speed even of HD files due to hardware acceleration
-•	Stabilization tool will turn shaky or jittery footage into a more stable video automatically. 
-•	Essential toolset for professional video editing: blending modes, Mask tool, advanced multiple-color Chroma Key  
-</a>
-<!-- affiliate ads end -->
 ![use command to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/use-command-to-fix-youtube-black-screen.jpg)
 
 Try opening the YouTube video again and see if the issue is fixed
@@ -183,18 +170,12 @@ Right-click **Start** and go to **Device Manager** from the context menu
 
 Expand the **Display adapters** tree on the **Device Manager** snap-in, and right-click the graphics card from the list and select **Update driver** from the context menu.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![upgrade graphic card to fix YouTube black screen](https://images.wondershare.com/filmora/article-images/upgrade-graphic-card-to-fix-youtube-video-black-screen.jpg)
 
 Click **Search automatically for drivers** from the next screen that appears and follow the on-screen instructions from there to update the graphic card driver.
 
 **Note:** If your PC has multiple graphic cards installed in it, you will have to follow this procedure for each of them individually.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726807&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ## Part 3: How to Troubleshoot YouTube Black Screen on Mobile?
 
 If you wish to watch online videos on your smartphone, but experience **YouTube video black screen**, the process of fixing the issue on the phones is comparatively simple. The steps that are given below explain the procedure:
@@ -208,6 +189,10 @@ Go to **Settings** and then tap **Apps** from the **Settings** Go to YouTube and
 Tap it and then select **Clear data and Clear cache**. Relaunch YouTube and see if the issue is fixed.
 
 ![fix YouTube black screen on Android](https://images.wondershare.com/filmora/article-images/fix-youtube-video-black-screen-android.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to Troubleshoot YouTube Black Screen On iOS
 
@@ -223,14 +208,11 @@ Go to **App Store** and download and install a fresh copy of YouTube, and see if
 
 There could be several reasons for **YouTube black screen**, and depending on the root cause of the issue, the troubleshooting methods may vary. While some inconsistencies can be fixed from within the web browser itself, at times you may need to tweak your operating system to get an accurate solution. Likewise, while using an Android smartphone, you can clear YouTube data and cache; and remove and reinstall the app altogether when on an iOS device.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -239,4 +221,26 @@ There could be several reasons for **YouTube black screen**, and depending on th
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ringing-your-video-games-to-life-customizable-channel-headers-for-2024/"><u>[New] Bringing Your Video Games to Life Customizable Channel Headers for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/arning-through-online-beauty-networks/"><u>[New] Earning Through Online Beauty Networks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-innovative-filmmaking-tools-best-lenses-for-content-makers/"><u>[New] In 2024, Innovative Filmmaking Tools Best Lenses for Content Makers</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-live-links-debate-is-software-superior-to-gear/"><u>[Updated] 2024 Approved Live Links Debate Is Software Superior to Gear?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-smartphone-browser-showdown-youtube-app-analysis/"><u>[Updated] 2024 Approved Smartphone Browser Showdown YouTube App Analysis</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-selecting-the-right-gear-a-filmmakers-checklist/"><u>[Updated] Selecting the Right Gear A Filmmaker's Checklist</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-exclusive-access-to-premium-playlists-on-mobile-devices/"><u>2024 Approved Exclusive Access to Premium Playlists on Mobile Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-gastronomy-gurus-essential-chefs-to-subscribe-to/"><u>2024 Approved Gastronomy Gurus Essential Chefs to Subscribe To</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ng-elegance-into-news-summations/"><u>Editing Elegance Into News Summations</u></a></li>
+<li><a href="https://windows11.techidaily.com/guide-restore-functional-drag-and-drop-in-windows-11/"><u>Guide: Restore Functional Drag-and-Drop in Windows 11</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-vivo-y78t-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Vivo Y78t without App | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-assessing-the-usefulness-of-instas-verified-posts/"><u>In 2024, Assessing the Usefulness of Insta’s Verified Posts</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/invisible-insights-into-instagram-story-viewing-for-2024/"><u>Invisible Insights Into Instagram Story Viewing for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/professional-gamers-guide-logistics-and-download-the-logitech-g-pro-gamepad-for-windows-users/"><u>Professional Gamers Guide: [Logistics & Download] The Logitech G Pro Gamepad for Windows Users</u></a></li>
+<li><a href="https://win-able.techidaily.com/stability-strategies-for-players-overcoming-crashes-in-age-of-empires-iv-pc-edition/"><u>Stability Strategies for Players: Overcoming Crashes in Age of Empires IV PC Edition</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/step-by-step-guide-to-360-videos-with-ios-for-2024/"><u>Step-by-Step Guide to 360 Videos with iOS for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-steam-deck-compatible-sd-cards-for-enhanced-gaming-performance-in-2e24/"><u>Top-Rated Steam Deck Compatible SD Cards for Enhanced Gaming Performance in 2E24</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ched-download-experience-with-our-top-tools-list-for-2024/"><u>Unmatched Download Experience with Our Top Tools List for 2024</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-fcp-essentials-creating-engaging-picture-in-picture-effects-for-your-videos-for-2024/"><u>Updated FCP Essentials Creating Engaging Picture-in-Picture Effects for Your Videos for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] DIY YouTube Thumbnails Made Simple for 2024"
-date: 2025-01-24T07:10:49.211Z
-updated: 2025-01-24T22:14:15.315Z
+date: 2025-02-02T06:16:12.936Z
+updated: 2025-02-04T02:37:06.093Z
 tags:
   - ai video
   - ai youtube
@@ -43,17 +43,9 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
 ![ai-portrait-thumbnail-step2](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step2.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 03:** Change the Aspect Ratio to 16:9 if it is not set to it already. 16:9 aspect ratio is the standard size of Youtube thumbnails that represents the best possible results.
 
@@ -67,10 +59,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step5](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step5.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/793ViIxl4tI?si=DDBkjPlPX5bZ-f1Y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 06:** Import your video the same way into the media folder of Filmora and drag it into the timeline and place it above your background.
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
@@ -79,21 +67,33 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
 ![ai-portrait-thumbnail-step8](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step8.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 09:** To make a thumbnail for your Youtube, we have to remove the background of your footage first. To do that we have to apply Human Segmentation to the footage first. It will separate the human from the footage. Drag and drop the Human Segmentation effect into the footage in the timeline. Once you drop it into the footage, it will ask you to purchase this feature to export the footage. Since we are not trying to export the footage, we are only creating a thumbnail, click on "Try It". Once the background is removed, you can add other effects as well. Drag and drop the "Human Border" into the footage. It creates an outline around the human in your footage.
 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
@@ -104,7 +104,7 @@ With time, Filmora brings new and advanced features for its users to equip them 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Conclusion
@@ -138,20 +138,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-enhancing-video-reach-tactics-against-bot-visitors/"><u>[New] 2024 Approved Enhancing Video Reach Tactics Against Bot Visitors</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-from-average-to-spectacular-mastering-dynamic-range-portraits/"><u>[New] 2024 Approved From Average to Spectacular Mastering Dynamic Range Portraits</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/rom-youtube-watch-parties-to-home-auditory-archives/"><u>[New] From YouTube Watch Parties to Home Auditory Archives</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-quick-guide-to-free-youtube-closure-creation/"><u>[New] In 2024, Quick Guide to Free YouTube Closure Creation</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/new-size-matters-crafting-engaging-video-titles/"><u>[New] Size Matters Crafting Engaging Video Titles</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-beginners-guide-adding-text-overlays-on-youtube/"><u>[Updated] 2024 Approved Beginner's Guide Adding Text Overlays on YouTube</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-social-media-self-proofing-deciphering-ig-identity-for-2024/"><u>[Updated] Social Media Self-Proofing Deciphering IG Identity for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-step-by-step-procedures-for-producing-high-quality-asmr-videos-for-2024/"><u>[Updated] Step-by-Step Procedures for Producing High-Quality ASMR Videos for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-master-your-channel-identity-with-smart-naming/"><u>2024 Approved Master Your Channel Identity with Smart Naming</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-revolutionary-mac-screenshot-tools-a-five-step-guide/"><u>2024 Approved Revolutionary Mac Screenshot Tools A Five-Step Guide</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/battle-of-the-brains-the-top-8-distinctions-between-snapchat-and-microsofts-bing-chat-on-skype/"><u>Battle of the Brains: The Top 8 Distinctions Between Snapchat and Microsoft's Bing Chat on Skype</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/el-expansion-at-wallet-friendly-costs-for-2024/"><u>Channel Expansion at Wallet-Friendly Costs for 2024</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/enhance-footage-with-our-top-10-video-zoom-edits/"><u>Enhance Footage with Our Top 10 Video Zoom Edits</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-remove-screen-lock-pin-on-oppo-a78-like-a-pro-5-easy-ways-by-drfone-android/"><u>In 2024, How To Remove Screen Lock PIN On Oppo A78 Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-optimizing-income-a-trifecta-methodology-for-youtube-earnings-assessment/"><u>In 2024, Optimizing Income A Trifecta Methodology for YouTube Earnings Assessment</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/utomate-playlist-retrieval-from-youtube-directly-for-2024/"><u>[New] Automate Playlist Retrieval From YouTube Directly for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/onnect-with-creators-unravel-your-youtube-subscriber-type-with-6-exciting-questionnaires/"><u>[New] Connect With Creators Unravel Your YouTube Subscriber Type with 6 Exciting Questionnaires</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-the-artistic-science-behind-youtube-live-imagery/"><u>[New] In 2024, The Artistic Science Behind YouTube Live Imagery</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-pixels-perfection-elevate-your-picture-crafting/"><u>[New] Pixels Perfection Elevate Your Picture Crafting</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/op-tips-understanding-asmr-recordings-for-2024/"><u>[New] Top Tips Understanding ASMR Recordings for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-hot-takes-dailys-most-popular-video-tracks/"><u>[Updated] In 2024, Hot Takes Daily's Most Popular Video Tracks</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-elevate-views-with-optimal-youtube-thumbnails-and-ratios/"><u>2024 Approved Elevate Views with Optimal YouTube Thumbnails & Ratios</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unleashing-potential-career-exploration-in-design/"><u>2024 Approved Unleashing Potential Career Exploration in Design</u></a></li>
+<li><a href="https://driver-download.techidaily.com/easy-guide-to-download-and-install-the-epson-xp-400-printer-software/"><u>Easy Guide to Download and Install the Epson XP 400 Printer Software</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-high-dynamic-range-the-essential-guide-to-modern-camera-tech/"><u>In 2024, High Dynamic Range The Essential Guide to Modern Camera Tech</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-reset-your-xiaomi-redmi-note-13-5g-lock-screen-password-by-drfone-android/"><u>In 2024, How to Reset your Xiaomi Redmi Note 13 5G Lock Screen Password</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-strategies-to-maximize-mobile-income-from-youtube/"><u>In 2024, Strategies to Maximize Mobile Income From YouTube</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unseen-yet-seen-how-to-conceal-faces-and-objects-digitally/"><u>In 2024, Unseen Yet Seen How to Conceal Faces and Objects Digitally</u></a></li>
+<li><a href="https://discover-comparisons.techidaily.com/one-time-tutorial-complete-guide-on-windows-10-guid-partition-rescue/"><u>One-Time Tutorial: Complete Guide on Windows 10 GUID Partition Rescue</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/troubleshooting-your-android-phones-black-display-dilemma/"><u>Troubleshooting Your Android Phone's Black Display Dilemma</u></a></li>
 </ul></div>
 
