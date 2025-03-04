@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Personalized Video Setups  A Beginner's Guide to Selfies on YouTube\""
-date: 2024-08-15T22:21:52.538Z
-updated: 2024-08-16T22:21:52.538Z
+date: 2025-02-27T21:17:51.452Z
+updated: 2025-03-04T19:19:15.072Z
 tags:
   - ai video
   - ai youtube
@@ -37,23 +37,8 @@ We’ve summarized the key points about setting up talking head style video shot
 
 ![Setting up Talking Heads Video Shots for YouTube](https://images.wondershare.com/filmora/article-images/talking-heads-youtube-video-shots-set-up.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1993650">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## How to Set Up Your Talking-Head Shots for YouTube \[4 Ways\]
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 ### 1.  Close Quarters Wide-Angle Vlog Set-Up
 
 Don’t have a lot of space to set up your camera and lighting equipment? No problem! You can be within an arm’s length away from your camera with a close quarters wide-angle vlog set-up.
@@ -68,9 +53,6 @@ Objects and people that just make it into the sides of the frame will appear mor
 
 If you look closely into Sean’s eyes, you can also see a specular highlight in the shape of a circle. Many people like the way eyes look against a ring light.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->
 ### 2.  Medium Vlog Set-Up
 
 If you have more space and want to shoot a more professional-looking talking-head shot with more realistic perspectives, a medium vlog set-up may be a better alternative for you.
@@ -109,22 +91,13 @@ It is difficult to know whether the movement in his eyes is caused by not being 
 
 Looking to find the right lights for your video recording set? Check out our [Top 17 Video Lighting Equipment For YouTubers](https://www.filmora.io/community-blog/top-17-video-lighting-equipment-for-youtubers-440.html).
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Tips for Making a Talking Head Video Better
 
 To make a talking-head video more interesting, you can add some background music to the video, apply some interesting texts or elements. [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) has built-in royalty-free music tracks and sound effects as well as [text templates](https://tools.techidaily.com/wondershare/filmora/download/), filters and motivating elements. Download the free trial version below and release your creativity.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -132,14 +105,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -148,6 +118,19 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-tech-bites-the-future-of-screen-capture-apps/"><u>[New] 2024 Approved Tech Bites The Future of Screen Capture Apps</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-savvy-scribblers-selection-the-top-compiler-of-twitter-animation/"><u>[New] In 2024, Savvy Scribbler's Selection - The Top Compiler of Twitter Animation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-roadmap-to-youtube-profits-with-sourav-joshi/"><u>[Updated] 2024 Approved The Roadmap to YouTube Profits with Sourav Joshi</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-tubebuddy-the-key-to-youtube-dominance/"><u>[Updated] 2024 Approved TubeBuddy The Key to YouTube Dominance</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-maximizing-channel-potential-across-diverse-digital-venues/"><u>[Updated] In 2024, Maximizing Channel Potential Across Diverse Digital Venues</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/best-antivirus-applications-for-iphones-unveiling-the-top-6-picks-for-security-enthusiasts/"><u>Best Antivirus Applications for iPhones: Unveiling The Top 6 Picks for Security Enthusiasts</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/cambiar-tus-archivos-f4v-a-mp4-sin-costo-alguno-con-conversion-online-de-movavi/"><u>Cambiar Tus Archivos F4V a MP4 Sin Costo Alguno Con Conversión Online De Movavi</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/expert-advice-repairing-non-detectable-bluetooth-hardware-on-your-windows-10-computer/"><u>Expert Advice: Repairing Non-Detectable Bluetooth Hardware on Your Windows 10 Computer</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/hd-3450-graphics-card-amd-ati-radeon-drivers-free-downloads-and-latest-updates/"><u>HD 3450 Graphics Card: AMD ATI Radeon Drivers - Free Downloads & Latest Updates</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-motorola-g24-power-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Motorola G24 Power Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/board-the-best-video-to-mp3-convertors-for-2024/"><u>Scoreboard The Best Video to Mp3 Convertors for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/transform-your-images-with-ej-tech-utilizing-the-innovative-features-of-movavis-software-suite/"><u>Transform Your Images with EJ Tech: Utilizing the Innovative Features of Movavi's Software Suite</u></a></li>
+</ul></div>
 

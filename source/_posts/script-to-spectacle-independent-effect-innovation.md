@@ -1,7 +1,7 @@
 ---
 title: "\"From Script to Spectacle  Independent Effect Innovation\""
-date: 2025-02-09T18:56:11.808Z
-updated: 2025-02-15T17:17:25.377Z
+date: 2025-02-25T19:27:03.672Z
+updated: 2025-03-04T18:20:04.365Z
 tags:
   - ai video
   - ai youtube
@@ -51,17 +51,9 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
 
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
 
@@ -69,27 +61,15 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
 
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
 
 This site has a huge number of free After Effects tutorials. There are basic introductory lessons, and really advanced classes on creating custom cinematic FX, like explosions. There’s even a playlist on title design, which will be useful for anyone looking to create an intro sequence for their videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -112,16 +92,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/outubes-top-tools-studio-vs-latest-beta-features-for-2024/"><u>[New] YouTube's Top Tools Studio Vs. Latest Beta Features for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-2024-approved-a-gamers-manual-to-top-frame-rate-enhancers/"><u>[Updated] 2024 Approved A Gamer's Manual to Top Frame Rate Enhancers</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-streaming-success-seekers-deciphering-the-platform-winner-vimeo-vs-youtubeplusdailymotion/"><u>2024 Approved Streaming Success Seekers Deciphering The Platform Winner - Vimeo vs YouTube+Dailymotion?</u></a></li>
-<li><a href="https://fake-location.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/a-novices-pathway-to-mastery-in-langchain-language-models-llm/"><u>A Novice's Pathway to Mastery in LangChain Language Models (LLM)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ng-edge-techniques-in-live-streamed-gaming-for-2024/"><u>Cutting-Edge Techniques in Live-Streamed Gaming for 2024</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-2020-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE (2020) To Other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-file-funneling-transfer-techniques-for-your-computer/"><u>In 2024, File Funneling Transfer Techniques for Your Computer</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-vivo-s17t-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Vivo S17t to iPod | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/en-content-edge-with-studios-advanced-features/"><u>Sharpen Content Edge with Studio's Advanced Features</u></a></li>
-<li><a href="https://techidaily.com/three-solutions-to-hard-reset-oppo-reno-11-5g-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Oppo Reno 11 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/raft-memorable-content-explore-youtubes-top-10-creative-responses/"><u>[New] Craft Memorable Content Explore YouTube's Top 10 Creative Responses</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-top-tricks-in-sports-video-production/"><u>[New] In 2024, Top Tricks in Sports Video Production</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-zootopias-freshest-startup-ideas/"><u>[New] In 2024, Zootopia’s Freshest Startup Ideas</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-innovative-virtual-bike-trails-unveiled/"><u>[New] Innovative Virtual Bike Trails Unveiled</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/new-navigating-discord-server-deletion-desktopmobile-for-2024/"><u>[New] Navigating Discord Server Deletion (Desktop/Mobile) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-exclusive-access-prime-video-downloader-picks-for-2024/"><u>[Updated] Exclusive Access Prime Video Downloader Picks for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/fast-track-your-data-transfer-download-lexar-usb-drivers-now/"><u>Fast Track Your Data Transfer: Download Lexar USB Drivers Now</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-your-guide-to-making-millions-on-youtube-from-novice-to-big-earnings/"><u>In 2024, Your Guide to Making Millions on YouTube From Novice to Big Earnings</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/mastering-tech-toms-detailed-breakdowns-on-cutting-edge-hardware-products/"><u>Mastering Tech: Tom's Detailed Breakdowns on Cutting-Edge Hardware Products</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/the-game-plan-for-getting-your-product-in-front-of-a-youtubers-audience/"><u>The Game Plan for Getting Your Product in Front of a Youtuber's Audience</u></a></li>
+<li><a href="https://howto.techidaily.com/why-your-vivo-s17-pro-screen-might-be-unresponsive-and-how-to-fix-it-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Your Vivo S17 Pro Screen Might be Unresponsive and How to Fix It | Dr.fone</u></a></li>
 </ul></div>
 

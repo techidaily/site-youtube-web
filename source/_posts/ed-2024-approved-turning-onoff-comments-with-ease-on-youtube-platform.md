@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Turning On/Off Comments with Ease on YouTube Platform\""
-date: 2025-02-10T19:48:12.038Z
-updated: 2025-02-15T19:32:17.102Z
+date: 2025-02-25T17:14:01.440Z
+updated: 2025-03-04T20:04:52.640Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -55,10 +51,6 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 3: Turn Off Comments
 
 From the **Audience** section in the right pane itself, click to select the **Yes, set this channel as made for kids. I always upload content that’s made for kids** radio button. Click **SAVE** from the bottom-right corner to save the changes in order to turn off comments on all the videos on your YouTube channel.
@@ -70,10 +62,6 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
 
@@ -106,10 +94,6 @@ Selecting this option holds all the comments from all the users, and waits for y
 * **Disable comments**
 
 When this option is selected, no one can post a comment to the video(s) whatsoever.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
 
@@ -163,10 +147,6 @@ It is easy to understand **how to turn on comments on YouTube**. The best thing 
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -188,19 +168,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-activity-recording.techidaily.com/new-capture-your-overwatch-saga-effortlessly-for-2024/"><u>[New] Capture Your Overwatch Saga Effortlessly for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ow-to-convert-youtube-tracks-to-mp3-safely-the-3-best-ways/"><u>[New] How To Convert YouTube Tracks to MP3 Safely - The 3 Best Ways</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-how-to-add-video-to-text-for-free/"><u>[New] In 2024, How to Add Video to Text for Free</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-audible-savings-the-essential-guide-to-using-these-24-no-cost-splitters-on-youtube/"><u>[Updated] 2024 Approved Audible Savings The Essential Guide to Using These 24 No-Cost Splitters on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-how-to-render-and-upload-your-youtube-video-faster-for-2024/"><u>[Updated] How to Render and Upload Your YouTube Video Faster for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-making-an-impact-with-your-youtube-shorts-content/"><u>[Updated] In 2024, Making an Impact with Your YouTube Shorts Content</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/enhancing-mobile-instagram-videos-velocity-tips/"><u>Enhancing Mobile Instagram Videos' Velocity (Tips)</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-play-avchd-mts-files-on-motorola-moto-g84-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to play AVCHD MTS files on Motorola Moto G84 5G?</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/in-2024-accelerate-creativity-pro-level-lunapic-techniques-unveiled/"><u>In 2024, Accelerate Creativity Pro-Level LunaPic Techniques Unveiled</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-inside-the-world-of-toolwiz-an-in-depth-software-review/"><u>In 2024, Inside the World of Toolwiz An In-Depth Software Review</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/izing-monetization-unlocking-partnerships-without-limits-for-2024/"><u>Maximizing Monetization Unlocking Partnerships Without Limits for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/reasons-for-tecno-pop-8-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Tecno Pop 8 Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ltimate-blueprint-for-your-mobile-youtube-businesspersonal-platform/"><u>The Ultimate Blueprint for Your Mobile YouTube Business/Personal Platform</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshoot-and-enjoy-warcraft-3-reforged-once-again-expert-fixes-for-persistent-pc-crashes/"><u>Troubleshoot and Enjoy Warcraft 3 Reforged Once Again - Expert Fixes for Persistent PC Crashes</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-breakdown-of-mr-beasts-financial-powerhouse/"><u>[New] 2024 Approved Breakdown of Mr. Beast's Financial Powerhouse</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-incorporating-yt-playlists-into-web-design/"><u>[New] 2024 Approved Incorporating YT Playlists Into Web Design</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-digital-mastery-top-10-instagram-enhancers/"><u>[New] Digital Mastery Top 10 Instagram Enhancers</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-elite-environmentally-friendly-cinematography-tech-for-2024/"><u>[New] Elite Environmentally Friendly Cinematography Tech for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-maximize-video-impact-via-creator-studio-utilization/"><u>[New] In 2024, Maximize Video Impact via Creator Studio Utilization</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-step-by-step-guide-to-excellent-ipadiphone-interview-podcast-recording/"><u>[New] Step-by-Step Guide to Excellent iPad/iPhone Interview Podcast Recording</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-2024-approved-how-to-stop-fbs-persistent-video-ad-popups/"><u>[Updated] 2024 Approved How to Stop FB's Persistent Video Ad Popups</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-boost-your-instagram-influence-5-key-tactics-for-enhanced-followers/"><u>[Updated] Boost Your Instagram Influence 5 Key Tactics for Enhanced Followers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-mastery-elevating-your-channel-with-strategic-spotlight-techniques/"><u>[Updated] In 2024, YouTube Mastery Elevating Your Channel with Strategic Spotlight Techniques</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-kinemasters-comprehensive-guide-to-green-screen-usage/"><u>2024 Approved Kinemaster's Comprehensive Guide to Green Screen Usage</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-master-the-art-of-video-editing-with-top-7-sounds-selections/"><u>2024 Approved Master the Art of Video Editing with Top 7 Sounds Selections</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/conquering-the-fan-base-youtubes-pathway-to-more-followers/"><u>Conquering the Fan Base YouTube's Pathway to More Followers</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-the-solution-overcoming-stability-hurdles-in-ring-of-elysium-gaming/"><u>Mastering the Solution: Overcoming Stability Hurdles in Ring of Elysium Gaming</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/al-video-techniques-to-dominate-freefire-vlogs/"><u>Optimal Video Techniques to Dominate FreeFire Vlogs</u></a></li>
 </ul></div>
 

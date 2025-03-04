@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Capturing the Best Visuals in Vlogs"
-date: 2025-02-13T18:41:07.056Z
-updated: 2025-02-15T19:40:37.116Z
+date: 2025-03-03T17:48:16.828Z
+updated: 2025-03-04T16:13:29.388Z
 tags:
   - ai video
   - ai youtube
@@ -33,17 +33,9 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Video Lighting Basics: Three Point Lighting
 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
 
@@ -85,29 +77,17 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
 
 If you are hosting a **beauty vlog** then you might consider a slightly different set up. Instead of having your main light off to one side set it up directly in front of you so your entire face is lit evenly. It is still a good idea to use fill lights in this set up to give you some dimension, and a backlight is even more essential for helping you stand out from the background. The even light hitting your face will also make you look flat if you do not use a backlight.
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -130,20 +110,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-essential-gif-making-software-the-ultimate-guide/"><u>[New] In 2024, Essential GIF Making Software The Ultimate Guide</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ur-quick-and-complete-obs-youtube-streaming-path-for-newbies-for-2024/"><u>[New] Our Quick & Complete OBS Youtube Streaming Path for Newbies for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-more-than-just-watch-time-understanding-youtube-views-calculation/"><u>[Updated] 2024 Approved More than Just Watch Time Understanding YouTube Views Calculation</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-illuminating-your-android-videos/"><u>[Updated] Illuminating Your Android Videos</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-ultimate-list-hashtags-for-maximum-video-engagement-in-games/"><u>[Updated] In 2024, Ultimate List Hashtags for Maximum Video Engagement in Games</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-million-viewer-milestones-youtubes-pay-structure-for-2024/"><u>[Updated] Million-Viewer Milestones YouTube's Pay Structure for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/updated-minds-on-trial-best-general-knowledge-channels/"><u>[Updated] Minds on Trial Best General Knowledge Channels</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-how-to-stop-recording-on-quicktime/"><u>2024 Approved How To Stop Recording on QuickTime</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-step-by-step-guide-to-crafting-striking-youtube-thumbnails-mac-edition/"><u>2024 Approved Step by Step Guide to Crafting Striking YouTube Thumbnails - Mac Edition</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-win11s-lightning-quick-visualizer/"><u>2024 Approved Win11's Lightning Quick Visualizer</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/best-android-photo-editor-is-pickup-top/"><u>Best Android Photo Editor Is PickUp Top?</u></a></li>
-<li><a href="https://win-dash.techidaily.com/how-to-get-the-latest-canon-pixma-tr4520-printer-drivers-on-your-windows-device/"><u>How to Get the Latest Canon PIXMA TR4520 Printer Drivers on Your Windows Device</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-buzzing-beats-essential-background-scores-for-viral-video-shorts/"><u>In 2024, Buzzing Beats Essential Background Scores for Viral Video Shorts</u></a></li>
-<li><a href="https://windows11.techidaily.com/procedures-to-enable-or-disable-windows-build-service/"><u>Procedures to Enable or Disable Windows Build Service</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/mline-your-youtube-experience-manage-video-comments/"><u>Streamline Your YouTube Experience Manage Video Comments</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-mp3-conversion-guide-best-free-apps-for-iphone-and-youtube/"><u>[New] 2024 Approved MP3 Conversion Guide Best Free Apps for iPhone & YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-wave-goodbye-to-dullness-the-ultimate-list-of-funny-youtubers/"><u>[New] 2024 Approved Wave Goodbye to Dullness The Ultimate List of Funny YouTubers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/chieve-optimum-stability-incorrances-for-tripods-in-vlog-shoots/"><u>[New] Achieve Optimum Stability Incorrances for Tripods in Vlog Shoots</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-the-definitive-guide-to-live-discord-broadcasts/"><u>[New] In 2024, The Definitive Guide to Live Discord Broadcasts</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-legends-of-warfare-the-top-7-total-war-game-series-for-2024/"><u>[New] Legends of Warfare The Top 7 Total War Game Series for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-the-complete-walkthrough-for-android-audio-personalization-for-2024/"><u>[New] The Complete Walkthrough for Android Audio Personalization for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-a-comprehensive-guide-to-ps3-gameplay-recording/"><u>[Updated] 2024 Approved A Comprehensive Guide to PS3 Gameplay Recording</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-alternative-cinema-choices-for-every-fan/"><u>[Updated] 2024 Approved Alternative Cinema Choices for Every Fan</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-streamlining-slides-integrating-youtube-content/"><u>[Updated] 2024 Approved Streamlining Slides Integrating YouTube Content</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-capturing-crisp-sound-a-guide-to-superior-audio-recording/"><u>[Updated] Capturing Crisp Sound A Guide to Superior Audio Recording</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-elevating-your-channel-with-strategic-picture-posts/"><u>[Updated] Elevating Your Channel with Strategic Picture Posts</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/47437692-updated-in-2024-acquire-no-cost-sounds-for-videos-and-podcasts/"><u>[Updated] In 2024, Acquire No-Cost Sounds for Videos & Podcasts!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-expertly-selected-asmr-tools-for-androidios/"><u>2024 Approved Expertly Selected ASMR Tools for Android/iOS</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/accurate-and-efficient-video-frame-grabber/"><u>Accurate and Efficient Video Frame Grabber</u></a></li>
+<li><a href="https://fake-location.techidaily.com/can-life360-track-you-when-your-motorola-moto-g-stylus-2023-is-off-drfone-by-drfone-virtual-android/"><u>Can Life360 Track You When Your Motorola Moto G Stylus (2023) is off? | Dr.fone</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expert-selection-the-premier-portable-gaming-units/"><u>Expert Selection: The Premier Portable Gaming Units</u></a></li>
+<li><a href="https://review-topics.techidaily.com/reinstall-your-hardware-drivers-with-device-manager-on-windows-1110-by-drivereasy-guide/"><u>Reinstall your hardware drivers with Device Manager on Windows 11/10</u></a></li>
+<li><a href="https://win-best.techidaily.com/tariffe-gratis-come-ripristinare-i-tuoi-backup-di-immagini-con-software-senza-costi/"><u>Tariffe Gratis: Come Ripristinare I Tuoi Backup Di Immagini Con Software Senza Costi</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/on-negotiables-of-beginning-a-youtube-channel/"><u>The Non-Negotiables of Beginning a YouTube Channel</u></a></li>
 </ul></div>
 

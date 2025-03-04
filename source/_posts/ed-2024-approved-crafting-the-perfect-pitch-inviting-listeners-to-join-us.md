@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting the Perfect Pitch  Inviting Listeners to Join Us\""
-date: 2025-02-10T17:43:06.213Z
-updated: 2025-02-15T19:55:13.528Z
+date: 2025-02-27T21:28:34.263Z
+updated: 2025-03-04T17:32:26.872Z
 tags:
   - ai video
   - ai youtube
@@ -41,10 +41,6 @@ There are people who think that if people like their videos they’ll subscribe,
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## What is a 'Call To Action'?
 
 It has become the norm for YouTubers to ask viewers to subscribe in their sign-offs. A typical CTA (‘call to action’) goes something like this:
@@ -52,10 +48,6 @@ It has become the norm for YouTubers to ask viewers to subscribe in their sign-o
 > _“Thanks for watching. If you liked this video, make sure to subscribe for more!”_
 
 That’s great. At the end of a video is a good place to ask people to subscribe, but is it the best and only place you should be reminding them? If you take a peek at your analytics and you might find that most of your viewers aren’t watching to the ends of your videos (people have short attention spans).
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## A More Effective Way of Asking For Subscribers
 
@@ -67,10 +59,6 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -81,15 +69,7 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
 
@@ -126,19 +106,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-cosmetics-confidentials-building-a-beauty-channel-on-youtube/"><u>[New] In 2024, Cosmetics Confidentials Building a Beauty Channel on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-rapid-response-sharing-plays-with-pizzazz/"><u>[New] In 2024, Rapid Response Sharing Plays with Pizzazz</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/new-in-depth-review-is-aurora-revolutionary/"><u>[New] In-Depth Review Is Aurora Revolutionary?</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-guide-deleting-items-from-your-youtubeumbers-list/"><u>[Updated] 2024 Approved Guide Deleting Items From Your YouTube'umbers List</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/updated-demystifying-facebooks-new-short-form-video-model-for-2024/"><u>[Updated] Demystifying Facebook's New Short-Form Video Model for 2024</u></a></li>
-<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>11 Best Location Changers for Apple iPhone 6s | Dr.fone</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/approved-how-to-find-your-niche-and-style-a-starters-guide-high-cpm/"><u>2024 Approved How to Find Your Niche and Style - a Starter's Guide [High CPM]</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/bilden-sie-einen-ssd-aus-einem-hdd-mit-kostenlosem-tool-tutorial-fur-windows-10-11-und-altere-versionen/"><u>Bilden Sie Einen SSD Aus Einem HDD Mit Kostenlosem Tool - Tutorial Für Windows 10, 11 Und Ältere Versionen</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-explore-top-12-gear-best-on-the-go-flip-screen-cameras/"><u>In 2024, Explore Top 12 Gear Best On-the-Go Flip-Screen Cameras</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-history-buffs-favorite-youtube-history-channels/"><u>In 2024, History Buffs' Favorite YouTube History Channels</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-top-video-shooting-equipment-a-comprehensive-review/"><u>In 2024, Top Video Shooting Equipment A Comprehensive Review</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/stream-films-via-fandango-on-apple-tv-step-by-step-instructions/"><u>Stream Films via Fandango on Apple TV - Step-by-Step Instructions</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/the-ultimate-fix-list-for-6-prevalent-chatgpt-issues/"><u>The Ultimate Fix List for 6 Prevalent ChatGPT Issues</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-6-kid-friendly-movie-websites-with-free-screening-options/"><u>Top 6 Kid-Friendly Movie Websites with Free Screening Options</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-accurate-chart-watcher-master-your-video-rankings/"><u>[New] 2024 Approved Accurate Chart Watcher Master Your Video Rankings</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-key-10-acoustic-amplifiers-for-android-ios/"><u>[Updated] In 2024, Key 10 Acoustic Amplifiers for Android, iOS</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtubes-gross-revenue-for-a-mil-viewer-spectacle/"><u>[Updated] In 2024, Youtube's Gross Revenue for a Mil Viewer Spectacle</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-secrets-to-sustainable-earning-with-online-videos/"><u>[Updated] Secrets to Sustainable Earning with Online Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tial-audio-techniques-capturing-clear-sound/"><u>Essential Audio Techniques Capturing Clear Sound</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-reset-a-vivo-v30-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Vivo V30 Phone that is Locked?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-elevating-your-valorant-videos-with-impressive-thumbnails/"><u>In 2024, Elevating Your Valorant Videos with Impressive Thumbnails</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-a-samsung-galaxy-s24-ultra-phone-that-is-locked-by-drfone-android/"><u>In 2024, How to Reset a Samsung Galaxy S24 Ultra Phone that is Locked?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-the-art-of-digital-alterations-tips-for-text-in-pictures/"><u>In 2024, The Art of Digital Alterations Tips for Text in Pictures</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigate-through-macos-secrets-to-recover-stored-login-information/"><u>Navigate Through macOS Secrets to Recover Stored Login Information</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/d-the-rhythm-sharing-playlists-in-minutes-for-2024/"><u>Spread the Rhythm Sharing Playlists in Minutes for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/the-insiders-guide-to-concealed-snap-content-for-2024/"><u>The Insider's Guide to Concealed Snap Content for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-oppo-a78-5g-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Oppo A78 5G for Parents | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/unlocking-graphics-card-info-windows-11-edition/"><u>Unlocking Graphics Card Info: Windows 11 Edition</u></a></li>
 </ul></div>
 

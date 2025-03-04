@@ -1,7 +1,7 @@
 ---
 title: "\"Youtube's Exclusive Club  Festivities After VidCon\""
-date: 2025-02-10T17:32:34.179Z
-updated: 2025-02-15T19:43:56.892Z
+date: 2025-03-03T17:53:22.410Z
+updated: 2025-03-04T21:55:46.144Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ Want to meet your favorite creators? Or, do you want to become a better creator 
 5. [RTX (US/UK/Australia)](#rtx)
 6. [Amplify Live (Australia)](#amplify)
 7. [Summer in the City (UK)](#sitc)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **The Most Important YouTube Events**
 
@@ -118,10 +114,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -146,10 +138,6 @@ These events are customized to the wherever festival is visiting, so you’re al
 
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
 
 #### 5. **[RTX](https://www.rtxaustin.com/)**
@@ -161,10 +149,6 @@ There is not a steady annual schedule for FanFests, but it has visited these cit
 Sydney, Australia: February
 
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
 
@@ -203,10 +187,6 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 **London, UK:** August
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
@@ -253,21 +233,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/86998627-updated-2024-approved-free-high-quality-youtube-banner-samples-inside/"><u>[Updated] 2024 Approved Free High-Quality YouTube Banner Samples Inside</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-the-playbook-of-youtubes-innovative-approach-to-video-shorts/"><u>[Updated] 2024 Approved The Playbook of YouTube’s Innovative Approach to Video Shorts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-visual-producer-hub/"><u>[Updated] 2024 Approved Visual Producer Hub</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-forging-strategic-alliances-on-youtube-through-famebit-wisdom-for-2024/"><u>[Updated] Forging Strategic Alliances on YouTube Through FameBit Wisdom for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-income-accumulation-with-cosmetic-videos/"><u>[Updated] Income Accumulation with Cosmetic Videos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-the-leading-free-converters-for-optimal-srt-files/"><u>[Updated] The Leading Free Converters for Optimal SRT Files</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ient-time-markers-in-youtube-videos-desktopmobile-edition-for-2024/"><u>Efficient Time Markers in YouTube Videos (Desktop/Mobile Edition) for 2024</u></a></li>
-<li><a href="https://network-issues.techidaily.com/ending-intermittent-windows-display-flashes/"><u>Ending Intermittent Windows Display Flashes</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-lava-yuva-3-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On Lava Yuva 3 Pro | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-vivo-y78-5g-phone-without-pin-by-drfone-android/"><u>How to Unlock Vivo Y78 5G Phone without PIN</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-the-essential-manual-to-creating-youtube-playlists/"><u>In 2024, The Essential Manual to Creating YouTube Playlists</u></a></li>
-<li><a href="https://driver-install.techidaily.com/m2-ssd-compatibility-tips/"><u>M.2 SSD Compatibility Tips</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/propel-your-world-with-freshly-launched-wins11-games-for-2024/"><u>Propel Your World with Freshly-Launched Wins11 Games for 2024</u></a></li>
-<li><a href="https://win-net.techidaily.com/resolving-unsolvable-scanner-issues-expert-tips-from-yl-computings-tech-solutions/"><u>Resolving Unsolvable Scanner Issues: Expert Tips From YL Computing's Tech Solutions</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/what-just-hit-shelves-dive-into-the-features-of-the-newest-ipad/"><u>What Just Hit Shelves? Dive Into the Features of the Newest iPad</u></a></li>
-<li><a href="https://howto.techidaily.com/what-to-do-if-google-play-services-keeps-stopping-on-nokia-g310-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>What to Do if Google Play Services Keeps Stopping on Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-unlock-the-secrets-of-youtube-description-upgrades/"><u>[New] 2024 Approved Unlock the Secrets of YouTube Description Upgrades</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/raft-a-vibrant-youtube-experience-with-tracks-for-2024/"><u>[New] Craft a Vibrant Youtube Experience with Tracks for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-elevate-your-vlogging-mastering-tripod-angles-and-positions/"><u>[New] In 2024, Elevate Your Vlogging Mastering Tripod Angles and Positions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-from-free-to-fortune-carryminatis-youtube-transformation-ajey/"><u>[New] In 2024, From Free to Fortune CarryMinati’s YouTube Transformation (Ajey)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-in-depth-examination-hero4-black-innovation/"><u>[New] In-Depth Examination Hero4 Black Innovation</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-the-art-of-creating-shareable-content-on-fb-for-2024/"><u>[New] The Art of Creating Shareable Content on Fb for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-guide-to-uploading-impeccable-content-on-youtube-for-2024/"><u>[New] The Ultimate Guide to Uploading Impeccable Content on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-unleashing-potential-youtubes-techniques-for-stellar-videos/"><u>[Updated] In 2024, Unleashing Potential YouTube's Techniques for Stellar Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-viewership-volume-the-financial-impact-of-one-million-views/"><u>[Updated] In 2024, Viewership Volume The Financial Impact of One Million Views</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-youtube-shorts-creating-flawless-5-second-videos-for-2024/"><u>[Updated] YouTube Shorts Creating Flawless 5-Second Videos for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-sharpening-attention-utilizing-leading-lines-on-iphone/"><u>2024 Approved Sharpening Attention Utilizing Leading Lines on iPhone</u></a></li>
+<li><a href="https://article-files.techidaily.com/a-comprehensive-list-top-rated-srt-translation-services/"><u>A Comprehensive List Top-Rated SRT Translation Services</u></a></li>
+<li><a href="https://games-able.techidaily.com/bid-farewell-to-single-os-on-steam-deck/"><u>Bid Farewell to Single OS on Steam Deck!</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-video-quality-utilizing-youtube-studios-features-for-2024/"><u>Boosting Video Quality Utilizing YouTube Studio's Features for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/fixing-your-iphones-quiet-mode-issue-tips-for-a-hands-free-solution/"><u>Fixing Your iPhone's Quiet Mode Issue - Tips for a Hands-Free Solution</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/guide-to-downgrade-from-sierra-to-el-capitan-on-macs-for-2024/"><u>Guide to Downgrade From Sierra to El Capitan on Macs for 2024</u></a></li>
+<li><a href="https://driver-install.techidaily.com/harmonizing-startech-with-multiple-windows-versions/"><u>Harmonizing StarTech with Multiple Windows Versions</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-freshly-install-the-newest-driver-update-on-your-intel-centrino-advanced-n-7260-wifi-adapter/"><u>How To Freshly Install the Newest Driver Update on Your Intel Centrino Advanced-N 7260 WiFi Adapter</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-zte-axon-40-lite-by-phone-number-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track ZTE Axon 40 Lite by Phone Number | Dr.fone</u></a></li>
 </ul></div>
 

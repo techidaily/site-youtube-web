@@ -1,7 +1,7 @@
 ---
 title: "Exploring Popularly Highlighted Video Remarks"
-date: 2025-02-09T17:04:12.154Z
-updated: 2025-02-15T17:52:00.583Z
+date: 2025-02-25T17:28:29.840Z
+updated: 2025-03-04T20:43:54.665Z
 tags:
   - ai video
   - ai youtube
@@ -59,10 +59,6 @@ For instance, you may want to check the following links. The 2 URLs lead you to 
 
 Notice the name "lc" in the first URL- that stands for linked comment. YouTube might include this additional parameter. If a reply comment (HR) gets highlighted, the parent comment gets raised to the top.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2: What Does The Highlighted Comment Look Like?
 
 YouTube has been working on improving the navigation of the comment section for videos, and highlighted comments are one of them. These comments appear even above the pinned comments on a video. The label of a highlighted comment is displayed above the commentator's name in a light grey shade.
@@ -72,10 +68,6 @@ YouTube has been working on improving the navigation of the comment section for 
 YouTube labels comment replies as well and call it "Highlighted Reply." You can see this tag above the replier's name in the same color tone.
 
 ![YouTube Highlighted Reply](https://images.wondershare.com/filmora/article-images/youtube-highlighted-reply.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3: How to Make My Comment Highlighted?
 
@@ -93,10 +85,6 @@ Suppose you are a viewer who is going through the comments section of a video. I
 
 ![YouTube Highlighted Comments](https://images.wondershare.com/filmora/article-images/youtube-highlighted-comments.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 On the other hand, for a YouTuber, getting access to the comment URL is relatively straightforward. The host will get a notification on his or her registered email-id when a viewer publishes a comment on their posted video. You will find the link to the highlighted comment in the notification
 
 ## Part 5: How to Reply to Highlighted Comments?
@@ -106,10 +94,6 @@ Replying to "highlighted comments" on your YouTube channel is pretty easy since 
 If you click the notification bell icon, whenever a viewer drops a new comment on one of your videos, YouTube will send you a notification via email. On opening the email, you will find a clickable "Reply" option. Or else, if you follow the comment section in the YouTube Dashboard, you can directly view or reply to highlighted comments from here as well.
 
 Have you ever wondered why a highlighted comment always shows at the top of the comment list? Both the above options will lead you to the comment thread on YouTube. To help you find the new activity easily, it appears with the highlight tag on it. The purpose is to remind you that you are here for that specific comment.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 6: How to Remove Highlighted Comments?
 
@@ -155,10 +139,6 @@ In this article, we have shared facts on YouTube's commonly seen highlighted com
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Liza Brown
 
 Liza Brown is a writer and a lover of all things video.
@@ -180,17 +160,16 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-chime-into-chats-whatsapp-status-soundtracks/"><u>[New] In 2024, Chime Into Chats WhatsApp Status Soundtracks</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-designing-effective-video-previews-for-channels/"><u>[Updated] 2024 Approved Designing Effective Video Previews for Channels</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-essential-6-apps-elevating-your-instagram-reels/"><u>[Updated] 2024 Approved Essential 6 Apps Elevating Your Instagram Reels</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-elevating-your-video-content-for-a-fanbase-boom/"><u>[Updated] In 2024, Elevating Your Video Content for a Fanbase Boom</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-enhance-your-videos-effective-titles-and-keywords-on-youtube/"><u>[Updated] In 2024, Enhance Your Videos Effective Titles and Keywords on YouTube</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-boost-your-channels-a-guide-to-best-youtube-seo-resources/"><u>2024 Approved Boost Your Channels A Guide to Best YouTube SEO Resources</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/best-5-chromebook-screen-capture-tools-unveiled/"><u>Best 5 Chromebook Screen Capture Tools Unveiled</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-screen-lock-pin-on-nokia-g310-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Nokia G310 Like A Pro 5 Easy Ways</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-apple-iphone-14-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Apple iPhone 14 Plus? | Dr.fone</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-what-does-enter-puk-code-mean-and-why-did-the-sim-get-puk-blocked-on-vivo-s17e-device-by-drfone-android/"><u>In 2024, What Does Enter PUK Code Mean And Why Did The Sim Get PUK Blocked On Vivo S17e Device</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/re-distractions-expert-guide-to-removing-youtube-ads/"><u>No More Distractions - Expert Guide to Removing YouTube Ads</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ltimate-gear-list-for-any-aspiring-vlogger-top-12-cameras/"><u>The Ultimate Gear List for Any Aspiring Vlogger - Top 12 Cameras</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-free-video-wizardry-top-8-editing-programs-for-youtube-enthusiasts/"><u>[New] 2024 Approved Free Video Wizardry Top 8 Editing Programs for YouTube Enthusiasts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-redirect-saved-image-to-custom-folder-on-mac/"><u>[Updated] In 2024, Redirect Saved Image to Custom Folder on Mac</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-past-perspectives-unencumbered-visual-splendors/"><u>2024 Approved Past Perspectives Unencumbered Visual Splendors</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/achieving-stunning-light-conditions-with-an-iphone-for-2024/"><u>Achieving Stunning Light Conditions with an iPhone for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ing-a-brand-building-income-youtube-edition/"><u>Building a Brand, Building Income YouTube Edition</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/essential-list-top-10-free-copyright-safe-chants-for-calm-for-2024/"><u>Essential List Top 10 Free, Copyright-Safe Chants for Calm for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/video-highlights-top-youtube-data-infographics/"><u>FIFA Video Highlights Top YouTube Data Infographics</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/in-2024-expert-strategies-to-master-the-instagram-query-tag/"><u>In 2024, Expert Strategies to Master the Instagram Query Tag</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-fixing-obscured-content-on-youtube-platform/"><u>In 2024, Fixing Obscured Content on YouTube Platform</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/leading-artificial-intelligence-tools-simplifying-notes-capture/"><u>Leading Artificial Intelligence Tools Simplifying Notes Capture</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/pated-patterns-in-youtube-music-collections/"><u>Syncopated Patterns in YouTube Music Collections</u></a></li>
 </ul></div>
 

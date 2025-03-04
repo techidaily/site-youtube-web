@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Strategies for Success in Work and Online Creation for 2024"
-date: 2025-02-13T19:13:11.782Z
-updated: 2025-02-15T19:41:59.909Z
+date: 2025-02-26T18:17:01.677Z
+updated: 2025-03-04T19:53:58.696Z
 tags:
   - ai video
   - ai youtube
@@ -55,35 +55,19 @@ I know what you’re thinking - “What?! That’s insane.” The first piece of
 
 A notebook planner is essential for keeping my life organized and on track. When I first started my channel, I had a separate planner just for my YouTube videos – this didn’t work cause I never looked at it. It worked best when I kept track of my entire life, including YouTube, in one planner since I look at it every day. Then I could also see which days I wanted to post a video or see what topics worked best around specific holidays and such.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 3. Check the weather forecast in advance
 
 When starting a YouTube channel, many YouTubers like myself don’t have the money to afford all the fancy lighting you see other creators using. [I use natural light](https://tools.techidaily.com/wondershare/filmora/download/), which means I have to make sure it’s going to be a sunny day or at least bright enough for my videos to be clear. I check the forecast for the week on Sunday evenings so I can plan out my best days to film, this keeps my video shooting schedule productive.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4. Create 3-5 videos in advance
 
 This week I am on PTO (paid time off) which has given me a lot more time to film videos I can post for next month. Life happens and it can set you back on filming. If you happen to get a major break in your workweek, use the opportunity to film a bunch of videos, edit them, and have them waiting in your pocket. I filmed three videos in one day – I planned and set-up the night before, which made filming much smoother. Trust me, this tip works wonders!
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5. Be creative! Create audios (audio-only videos)
 
 In the event that life gets too crazy, it’s perfectly fine to do just audio. Many of us are always on the go which means it’s the perfect time to listen to great advice while driving to work, waiting on the bus, or working at the gym. Someone out there would love to hear your advice. I started to do this with my Tea Time Talk Audios and the response was great.
 
 I hope these tips can help you on your journey with YouTube while still working a full-time job.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Make a YouTube Video with Wondershare Filmora
 
@@ -94,10 +78,6 @@ Just try it and create your own YouTube video!
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -120,18 +100,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/est-practices-for-organizing-online-video-stories-for-2024/"><u>[New] Best Practices for Organizing Online Video Stories for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ownload-youtube-audio-safely-and-legally-in-3-ways-for-2024/"><u>[New] Download Youtube Audio Safely & Legally in 3 Ways for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/nhance-your-youtube-journey-with-analytic-know-how/"><u>[New] Enhance Your YouTube Journey with Analytic Know-How</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/rom-video-to-animation-easy-youtube-gif-creation-tips/"><u>[New] From Video to Animation Easy YouTube GIF Creation Tips</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/rom-zero-to-hero-youtubes-masterclass-in-channels-for-2024/"><u>[New] From Zero to Hero YouTube's Masterclass in Channels for 2024</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-the-quintessential-quest-for-stories-worlds-best-1-8-schools/"><u>[New] In 2024, The Quintessential Quest for Stories – World's Best #1-#8 Schools</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-masterful-techniques-to-alter-facial-gender-in-instagram-snapchat-and-facebook-pictures/"><u>[New] Masterful Techniques to Alter Facial Gender in Instagram, Snapchat & Facebook Pictures</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-mind-puzzling-stats-a-graphed-journey-through-yt-17/"><u>[Updated] 2024 Approved Mind-Puzzling Stats A Graphed Journey Through YT '17</u></a></li>
-<li><a href="https://article-files.techidaily.com/updated-cutting-edge-guide-to-mastering-windows-11-conferencing-via-zoom/"><u>[Updated] Cutting-Edge Guide to Mastering Windows 11 Conferencing via Zoom</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-elite-10-sound-recording-essentials-on-spotify-platform/"><u>[Updated] Elite 10 Sound Recording Essentials on Spotify Platform</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-achieving-clear-dialogue-in-google-hangouts/"><u>[Updated] In 2024, Achieving Clear Dialogue in Google Hangouts</u></a></li>
-<li><a href="https://extra-support.techidaily.com/in-2024-iphones-high-dynamic-range-photography-demystified/"><u>In 2024, IPhone's High-Dynamic Range Photography Demystified</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/resolving-the-wwe-2k22-crashing-dilemma-in-windows-a-comprehensive-guide/"><u>Resolving the WWE 2K22 Crashing Dilemma in Windows - A Comprehensive Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/024-approved-a-comprehensive-guide-to-personalizing-video-images/"><u>[New] 2024 Approved A Comprehensive Guide to Personalizing Video Images</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-gaining-traction-on-youtube-the-successful-sponsorship-roadmap-by-famebit/"><u>[New] 2024 Approved Gaining Traction on YouTube The Successful Sponsorship Roadmap by FameBit</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/xploring-trending-video-reactions-for-2024/"><u>[New] Exploring Trending Video Reactions for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-infographic-efficient-video-marketing-for-smalls/"><u>[Updated] 2024 Approved Infographic Efficient Video Marketing for Smalls</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-talking-texts-a-beginners-guide-to-animated-instagram-captions/"><u>[Updated] 2024 Approved Talking Texts A Beginner's Guide to Animated Instagram Captions</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-leading-9-free-logo-design-software-for-youtube-channels/"><u>[Updated] Leading 9 Free Logo Design Software for YouTube Channels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-premier-gamers-streaming-software/"><u>[Updated] Premier Gamers' Streaming Software</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unveiling-the-hidden-truths-behind-vrs-advantages-and-limitations/"><u>[Updated] Unveiling the Hidden Truths Behind VR's Advantages and Limitations</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-reverse-the-norm-creative-methods-for-backward-youtube-watching/"><u>2024 Approved Reverse the Norm Creative Methods for Backward Youtube Watching</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>5 Easy Ways to Change Location on YouTube TV On Sony Xperia 5 V | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/d-the-scenes-what-does-an-unlisted-video-mean-in-2024/"><u>Behind the Scenes What Does an 'Unlisted' Video Mean, In 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-a-tactical-approach-to-youtube-video-enhancement-with-imovie/"><u>In 2024, A Tactical Approach to YouTube Video Enhancement with iMovie</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/integrating-your-ip-security-camera-with-manycam-a-step-by-step-guide/"><u>Integrating Your IP Security Camera with ManyCam: A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/pc-video-magic-discovering-apowersofts-recorder/"><u>PC Video Magic Discovering Apowersoft’s Recorder</u></a></li>
+<li><a href="https://win-net.techidaily.com/topfreie-software-fur-die-erstellung-von-festplattenbildern-auf-windows-11-die-beste-auswahl/"><u>Topfreie Software Für Die Erstellung Von Festplattenbildern Auf Windows 11 - Die Beste Auswahl</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722965897219-xbox-accessory-driver-troubles-heres-how-you-can-fix-it-in-windows-1187-systems/"><u>Xbox Accessory Driver Troubles? Here's How You Can Fix It in Windows 11/8/7 Systems!</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/yl-software-guide-navigating-the-world-of-crypto-assets-for-portfolio-success/"><u>YL Software Guide: Navigating the World of Crypto Assets for Portfolio Success</u></a></li>
 </ul></div>
 
