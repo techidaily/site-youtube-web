@@ -1,7 +1,7 @@
 ---
 title: "\"From Script to Spectacle  Independent Effect Innovation\""
-date: 2025-01-29T21:21:54.990Z
-updated: 2025-02-03T21:06:42.334Z
+date: 2025-02-09T18:56:11.808Z
+updated: 2025-02-15T17:17:25.377Z
 tags:
   - ai video
   - ai youtube
@@ -52,7 +52,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Mt. Mograph](https://www.youtube.com/channel/UCSUSgx9qc%5FNydrOL59xbJIA)**
@@ -60,7 +60,7 @@ In this post, we’re going to kick things up a bit. Here is a list of places wh
 On this YouTube channel, motion graphics specialist Matt offers free animation tutorials using a variety of programs including Adobe After Effects and Cinema 4D. His lessons are for a range of skill levels, from beginner to advanced. If you are just starting out then Mt.Mograph is a great resource.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Richard Harrington on Lynda](https://www.lynda.com/Rich-Harrington/120-1.html)**
@@ -70,7 +70,7 @@ Lynda isn’t free, but the 10-day free trial period is definitely long enough f
 What’s great about this course is that it assumes you have no animation experience, and it walks you through the main thing a lot of YouTubers want to learn animation for – creating an animated logo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Bloop Animation](https://www.bloopanimation.com/)**
@@ -78,7 +78,7 @@ What’s great about this course is that it assumes you have no animation experi
  Most of the video animation courses on this site are paid, but they have a lot of cool free tutorials as well. The focus is more on animating figures/cartoons than video effects, but if you have any interest in animation more generally then this is a great place to start learning. They even have a free ebook you can download which is targeted at beginners.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **[Video Copilot](http://www.videocopilot.net/)**
@@ -88,7 +88,7 @@ This site has a huge number of free After Effects tutorials. There are basic int
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -112,17 +112,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-the-ultimate-guide-to-engagement-mastering-instagram-stories-for-2024/"><u>[New] The Ultimate Guide to Engagement Mastering Instagram Stories for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-blurring-the-line-secure-video-content-with-smoother-images-for-2024/"><u>[Updated] Blurring the Line Secure Video Content with Smoother Images for 2024</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-laugh-track-in-the-air-parody-anthems/"><u>[Updated] Laugh Track in the Air Parody Anthems</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/updated-pinnacle-speed-windows-10-image-browser/"><u>[Updated] Pinnacle Speed Windows 10 Image Browser</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-the-art-of-creating-youtube-video-thumbnails/"><u>2024 Approved The Art of Creating YouTube Video Thumbnails</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/factory-reset-windows-7-without-a-cd/"><u>Factory Reset Windows 7 without a CD</u></a></li>
-<li><a href="https://common-error.techidaily.com/fixing-non-responsive-arrow-keys-on-your-keyboard-expert-solutions/"><u>Fixing Non-Responsive Arrow Keys on Your Keyboard - Expert Solutions</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/in-2024-branding-breakthrough-constructing-logos-for-podcasts/"><u>In 2024, Branding Breakthrough Constructing Logos for Podcasts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-mastering-video-dimensions-the-key-to-youtube-presence/"><u>In 2024, Mastering Video Dimensions The Key to YouTube Presence</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/rless-challenge-to-dslr-who-wins-in-video/"><u>Mirrorless Challenge to DSLR Who Wins in Video?</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/by-step-methodology-tracking-youtube-traffic-and-income/"><u>Step-by-Step Methodology Tracking YouTube Traffic & Income</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-are-location-permissions-life360-on-apple-iphone-8-plus-drfone-by-drfone-virtual-ios/"><u>What are Location Permissions Life360 On Apple iPhone 8 Plus? | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/outubes-top-tools-studio-vs-latest-beta-features-for-2024/"><u>[New] YouTube's Top Tools Studio Vs. Latest Beta Features for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-a-gamers-manual-to-top-frame-rate-enhancers/"><u>[Updated] 2024 Approved A Gamer's Manual to Top Frame Rate Enhancers</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-streaming-success-seekers-deciphering-the-platform-winner-vimeo-vs-youtubeplusdailymotion/"><u>2024 Approved Streaming Success Seekers Deciphering The Platform Winner - Vimeo vs YouTube+Dailymotion?</u></a></li>
+<li><a href="https://fake-location.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Tecno Pova 6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/a-novices-pathway-to-mastery-in-langchain-language-models-llm/"><u>A Novice's Pathway to Mastery in LangChain Language Models (LLM)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ng-edge-techniques-in-live-streamed-gaming-for-2024/"><u>Cutting-Edge Techniques in Live-Streamed Gaming for 2024</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-2020-to-other-iphone-13-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE (2020) To Other iPhone 13 Pro Max devices? | Dr.fone</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-file-funneling-transfer-techniques-for-your-computer/"><u>In 2024, File Funneling Transfer Techniques for Your Computer</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-music-from-vivo-s17t-to-ipod-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Music from Vivo S17t to iPod | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/en-content-edge-with-studios-advanced-features/"><u>Sharpen Content Edge with Studio's Advanced Features</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-oppo-reno-11-5g-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Oppo Reno 11 5G? | Dr.fone</u></a></li>
 </ul></div>
 

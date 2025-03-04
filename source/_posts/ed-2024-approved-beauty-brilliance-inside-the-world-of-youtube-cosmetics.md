@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Beauty Brilliance  Inside the World of Youtube Cosmetics\""
-date: 2025-02-01T20:55:53.562Z
-updated: 2025-02-03T22:35:09.294Z
+date: 2025-02-08T20:02:15.076Z
+updated: 2025-02-15T18:35:31.758Z
 tags:
   - ai video
   - ai youtube
@@ -47,7 +47,7 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Best YouTube Video Editor- Wondershare Filmora
@@ -55,10 +55,6 @@ We’ll walk you through deciding on a theme for your channel, setting up your e
 Wondershare Filmora is specifically made keeping quality on priority and to make sure all the videos are edited well with the highest accuracy. You can trim, merge, crop, add background music, rotate videos as well as add motion elements, animated texts, overlays, and filters, etc. to your makeup video, and the video can also be uploaded to YouTube or burned to DVD directly.
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## **Finding Your Niche in Beauty or Lifestyle**
 
@@ -69,6 +65,10 @@ People looking for beauty tutorials are often looking for someone who has someth
 Another way you could find a niche is by taking on a specific area of interest, like a skincare channel with a focus on coping with acne or a makeup channel with a focus on natural products.
 
   SunKissAlba has a lifestyle channel that focuses on a ‘natural’ niche. She posts videos about every aspect of her lifestyle from putting on makeup to cooking, but natural/non-toxic products are a constant theme through everything she does. By niching her channel she hasn’t limited what kinds of videos she can do at all - she posts a huge variety of different types of videos. What she has done is to make her channel particularly valuable to audiences interested in things that are natural or organic.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## **Types of Beauty Videos – Your Content Strategy**
 
@@ -129,6 +129,10 @@ Here are 4 tips for getting free products for review:
 Make sure to link to your channel so they can verify what you say (do not hide your subscriber count).  
 Emphasize what value you could provide the brand with (i.e. ‘I’ve had a lot of success with videos on managing acne and I’m sure my subscribers would love to see a review of your cream’) and outline what kind of video you’d like to make (i.e. a five-minute review focusing on the product, or a short feature in a longer makeup tutorial).
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## **Simple Camera Setup for Beauty Vloggers**
 
 There are a lot of different ways to set up your camera for a ‘talking head’ video (anything that is primarily you talking to the camera). Keep reading to learn about a popular ring-light setup for beauty videos, or [click here to learn 4 different camera setups](https://www.filmora.io/community-blog/4-ways-to-set-up-your-talking-head-shots-for-youtube-431.html).
@@ -166,19 +170,11 @@ An aperture of f/5.0 is good if you’re going to be moving around a lot, but if
 
 ![set f stop](https://images.wondershare.com/filmora/article-images/set-f-stop2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 6:** Set your ISO (film speed). A lower ISO will give you a darker, but higher quality, image. A higher ISO will lower your quality and give you a brighter image.
 
 ISO 400 should be a happy medium for shooting inside with your ring light, but you may need to try out a couple of settings to find one perfect for your situation.
 
 ![set film speed](https://images.wondershare.com/filmora/article-images/set-film-speed3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 For more info on [camera settings for beauty videos, click here](https://www.filmora.io/video-tutorials/how-to-set-up-your-camera-%E2%80%93-the-makeup-series-12.html).
 
@@ -195,6 +191,10 @@ There are, however, some reasons you might want additional light:
 If you only have a ring light/front light then you may end up looking like you’re surrounded by shadows. If you want more light for your space you can use windows, household lamps, or professional video lights like softboxes or LED panels.
 
  ![light background](https://images.wondershare.com/filmora/article-images/light-background4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### **To Stand Out Against your Background (‘Backlighting’)**
 
@@ -237,7 +237,7 @@ This lightweight ring light is easy to transport, set up, and mount your phone o
 This light is dimmable, so you can turn it down if it’s too bright, and the Prismatic Light Stand will allow you to tilt your light to the perfect angle. This will be handy if you’re mounting your camera inside the ring but want to place it slightly above your face instead of having it look at you head on.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **Build Your Own Diva Ring Light**
@@ -303,7 +303,7 @@ Remember to include what type of video you made, i.e. ‘tutorial’, ‘review�
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -327,22 +327,22 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-fighting-on-the-go-nintendos-best-switch-fighters/"><u>[New] 2024 Approved Fighting on the Go Nintendo's Best Switch Fighters</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/reative-content-concepts-for-vlogs/"><u>[New] Creative Content Concepts for Vlogs</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-gratitude-archive-complete-collection-freepaid/"><u>[New] Gratitude Archive Complete Collection (Free/Paid)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-unlocking-facebook-integration-sharing-youtube-vids-with-ease/"><u>[New] In 2024, Unlocking Facebook Integration Sharing YouTube Vids with Ease</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/he-complete-manual-to-perfect-proportions-in-youtube-videosshortsads/"><u>[New] The Complete Manual to Perfect Proportions in YouTube Videos/Shorts/Ads</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-googles-technique-for-crystal-clear-speech-translation-for-2024/"><u>[Updated] Google's Technique for Crystal Clear Speech Translation for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-quantifiable-quirks-yearly-graphed-tidbits-from-yt-2017/"><u>[Updated] Quantifiable Quirks Yearly Graphed Tidbits From YT (2017)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-the-9-best-smartphone-camera-accessories-for-vloggers-for-2024/"><u>[Updated] The 9 Best Smartphone Camera Accessories for Vloggers for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-2023s-top-social-moment-infographics/"><u>2024 Approved 2023'S Top Social Moment Infographics</u></a></li>
-<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-itel-p55plus-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Itel P55+ to iPhone | Dr.fone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/direct-installation-of-nvidia-quadro-drivers-on-windows-10-fresh-release-by-dch/"><u>Direct Installation of NVIDIA Quadro Drivers on Windows 10 - Fresh Release by DCH</u></a></li>
-<li><a href="https://app-tips.techidaily.com/exploring-ai-highlight-creators-introduction-and-key-features-of-top-tools/"><u>Exploring AI Highlight Creators: Introduction & Key Features of Top Tools</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/exploring-the-nuances-of-audio-overlap-crossfade-for-2024/"><u>Exploring the Nuances of Audio Overlap (Crossfade) for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-top-10-audio-alchemy-from-youtube-to-mp3-masters/"><u>In 2024, Top 10 Audio Alchemy From YouTube to Mp3 Masters</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/innovate-your-writing-process-using-these-nine-insights-on-chatgpt/"><u>Innovate Your Writing Process Using These Nine Insights on ChatGPT</u></a></li>
-<li><a href="https://win11.techidaily.com/streamlined-pairing-process-for-airpods-and-windows-pcs/"><u>Streamlined Pairing Process for AirPods and Windows PCs</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/rted-film-hits-of-2023-for-2024/"><u>Uncharted Film Hits of 2023 for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/onverting-spotify-playlist-selections-for-youtube-music-service/"><u>[New] Converting Spotify Playlist Selections for YouTube Music Service</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/14173212-new-in-2024-acquire-no-cost-sounds-for-videos-and-podcasts/"><u>[New] In 2024, Acquire No-Cost Sounds for Videos & Podcasts</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-embedding-youtube-playlists-step-by-step-guide/"><u>[New] In 2024, Embedding YouTube Playlists Step-by-Step Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ush-more-viewers-to-your-channel-with-easy-tricks-2/"><u>[New] Push More Viewers to Your Channel with Easy Tricks (2)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-navigating-youtube-success-through-strategic-studio-use/"><u>[Updated] 2024 Approved Navigating YouTube Success Through Strategic Studio Use</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-breaking-down-barriers-to-affordable-editing-power/"><u>[Updated] Breaking Down Barriers to Affordable Editing Power</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-deciphering-the-code-youtube-community-rules-explained/"><u>[Updated] Deciphering the Code YouTube Community Rules Explained</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-youtube-conversion-guide-top-8-picks-for-avi-enthusiasts/"><u>[Updated] In 2024, YouTube Conversion Guide Top 8 Picks for AVI Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-new-earnings-threshold-youtubes-500-rule/"><u>[Updated] The New Earnings Threshold YouTube's $500 Rule</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-keep-them-coming-back-top-6-ways-to-enhance-your-audiences-staying-power-on-youtube/"><u>2024 Approved Keep Them Coming Back Top 6 Ways To Enhance Your Audience's Staying Power on YouTube</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-nubia-red-magic-8s-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-screen-mirroring-realme-v30t-to-pc-drfone-by-drfone-android/"><u>How to Screen Mirroring Realme V30T to PC? | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-bypassing-google-account-with-vnrom-bypass-for-poco-x6-pro-by-drfone-android/"><u>In 2024, Bypassing Google Account With vnROM Bypass For Poco X6 Pro</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-proven-techniques-to-enhance-subscriber-count-with-effective-channel-branding/"><u>In 2024, Proven Techniques to Enhance Subscriber Count with Effective Channel Branding</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ating-the-world-of-youtube-titling-and-tagging-for-2024/"><u>Navigating the World of YouTube Titling and Tagging for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/passer-du-peer-to-peer-a-une-plateforme-internet-sans-cout-cours-avec-movavi/"><u>Passer Du Peer-to-Peer À Une Plateforme Internet Sans Coût - Cours Avec Movavi</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/the-real-story-exploring-recordcast-features/"><u>The Real Story Exploring RecordCast Features</u></a></li>
 </ul></div>
 

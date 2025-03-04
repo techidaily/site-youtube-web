@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Expert Advice on Selecting The Best Lenses For Filmmaking"
-date: 2025-02-01T02:17:04.079Z
-updated: 2025-02-03T17:16:10.668Z
+date: 2025-02-12T18:40:03.938Z
+updated: 2025-02-15T19:31:29.368Z
 tags:
   - ai video
   - ai youtube
@@ -46,7 +46,7 @@ In this article, I’m going to help you figure that out.
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Three Focal Length Groups: Wide, Standard, Telephoto
@@ -66,7 +66,7 @@ With standard lenses or normal lenses, you won’t get the stretched out objects
 Out of all the other ranges in focal lengths, telephoto lenses will appear the most zoomed in. This can be beneficial for the shooter who wants to get a closer shot of a scene without having to physically be in close proximity to the scene. Objects that are further away in the background also appear larger and closer than they would appear on wide-angle or standard lenses.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Vlogging With Each Focal Length Group
@@ -91,10 +91,6 @@ As telephoto lenses are even more zoomed in, you’ll need to be even further aw
 
   In the above video, Marcos Rocha compares different focal lengths for talking head videos. Which focal length range do you like the look of?
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Crop Factor
 
 Focal lengths in camera lenses are measured in millimeters. You can vlog yourself handheld with a 24mm lens on a camera with a full-frame sensor (the sensor is the piece of hardware inside your camera that turns the light it receives into a digital image). But if you use a 24mm lens on a camera with a smaller sensor, like an APS-C sensor or even smaller Micro 4/3 sensor, more of you will get cropped out (see below).
@@ -102,10 +98,6 @@ Focal lengths in camera lenses are measured in millimeters. You can vlog yoursel
  ![Crop Factor](https://images.wondershare.com/filmora/article-images/camera-lenses-crop-factor.jpg)
 
  In order to make up for the cropping that occurs, you will need to use a wider lens on cameras with smaller sensors to get the same shot you’d get with a full-frame camera.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Focal Length Equivalency Table
 
@@ -126,12 +118,16 @@ This table shows you the focal lengths needed to achieve the same shot between c
 
  ![Camera lenses Aperture](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The next thing to consider when you’re looking for a lens is the aperture, the hole (often adjustable) within the lens that lets light in. Aperture for camera lenses is measured in f-stops (f/1.4, f/1.8, f/2.0) - the smaller the f-stop number, the larger the aperture (bigger hole letting even more light in).
 
  ![Camera lenses Aperture Range](https://images.wondershare.com/filmora/article-images/camera-lenses-aperture-range.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Because larger aperture lenses let more light in, they need a shorter time for cameras to compose an image. This is why larger aperture lenses are also called “fast” lenses.
@@ -168,6 +164,10 @@ If, however, you are shooting most of your vlogs on a tripod, you won’t need a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -189,24 +189,16 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-precision-problem-solving-for-social-media-stories-issues/"><u>[New] 2024 Approved Precision Problem-Solving for Social Media Stories Issues</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/hannel-your-creativity-convert-youtube-clips-into-dynamic-gifs-for-2024/"><u>[New] Channel Your Creativity Convert YouTube Clips Into Dynamic Gifs for 2024</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-best-10-zero-cost-video-collaboration-platforms-for-enterprises-and-education/"><u>[New] In 2024, Best 10 Zero-Cost Video Collaboration Platforms For Enterprises & Education</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/trategic-setup-youtube-gaming-banners-made-easy/"><u>[New] Strategic Setup YouTube Gaming Banners Made Easy</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-best-of-editing-filmoras-captivating-features/"><u>[New] The Best of Editing Filmora's Captivating Features</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-the-best-virtual-playground-for-ps3-games-on-windows-pcs-for-2024/"><u>[New] The Best Virtual Playground for PS3 Games on Windows PCs for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/t-thumbnail-mastery-guide-to-your-videos-best-images-for-2024/"><u>[New] YT Thumbnail Mastery Guide to Your Video's Best Images for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-exploring-the-disparities-between-youtube-and-dailymention/"><u>[Updated] Exploring the Disparities Between YouTube and DailyMention</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-a-guide-to-the-8-truly-effective-youtube-marketing-methods/"><u>[Updated] In 2024, A Guide to the 8 Truly Effective Youtube Marketing Methods</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-expressive-commentary-utilizing-emojis-on-youtube/"><u>[Updated] In 2024, Expressive Commentary Utilizing Emojis on YouTube</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-how-to-download-vimeo-videos-withwithout-software-100-useful/"><u>[Updated] In 2024, How to Download Vimeo Videos With/Without Software [100% Useful]</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-monetizing-success-a-guide-to-purchasing-youtube-content/"><u>[Updated] In 2024, Monetizing Success A Guide to Purchasing YouTube Content</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-the-ultimate-guide-to-organizing-fb-giveaways-for-2024/"><u>[Updated] The Ultimate Guide to Organizing FB Giveaways for 2024</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/cinematic-clarity-choices-best-4k-monitors-for-filmmakers/"><u>Cinematic Clarity Choices Best 4K Monitors for Filmmakers</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/discover-the-leading-gaming-platforms-expert-reviews-and-rankings/"><u>Discover the Leading Gaming Platforms - Expert Reviews & Rankings</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/hassle-free-ways-to-remove-frp-lock-from-realme-11-proplus-phones-withwithout-a-pc-by-drfone-android/"><u>Hassle-Free Ways to Remove FRP Lock from Realme 11 Pro+ Phones with/without a PC</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-becoming-a-pro-in-video-game-broadcasts/"><u>In 2024, Becoming a Pro in Video Game Broadcasts</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-craft-proficient-content-for-short-form-video-best-edits-reviewed/"><u>In 2024, Craft Proficient Content for Short-Form Video Best Edits Reviewed</u></a></li>
-<li><a href="https://facebook.techidaily.com/unveiling-facebooks-strategy-for-modern-romance-redefinition/"><u>Unveiling Facebook's Strategy for Modern Romance Redefinition</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-10-premier-igtv-horizontal-video-editors/"><u>[New] In 2024, 10 Premier IGTV Horizontal Video Editors</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-in-2024-breaking-down-the-basics-of-effective-timelapse-creation-using-gopro-studio/"><u>[New] In 2024, Breaking Down the Basics of Effective Timelapse Creation Using GoPro Studio</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-creating-channel-names-that-capture-attention/"><u>[New] In 2024, Creating Channel Names That Capture Attention</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-kinetic-mastery-in-your-pocket-a-2023-review-of-kinemaster-on-android/"><u>[New] Kinetic Mastery in Your Pocket A 2023 Review of KineMaster on Android</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-a-new-era-of-streaming-leading-voices-of-female-creators/"><u>[Updated] In 2024, A New Era of Streaming Leading Voices of Female Creators</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ting-channels-strategies-for-stardom-on-youtube/"><u>Elevating Channels Strategies for Stardom on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-prevent-youtube-spam-channel-blocking-guide-for-all-platforms/"><u>In 2024, Prevent Youtube Spam Channel Blocking Guide for All Platforms</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/inside-the-metaverse-discovering-6-in-depth-models/"><u>Inside the Metaverse Discovering 6 In-Depth Models</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/top-picks-excellent-4k-displays-for-playing-games-for-2024/"><u>Top Picks Excellent 4K Displays for Playing Games for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/king-your-online-opportunities-a-complete-guide-to-measuring-views-revenue-and-growth-for-2024/"><u>Unlocking Your Online Opportunities A Complete Guide to Measuring Views, Revenue, and Growth for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-fast-forward-your-memories-best-time-lapse-video-apps/"><u>Updated In 2024, Fast Forward Your Memories Best Time-Lapse Video Apps</u></a></li>
 </ul></div>
 

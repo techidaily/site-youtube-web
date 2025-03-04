@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting the Perfect Pitch  Inviting Listeners to Join Us\""
-date: 2025-01-29T05:41:32.466Z
-updated: 2025-02-03T19:24:31.982Z
+date: 2025-02-10T17:43:06.213Z
+updated: 2025-02-15T19:55:13.528Z
 tags:
   - ai video
   - ai youtube
@@ -67,6 +67,10 @@ As you can see, the video starts with a ‘flash forward’ to one of the twins 
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-by-hook.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### Step 2: Get to The Point Quickly
 
 Shortly after, while still in the first 30 seconds of the video, Collins gets right to the point and introduces the Twin Telepathy Challenge promised in the title of the video. The hook with the heater catching fire is effective, but it’s not essential. It happens to suit Collins’ style, and it happens to have happened. Getting to the main point of the video quickly – usually in the first 15 seconds, not the first 30 (it’s in the first 15 seconds that most viewers click away) – is vital. People click on videos for a reason, and if they don’t see a sign of that payoff quickly they’ll leave.
@@ -77,10 +81,14 @@ It’s only after hooking the viewer in and reiterating the promise of the title
 
 ![ how to ask people to subscribe](https://images.wondershare.com/filmora/article-images/ask-people-to-subscribe-in-perfect-moment.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Collins Key has been one of the fastest-growing channels on YouTube. He does not implement this strategy in every video, but it’s not a stretch to think it’s had something to do with his success. Instead of simply asking you to subscribe at the end of the video, he creates a part of the video early on – before people who don’t watch until the end will have clicked away – where you feel as if you’re ‘supposed to’ subscribe.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Polish Your YouTube Videos with Filmora
@@ -93,17 +101,9 @@ Here is a tutorial video about how to use Filmora to edit your YouTube video. Ch
 
 [![Download Filmora9 Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Filmora9 Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bofw6eJA7Bg?si=HM2gKZGH4L1otw3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 That's how you can get more YouTube subscribers by asking the right way. You may follow the instructions and try it yourself. Do not forget to [track your YouTube subscribers in real time](https://tools.techidaily.com/wondershare/filmora/download/) to make necessary adjustments.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,18 +126,19 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-youtube-community-guidelines-that-you-should-know/"><u>[New] 2024 Approved YouTube Community Guidelines That You Should Know</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-in-2024-innovation-unveiled-5-cutting-edge-webcams-with-sound-tech/"><u>[New] In 2024, Innovation Unveiled 5 Cutting-Edge Webcams With Sound Tech</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-cut-the-cord-clutter-simultaneous-playthrough-of-videos/"><u>[Updated] Cut the Cord Clutter Simultaneous Playthrough of Videos</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-10-must-know-iphone-photography-tips-today/"><u>2024 Approved 10 Must-Know iPhone Photography Tips Today</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/converge-your-viewing-proficiently-using-netflix-pip-mode/"><u>Converge Your Viewing Proficiently Using Netflix PIP Mode</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/exploring-mobile-photography-with-android-lightroom-application-for-2024/"><u>Exploring Mobile Photography with Android Lightroom Application for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-convert-and-share-simplified-mp3-to-youtube-process-3-phases/"><u>In 2024, Convert & Share Simplified MP3 to YouTube Process [3 Phases]</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-mastering-youtube-notes-and-alerts-implementation/"><u>In 2024, Mastering YouTube Notes & Alerts Implementation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-unlock-free-youtube-introend-customization/"><u>In 2024, Unlock Free YouTube Intro/End Customization</u></a></li>
-<li><a href="https://driver-error.techidaily.com/1721102858753-iphone-external-storage-troubles-fix-your-usb-mtp-drivers-now/"><u>IPhone External Storage Troubles? Fix Your USB MTP Drivers Now</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/new-2024-approved-exploring-8-premium-and-affordable-daws-for-windows-enthusiasts/"><u>New 2024 Approved Exploring 8 Premium and Affordable DAWs for Windows Enthusiasts</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-filmmaking-for-all-7-accessible-software-for-low-budget-productions/"><u>New Filmmaking for All 7 Accessible Software for Low-Budget Productions</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/newest-anker-chargers-perfect-add-ons-for-your-upcoming-iphone-purchase-tips-and-reviews-techradar/"><u>Newest Anker Chargers: Perfect Add-Ons for Your Upcoming iPhone Purchase - Tips & Reviews | TechRadar</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-cosmetics-confidentials-building-a-beauty-channel-on-youtube/"><u>[New] In 2024, Cosmetics Confidentials Building a Beauty Channel on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-rapid-response-sharing-plays-with-pizzazz/"><u>[New] In 2024, Rapid Response Sharing Plays with Pizzazz</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-in-depth-review-is-aurora-revolutionary/"><u>[New] In-Depth Review Is Aurora Revolutionary?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-guide-deleting-items-from-your-youtubeumbers-list/"><u>[Updated] 2024 Approved Guide Deleting Items From Your YouTube'umbers List</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-demystifying-facebooks-new-short-form-video-model-for-2024/"><u>[Updated] Demystifying Facebook's New Short-Form Video Model for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-apple-iphone-6s-drfone-by-drfone-virtual-ios/"><u>11 Best Location Changers for Apple iPhone 6s | Dr.fone</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-how-to-find-your-niche-and-style-a-starters-guide-high-cpm/"><u>2024 Approved How to Find Your Niche and Style - a Starter's Guide [High CPM]</u></a></li>
+<li><a href="https://fox-sys.techidaily.com/bilden-sie-einen-ssd-aus-einem-hdd-mit-kostenlosem-tool-tutorial-fur-windows-10-11-und-altere-versionen/"><u>Bilden Sie Einen SSD Aus Einem HDD Mit Kostenlosem Tool - Tutorial Für Windows 10, 11 Und Ältere Versionen</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-explore-top-12-gear-best-on-the-go-flip-screen-cameras/"><u>In 2024, Explore Top 12 Gear Best On-the-Go Flip-Screen Cameras</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-history-buffs-favorite-youtube-history-channels/"><u>In 2024, History Buffs' Favorite YouTube History Channels</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-top-video-shooting-equipment-a-comprehensive-review/"><u>In 2024, Top Video Shooting Equipment A Comprehensive Review</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/stream-films-via-fandango-on-apple-tv-step-by-step-instructions/"><u>Stream Films via Fandango on Apple TV - Step-by-Step Instructions</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-ultimate-fix-list-for-6-prevalent-chatgpt-issues/"><u>The Ultimate Fix List for 6 Prevalent ChatGPT Issues</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-6-kid-friendly-movie-websites-with-free-screening-options/"><u>Top 6 Kid-Friendly Movie Websites with Free Screening Options</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, The Ultimate Youtuber Convention Guide (Post-VidCon)\""
-date: 2025-01-29T04:52:22.803Z
-updated: 2025-02-03T22:45:01.015Z
+date: 2025-02-09T17:46:40.990Z
+updated: 2025-02-15T16:41:29.611Z
 tags:
   - ai video
   - ai youtube
@@ -53,7 +53,7 @@ Want to be a youtube creator too? Go and get **Wondershare Filmora**, the video 
 ![VidCon-On-Spot](https://images.wondershare.com/filmora/VidCon-On-Spot.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In 2017 over 30,000 YouTube enthusiasts – from fans to A-list creators – attended VidCon US, and that was thousands of more people than attended in 2016\. It’s hard to imagine that this event – the biggest convention for YouTube and online video – will do anything but grow over the next few years.
@@ -83,6 +83,10 @@ You have a two-week window (usually the first half of May) to submit your choice
 **Washington DC:** September
 
 ![Playlistlive](https://images.wondershare.com/filmora/Playlistlive.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Playlist Live is a YouTube event for creators and their supporters that has a particular focus on music. Where VidCon is advertised using images of sunshine, crowded convention halls, and speakers, Playlist Live is advertised with images of city skylines, concerts, and fireworks.
 
@@ -118,10 +122,6 @@ There is also business **Passes** with Merch and Deluxe (Business Deluxe can cos
 
 ![beautycon-festivals](https://images.wondershare.com/filmora/beautycon-festivals.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Beautycon is an event meant to highlight innovators in the fields of Beauty, Makeup, and Lifestyle. They bring together online creators, fans, celebrities, and brands for two-day festivals full of fun, panel discussions, shopping, and free samples.
 
 In 2017, 30,000 people attended Beautycon festivals internationally.
@@ -147,7 +147,7 @@ These events are customized to the wherever festival is visiting, so you’re al
 ![youtube-fanfest](https://images.wondershare.com/filmora/youtube-fanfest.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 There is not a steady annual schedule for FanFests, but it has visited these cities in the past: Manila, Mumbai, Seoul, Toronto, Sao Paulo, Jakarta, Tokyo, Jeddah, Bangkok, Ho Chi Minh City, Hong Kong, and Washington, DC.
@@ -163,7 +163,7 @@ Sydney, Australia: February
 ![rtx](https://images.wondershare.com/filmora/rtx.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Brought to you by the creators behind Rooster Teeth, RTX is a celebration of internet culture and gaming. It includes exhibitors, live events, panels, and activities targeting gamers. Partners include Twitch and multiple gaming companies.
@@ -204,10 +204,6 @@ For VIP access, you can buy a **Deluxe** pass for $125-$150 AUD.
 
 ![summer-in-the-city](https://images.wondershare.com/filmora/summer-in-the-city.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This is the largest online video festival in the UK. It features discussion panels, workshops, and live performances targeted at creators, fans of online video, and industry professionals. YouTubers might hang out on the show floor meeting fans, and there are also Meet and Greet sessions for top creators. All ticket holders can submit online ballots for a chance at Meet and Greet access.
 
 Summer in the City even has its own awards show, SitC, to honor the best in online content. Previous winners include Dodie, Tomska, Jack & Dean, and Nathan Zed.
@@ -232,6 +228,10 @@ Have you ever attended an offline YouTube event? Which one, and how did you like
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -253,15 +253,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/osoftware-needed-youtube-video-capture/"><u>[New] NoSoftware Needed YouTube Video Capture</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ioneers-designing-the-online-avengers-landscape/"><u>[New] Pioneers Designing the Online Avengers Landscape</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-smart-tagging-amplifying-your-youtube-presence/"><u>[Updated] 2024 Approved Smart Tagging Amplifying Your YouTube Presence</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-step-into-profitability-on-youtube-beginners-guide/"><u>[Updated] 2024 Approved Step Into Profitability on YouTube - Beginner's Guide</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/dable-online-education-hosting-on-youtube-for-2024/"><u>Affordable Online Education Hosting on YouTube for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/instagram-reels-rhythm-mixing-in-musical-elements-for-2024/"><u>Instagram Reels Rhythm Mixing in Musical Elements for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/leveraging-the-power-of-two-networks-a-window-guide-to-dual-connectivity/"><u>Leveraging the Power of Two Networks: A Window Guide to Dual Connectivity</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-guide-automating-your-tweets-with-twitters-scheduling-tool/"><u>Step-by-Step Guide: Automating Your Tweets with Twitter's Scheduling Tool</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/swiftly-navigate-ios-magnification-features/"><u>Swiftly Navigate iOS Magnification Features</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-infinix-smart-8-plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Infinix Smart 8 Plus | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/astering-playback-pivot-a-step-by-step-yt-guide-for-2024/"><u>[New] Mastering Playback Pivot A Step-by-Step YT Guide for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ransform-your-food-blog-into-an-engaging-mukbang-show/"><u>[New] Transform Your Food Blog Into an Engaging Mukbang Show</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/nique-coverage-awaits-crafting-your-own-custom-youtube-shorts-images-for-2024/"><u>[New] Unique Coverage Awaits Crafting Your Own Custom YouTube Shorts Images for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-best-practices-for-inserting-text-on-youtube-videos-effectively/"><u>[Updated] 2024 Approved Best Practices for Inserting Text on YouTube Videos Effectively</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-9-essential-apps-for-pulling-youtube-videos-android-for-2024/"><u>[Updated] 9 Essential Apps for Pulling YouTube Videos (Android) for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-from-smartphone-stories-to-youtube-success-a-step-by-step-mobile-guide-for-2024/"><u>[Updated] From Smartphone Stories to YouTube Success A Step-by-Step Mobile Guide for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-commanding-the-screen-top-10-women-gamers-yt/"><u>2024 Approved Commanding the Screen Top 10 Women Gamers YT</u></a></li>
+<li><a href="https://win-bits.techidaily.com/enhancing-your-systems-efficiency-essential-upkeep-strategies-from-yl-computing/"><u>Enhancing Your System's Efficiency: Essential Upkeep Strategies From YL Computing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-lock-apps-on-vivo-v29-to-protect-your-individual-information-by-drfone-android/"><u>How to Lock Apps on Vivo V29 to Protect Your Individual Information</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-samsung-galaxy-a24-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Samsung Galaxy A24 ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-youtube-visuals-perfecting-banners-and-thumbnails/"><u>In 2024, YouTube Visuals Perfecting Banners and Thumbnails</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/is-max-360-superior-to-hero-11-in-video-quality-in-2024/"><u>Is Max 360 Superior to Hero 11 in Video Quality, In 2024</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-harmonizing-silence-a-comprehensive-guide-to-muting-superfluous-sounds-and-background-distractions-in-visionpro-studio/"><u>New In 2024, Harmonizing Silence A Comprehensive Guide to Muting Superfluous Sounds and Background Distractions in VisionPro Studio</u></a></li>
+<li><a href="https://program-issues.techidaily.com/step-by-step-solutions-for-eradicating-windowed-chrome-flicker-issues-the-definitive-2024-guide/"><u>Step-by-Step Solutions for Eradicating Windowed Chrome Flicker Issues – The Definitive 2024 Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/rt-of-building-powerful-youtube-backlinks/"><u>The Art of Building Powerful YouTube Backlinks</u></a></li>
 </ul></div>
 

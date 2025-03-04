@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Rising Above Internet Naysayers and Detractors\""
-date: 2024-08-08T12:37:27.618Z
-updated: 2024-08-09T12:37:27.618Z
+date: 2025-02-09T18:47:13.359Z
+updated: 2025-02-15T16:00:21.844Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/99bd3a8517ed5c451f9f836179e6586efe05dbc59
 
 # How To Deal with YouTube Trolls and Negative Comments
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -30,8 +27,9 @@ thumbnail: https://thmb.techidaily.com/99bd3a8517ed5c451f9f836179e6586efe05dbc59
  If you have put a lot of work into your YouTube videos then it only makes sense that you have an emotional investment in them. When someone leaves a mean, negative comment on one of your videos it will likely affect you. It may make you angry, hurt your feelings, or just leave you baffled over how someone could come away from your video with out-of-the-blue opinion the hater has posted. ‘Do not feed the trolls’ is a mantra that can be hard to abide by. This article will explain why you should not engage trolls and how to talk to them if you find yourself doing it anyways.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2042323/17091" target="_top" id="2042323"><img src="//a.impactradius-go.com/display-ad/17091-2042323" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="3840" height="1600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042323/17091" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to Deal with Negative Comments on YouTube
 
 #### 1\. Identifying Trolls / When Is A Troll Not a Troll?
@@ -58,10 +56,11 @@ thumbnail: https://thmb.techidaily.com/99bd3a8517ed5c451f9f836179e6586efe05dbc59
 
  You will not get the troll to say they were wrong or apologize so that should never be your goal. What you can do is create a public record of the troll being corrected for others to judge for themselves. If you maintain a calm, unaffected, tone then the troll will find you boring.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -69,14 +68,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -85,6 +81,22 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ddressing-missing-image-display-in-youtubes-shorts-for-2024/"><u>[New] Addressing Missing Image Display in YouTubes Shorts for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mbrace-the-pause-button-3-techniques-for-decelerating-youtube-video-playback-59-chars-slight-overage-with-rich-content-justification/"><u>[New] Embrace the Pause Button 3 Techniques for Decelerating YouTube Video Playback (59 Chars, Slight Overage with Rich Content Justification)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-secure-and-store-linkedin-videos-with-these-6-high-quality-apps/"><u>[New] Secure and Store LinkedIn Videos with These 6 High-Quality Apps</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-the-ultimate-guide-to-implementing-windows-11s-automatic-hdr-feature-for-2024/"><u>[New] The Ultimate Guide to Implementing Windows 11'S Automatic HDR Feature for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nveiling-the-most-advanced-youtube-mp3-converters-for-2024/"><u>[New] Unveiling the Most Advanced YouTube Mp3 Converters for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-a-professionals-playbook-to-profitable-youtube-ventures/"><u>[Updated] A Professional's Playbook to Profitable YouTube Ventures</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-amass-1000-supporters-for-your-channel/"><u>[Updated] Amass 1,000 Supporters for Your Channel</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-high-speed-replicas-best-racing-games-for-2024/"><u>[Updated] High-Speed Replicas Best Racing Games for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-effortlessly-transform-youtube-tunes-to-mp3-with-mac/"><u>[Updated] In 2024, Effortlessly Transform YouTube Tunes to MP3 with Mac</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-dancefloor-dynamics-top-rated-dj-video-selections/"><u>2024 Approved Dancefloor Dynamics Top-Rated DJ Video Selections</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/crafting-curve-concepts-for-text-visualization/"><u>Crafting Curve Concepts for Text Visualization</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/easy-guide-to-update-your-pc-with-newly-released-toshiba-dynabook-hub-drivers-on-windows/"><u>Easy Guide to Update Your PC with Newly Released Toshiba Dynabook Hub Drivers on Windows</u></a></li>
+<li><a href="https://program-issues.techidaily.com/mastering-granblue-fantasy-overcoming-relink-disruptions-and-stabilizing-performance-on-pc/"><u>Mastering Granblue Fantasy: Overcoming ReLink Disruptions and Stabilizing Performance on PC</u></a></li>
+<li><a href="https://ai-video.techidaily.com/1723262383498-unlock-unbeatable-savings-on-the-alienware-bundle-snag-the-incredible-aurora-r16-and-premier-34-inch-oled-display-at-a-whopping-70e-reduction/"><u>Unlock Unbeatable Savings on the Alienware Bundle: Snag the Incredible Aurora R16 and Premier 34-Inch OLED Display at a Whopping $70E Reduction</u></a></li>
+<li><a href="https://howto.techidaily.com/why-is-my-asus-rog-phone-7-offline-troubleshooting-guide-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Why Is My Asus ROG Phone 7 Offline? Troubleshooting Guide | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Tailoring Your YouTube Videos with Customized Text & Link Embeddings\""
-date: 2024-07-29T13:38:33.253Z
-updated: 2024-07-30T13:38:33.253Z
+date: 2025-02-10T19:10:44.766Z
+updated: 2025-02-15T16:10:34.771Z
 tags:
   - ai video
   - ai youtube
@@ -18,9 +18,6 @@ thumbnail: https://thmb.techidaily.com/db39cf974b891a971b269fa1b5c545ac5598c4412
 
 # How to Add YouTube Annotations and Cards?
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 ##### Richard Bennett
@@ -48,6 +45,10 @@ The main difference between annotation and cards is their outlook. Cards are mor
 * [Part 1: How to Add YouTube Cards](#part1)
 * [Part 2: How to Add YouTube Annotations](#part2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add YouTube Cards
 
 YouTube **Cards** are similar to annotations but more interactive. They allow the owner of the video to add images and other links. A small box appears, clicking on which will activate the cards.
@@ -56,12 +57,13 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/video-manager-in-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Click "Edit" tab under the video screen shot you want to add the card on
 * Click on the "Cards" tab
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -69,16 +71,18 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 * Once you finish the subsequent information required click create card
 * Select the timeline for the playhead to appear which leads to the card slide
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes and exit
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to add YouTube annotations
 
 YouTube Annotation is addition of a text layer, link or hotspots over your video. They add interactive boxes which link to other websites or videos (any link you want).
@@ -87,17 +91,15 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 * Click edit tab under the video screen shot you want to add the annotation on
 * Click on the "End screen & Annotation" tab
 
-<!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
-<!-- affiliate ads begin -->
-<a href="https://parisrhonecom.sjv.io/c/5597632/1922358/21553" target="_top" id="1922358"><img src="//a.impactradius-go.com/display-ad/21553-1922358" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1922358/21553" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
 
 * Apply changes
@@ -144,14 +146,11 @@ Richard Bennett is a writer and a lover of all things video.
 
 Follow @Richard Bennett
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -160,4 +159,24 @@ Follow @Richard Bennett
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/xclusive-webcast-winners/"><u>[New] Exclusive Webcast Winners</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-future-earning-potential-in-gaming-videos/"><u>[New] Future Earning Potential in Gaming Videos</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-unveiling-the-blueprint-best-practices-for-social-media-video-publishing-for-2024/"><u>[New] Unveiling the Blueprint Best Practices for Social Media Video Publishing for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-intriguing-stories-flourishing-channels-top-3-techniques/"><u>[Updated] 2024 Approved Intriguing Stories, Flourishing Channels Top 3 Techniques</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-top-strategies-for-effective-youtube-short-creation/"><u>[Updated] 2024 Approved Top Strategies for Effective YouTube Short Creation</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-make-every-youtube-video-count-learn-how-to-free-transcribe-easily/"><u>[Updated] In 2024, Make Every YouTube Video Count Learn How to Free-Transcribe Easily</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-optimize-video-quality-turning-on-av1-in-youtube-settings-for-2024/"><u>[Updated] Optimize Video Quality Turning ON AV1 in YouTube Settings for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-turnback-artisan-hub/"><u>[Updated] Turnback Artisan Hub</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-unlocking-success-the-essentials-of-crafting-great-reddit-threads-for-2024/"><u>[Updated] Unlocking Success The Essentials of Crafting Great Reddit Threads for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/2024-approved-sony-fdr-x1000-videography-complete-review-edition/"><u>2024 Approved Sony FDR-X1000 Videography - Complete Review Edition</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/discover-how-to-enhance-your-iphone-security-with-the-most-effective-and-discreet-smart-lock-solution-revealed/"><u>Discover How to Enhance Your iPhone Security with the Most Effective and Discreet Smart Lock Solution Revealed .</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-ai-perception-errors-how-to-detect-when-machines-see-wrongly/"><u>Exploring AI Perception Errors - How to Detect When Machines See Wrongly</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-speed-focused-chroma-keying-101/"><u>In 2024, Speed-Focused Chroma Keying 101</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/active-achievements-the-click-based-reward-for-2024/"><u>Interactive Achievements The Click-Based Reward for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/top-tips-for-picking-out-your-ultimate-cellphone-case/"><u>Top Tips for Picking Out Your Ultimate Cellphone Case</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/ultimate-guide-solving-fallout-4s-performance-problems/"><u>Ultimate Guide: Solving Fallout 4'S Performance Problems</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/be-listening-made-easy-with-direct-recording-for-2024/"><u>YouTube Listening Made Easy with Direct Recording for 2024</u></a></li>
+</ul></div>
 

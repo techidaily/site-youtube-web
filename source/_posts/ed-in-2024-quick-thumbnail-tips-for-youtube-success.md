@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Quick Thumbnail Tips for YouTube Success"
-date: 2025-01-30T03:51:06.936Z
-updated: 2025-02-03T21:36:35.781Z
+date: 2025-02-12T16:11:37.961Z
+updated: 2025-02-15T17:39:46.508Z
 tags:
   - ai video
   - ai youtube
@@ -35,10 +35,6 @@ Youtube is one of the widely and most used video-sharing platforms all around th
 
 ---
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to make a thumbnail for Youtube using AI Portrait
 
 With time, Filmora brings new and advanced features for its users to equip them with all the necessary tools required for effective and efficient video editing. One of its latest features is AI Portrait. This feature has several uses and benefits. This feature is designed for Gamers, Vlogger, and other related genres to help them make their videos stand out from the crowd and gain more clicks and views. AI Portrait contains several effects that help you make the human element of the video separate from the background and make it more obvious. We can also use the AI Portrait effects to make beautiful and attractive thumbnails for your Youtube. Follow these steps to create a stunning thumbnail for your Youtube videos.
@@ -46,10 +42,6 @@ With time, Filmora brings new and advanced features for its users to equip them 
 **Step 01:** Open Filmora X. If it is not already installed on your computer, download and install its latest version from [here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 ![ai-portrait-thumbnail-step1](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step1.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 02:** Make sure that the aspect ratio of your project is 16:9\. To do that, click on a screen-shaped icon below the preview screen and select "Change Project Aspect Ratio."
 
@@ -71,13 +63,13 @@ With time, Filmora brings new and advanced features for its users to equip them 
 
 ![ai-portrait-thumbnail-step6](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step6.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 07:** Select your footage, go to the Effects tab and click on AI Portraits. It will open up all the effects related to AI Portraits. These AI Portrait features help you separate the human from a background without using a green screen or anything else.
 
 ![ai-portrait-thumbnail-step7](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Step 08:** Double click on any of these effects to see how they will look like on your footage.
 
@@ -88,23 +80,31 @@ With time, Filmora brings new and advanced features for its users to equip them 
 ![ai-portrait-thumbnail-step9](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step9.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 10:** The effect will be applied to the footage. Now the background has been removed from the footage and ready to be used on your custom background. You can adjust the human accordingly where it looks perfect.
 
 ![ai-portrait-thumbnail-step10](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step10.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 11:** Now it is time to add a title into your thumbnail to highlight what the video is all about. Go to the Titles, and select lower thirds. You can also select any of the titles types which best suits your needs. Drop the title into the timeline above the footage and adjust it accordingly. Now double click on the header to edit and rename it.
 
 ![ai-portrait-thumbnail-step11](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step11.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gMS5pm0SQlQ?si=gasOo6p2agrVlIb7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 12:** Once you are satisfied with the final results, click on the Camera icon below the preview screen or press "Ctrl+Alt+S" to take the screenshot.
 
 ![ai-portrait-thumbnail-step12](https://images.wondershare.com/filmora/article-images/ai-portrait-thumbnail-step12.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Conclusion
@@ -138,17 +138,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-web.techidaily.com/n-2024-amplify-your-shorts-impact-with-bespoke-thumbnails/"><u>[New] In 2024, Amplify Your Shorts' Impact with Bespoke Thumbnails</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-online-media-crafter/"><u>[Updated] In 2024, Online Media Crafter</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-streamline-your-youtube-thumbnail-process/"><u>[Updated] In 2024, Streamline Your YouTube Thumbnail Process</u></a></li>
-<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-infinix-smart-8-plus-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Infinix Smart 8 Plus | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-skyrocketing-engagement-on-igtv-with-smart-hash-tagging/"><u>2024 Approved Skyrocketing Engagement on IGTV with Smart Hash Tagging</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/sman-of-the-multimedia-medley/"><u>Craftsman of the Multimedia Medley</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-youtube-studio-monetization-check-ensure-your-channels-monetization/"><u>In 2024, YouTube Studio Monetization Check Ensure Your Channel's Monetization</u></a></li>
-<li><a href="https://extra-information.techidaily.com/innovative-20-no-rights-pubg-visual-arrays/"><u>Innovative 20 No-Rights PUBG Visual Arrays</u></a></li>
-<li><a href="https://fox-web3.techidaily.com/step-by-step-guide-incorporating-a-youtube-playlist-into-your-site-with-seamless-autoplay-features/"><u>Step-by-Step Guide: Incorporating a YouTube Playlist Into Your Site with Seamless Autoplay Features</u></a></li>
-<li><a href="https://games-able.techidaily.com/the-seamless-approach-regaining-your-spent-on-steam-games/"><u>The Seamless Approach: Regaining Your Spent on Steam Games</u></a></li>
-<li><a href="https://techtrends.techidaily.com/understanding-how-quick-access-speeds-influence-computer-efficiency/"><u>Understanding How Quick Access Speeds Influence Computer Efficiency</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/win10-fix-smooth-operation-of-switchable-gpus-by-nvidia/"><u>Win10 Fix: Smooth Operation of Switchable GPUs by NVIDIA</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-expert-tips-for-crafting-engaging-instagram-stories/"><u>[New] 2024 Approved Expert Tips for Crafting Engaging Instagram Stories</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-art-of-the-end-scene-tutorials-and-templates-for-youtube/"><u>[Updated] In 2024, The Art of the End Scene Tutorials & Templates for YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-does-youtube-offer-regular-viewers-money/"><u>2024 Approved Does YouTube Offer Regular Viewers Money?</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-gamers-sound-showdown-the-top-5-headset-list/"><u>2024 Approved Gamers' Sound Showdown The Top 5 Headset List</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/error-solved-excel-2000-file-is-not-in-recognizable-format-stellar-by-stellar-guide/"><u>Error Solved Excel 2000 file is not in recognizable format | Stellar</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/o-add-custom-thumbnails-to-your-youtube-videos/"><u>How To Add Custom Thumbnails to Your YouTube Videos</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-unbiased-review-vn-video-editor-pros-features-and-performance-for-2024/"><u>New Unbiased Review VN Video Editor Pros Features and Performance for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/precision-and-efficiency-incorporating-luts-in-after-effects/"><u>Precision and Efficiency Incorporating LUTs in After Effects</u></a></li>
+<li><a href="https://windows11.techidaily.com/reviving-classics-playing-oldschool-games-with-dosbox-x/"><u>Reviving Classics: Playing Oldschool Games with DOSBox-X</u></a></li>
+<li><a href="https://video-capture.techidaily.com/superior-video-editing-software-for-online-sessions-for-2024/"><u>Superior Video Editing Software for Online Sessions for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/tiktok/"><u>TikTok向け動画変換ガイド: 簡単な手順で始めよう</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ank-watcher-decode-youtube-trending-patterns/"><u>Top-Rank Watcher Decode YouTube Trending Patterns</u></a></li>
+<li><a href="https://driver-error.techidaily.com/troubleshooting-guide-how-to-repair-your-broken-dell-touchpad-on-windows-11/"><u>Troubleshooting Guide: How to Repair Your Broken Dell Touchpad on Windows 11</u></a></li>
+<li><a href="https://win-ratings.techidaily.com/1728468510741-usb/"><u>USB デバイスの消えた分区を回復する方法: 手順とヒント</u></a></li>
 </ul></div>
 

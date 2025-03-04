@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Turning On/Off Comments with Ease on YouTube Platform\""
-date: 2025-02-03T03:17:51.811Z
-updated: 2025-02-03T18:56:01.051Z
+date: 2025-02-10T19:48:12.038Z
+updated: 2025-02-15T19:32:17.102Z
 tags:
   - ai video
   - ai youtube
@@ -35,6 +35,10 @@ Keeping all these points in mind, the following sections explain **how to enable
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Turn on or Turn off Comments for YouTube Channel
 
 If you don’t want any comments on any of the videos that you publish, you must learn **how to disable comments on the YouTube** channel. The process of doing so is explained below:
@@ -52,7 +56,7 @@ From the bottom of the left pane, click the **Settings** icon, click **Channel**
 ![  YouTube Channel Advanced Settings](https://images.wondershare.com/filmora/article-images/youtube-channel-advanced-settings.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 #### Step 3: Turn Off Comments
@@ -66,6 +70,10 @@ To turn on comments on **all the videos on your YouTube channel**, you can follo
 Use the method explained above to get to the channel’s **Advanced settings** box. Select the **No, set this channel as not made for kids. I never upload content that’s made for kids** radio button. Click **SAVE** to save the changes.
 
 ![  Turn on YouTube Channel Comments](https://images.wondershare.com/filmora/article-images/turn-on-channel-comments-advanced-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\. Define Acceptable Comment Types
 
@@ -100,7 +108,7 @@ Selecting this option holds all the comments from all the users, and waits for y
 When this option is selected, no one can post a comment to the video(s) whatsoever.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: Turn on or Turn off Comments for Specific Videos
@@ -123,15 +131,7 @@ From under the **Audience** section in the right window of the **Video details**
 
 ![ Turn on or turn off comments for specific youtube video](https://images.wondershare.com/filmora/article-images/turn-on-off-comments-for-specific-youtube-video.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fo4lNZ84x9Q?si=WdcYPZp-9VJnZEnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** To learn **how to disable comments on YouTube** for specific video, you can repeat the above steps, and choose the **Yes, it’s made for kids** radio button from the **Audience** section when you are on the **Video details** page.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## FAQs About YouTube Comments
 
@@ -149,10 +149,6 @@ You can go to **YouTube Studio** \> **Settings** \> **Community**, and on the **
 
 ![ Block YouTube   commnets ](https://images.wondershare.com/filmora/article-images/block-users-youtube-comment.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 #### 4\. If I turn comments off and back on again, will the old comments come back?
 
 Yes. When you turn off the comments, the existing comments disappear. When you turn them back on, all the previous comments reappear, and become visible to the audience.
@@ -166,6 +162,10 @@ That depends on the nature of the comments. For instance, if you modify the sett
 It is easy to understand **how to turn on comments on YouTube**. The best thing is, the comments are enabled by default, and if you don’t need them, you can simply disable them by configuring the videos or the entire channel as ‘Made for kids’. If the comments on any video were enabled previously, and are disabled later on, the existing comments automatically disappear. They reappear when the comments on the video are reenabled.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tkpBmccvJ_Q?si=J7ellPL1G1l8Axi_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -188,15 +188,19 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-testing-toughness-prohero-hero-vs-nikkor-km-170/"><u>[New] In 2024, Testing Toughness ProHero Hero Vs Nikkor KM-170</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-pioneering-your-path-to-viral-content-exquisite-templates-for-tiktok-videos-for-2024/"><u>[New] Pioneering Your Path to Viral Content Exquisite Templates for TikTok Videos for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-effortlessly-engage-with-an-array-of-available-youtube-content-for-2024/"><u>[Updated] Effortlessly Engage with an Array of Available YouTube Content for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-youtube-masterclass-beginners-kit-free-courses-collection-for-2024/"><u>[Updated] YouTube Masterclass Beginners Kit Free Courses Collection for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-create-fantastic-youtube-description-with-templates-to-get-more-viewers/"><u>2024 Approved Create Fantastic YouTube Description With Templates To Get More Viewers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/approved-legality-of-reproducing-your-watched-youtube-videos/"><u>2024 Approved Legality of Reproducing Your Watched YouTube Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/te-your-youtube-profitability-anywhere-anytime/"><u>Elevate Your Youtube Profitability Anywhere, Anytime</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ting-engagement-professional-tips-for-youtube-video-tweaks-for-2024/"><u>Elevating Engagement Professional Tips for YouTube Video Tweaks for 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/eligibility-for-watchos-11-on-apple-watch-models-detailed-insights-and-non-supported-devices/"><u>Eligibility for WatchOS 11 on Apple Watch Models: Detailed Insights & Non-Supported Devices</u></a></li>
-<li><a href="https://article-files.techidaily.com/newest-compatible-cameras-to-match-samsung-gear-360-for-2024/"><u>Newest Compatible Cameras to Match Samsung Gear 360 for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-capture-your-overwatch-saga-effortlessly-for-2024/"><u>[New] Capture Your Overwatch Saga Effortlessly for 2024</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ow-to-convert-youtube-tracks-to-mp3-safely-the-3-best-ways/"><u>[New] How To Convert YouTube Tracks to MP3 Safely - The 3 Best Ways</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-how-to-add-video-to-text-for-free/"><u>[New] In 2024, How to Add Video to Text for Free</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-audible-savings-the-essential-guide-to-using-these-24-no-cost-splitters-on-youtube/"><u>[Updated] 2024 Approved Audible Savings The Essential Guide to Using These 24 No-Cost Splitters on YouTube</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-how-to-render-and-upload-your-youtube-video-faster-for-2024/"><u>[Updated] How to Render and Upload Your YouTube Video Faster for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-making-an-impact-with-your-youtube-shorts-content/"><u>[Updated] In 2024, Making an Impact with Your YouTube Shorts Content</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/enhancing-mobile-instagram-videos-velocity-tips/"><u>Enhancing Mobile Instagram Videos' Velocity (Tips)</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-play-avchd-mts-files-on-motorola-moto-g84-5g-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to play AVCHD MTS files on Motorola Moto G84 5G?</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/in-2024-accelerate-creativity-pro-level-lunapic-techniques-unveiled/"><u>In 2024, Accelerate Creativity Pro-Level LunaPic Techniques Unveiled</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-inside-the-world-of-toolwiz-an-in-depth-software-review/"><u>In 2024, Inside the World of Toolwiz An In-Depth Software Review</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/izing-monetization-unlocking-partnerships-without-limits-for-2024/"><u>Maximizing Monetization Unlocking Partnerships Without Limits for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/reasons-for-tecno-pop-8-stuck-on-boot-screen-and-ways-to-fix-them-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Reasons for Tecno Pop 8 Stuck on Boot Screen and Ways To Fix Them | Dr.fone</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ltimate-blueprint-for-your-mobile-youtube-businesspersonal-platform/"><u>The Ultimate Blueprint for Your Mobile YouTube Business/Personal Platform</u></a></li>
+<li><a href="https://win-answers.techidaily.com/troubleshoot-and-enjoy-warcraft-3-reforged-once-again-expert-fixes-for-persistent-pc-crashes/"><u>Troubleshoot and Enjoy Warcraft 3 Reforged Once Again - Expert Fixes for Persistent PC Crashes</u></a></li>
 </ul></div>
 

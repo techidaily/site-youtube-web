@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Mastering YouTube Notes & Alerts Implementation"
-date: 2025-02-03T02:22:42.092Z
-updated: 2025-02-03T22:21:59.361Z
+date: 2025-02-10T18:50:21.353Z
+updated: 2025-02-15T19:03:51.460Z
 tags:
   - ai video
   - ai youtube
@@ -51,7 +51,7 @@ The main difference between annotation and cards is their outlook. Cards are mor
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to add YouTube Cards
@@ -68,7 +68,7 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 ![](https://images.wondershare.com/filmora/article-images/youtube-cards01.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "Add Card" drop down menu and select the type of card you want to add
@@ -78,11 +78,11 @@ YouTube **Cards** are similar to annotations but more interactive. They allow th
 
 ![](https://images.wondershare.com/filmora/article-images/add-cards-to-youtube-video.jpg)
 
-* Apply changes and exit
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+* Apply changes and exit
 
 ## How to add YouTube annotations
 
@@ -95,13 +95,17 @@ YouTube Annotation is addition of a text layer, link or hotspots over your video
 ![](https://images.wondershare.com/filmora/article-images/add-annotations-to-youtube-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * On the right panel click on "+ Add Element" and select the kind of annotation you want to add
 * Adjust the position of Annotation, you can drag the rectangle to locate it at any position of the video, move the slide to set the start and end time of the annotation
 
 ![](https://images.wondershare.com/filmora/article-images/add-annotation-to-youtube-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * Apply changes
 
@@ -141,10 +145,6 @@ No matter what kind of annotations you are using, you should never use more than
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Richard Bennett
 
 Richard Bennett is a writer and a lover of all things video.
@@ -166,16 +166,24 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-the-essential-guide-to-choosing-youtube-friendly-video-formats/"><u>[New] In 2024, The Essential Guide to Choosing YouTube-Friendly Video Formats</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/tepwise-approach-effortlessly-incorporate-subtitlescc-into-your-youtube-content-for-2024/"><u>[New] Stepwise Approach Effortlessly Incorporate Subtitles/CC Into Your YouTube Content for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-ultimate-screen-recorder-unmatched-pcmacos-quality/"><u>[New] Ultimate Screen Recorder - Unmatched PC/macOS Quality</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-enhancing-youtube-experience-with-a-structured-watch-later-plan/"><u>[Updated] Enhancing YouTube Experience with a Structured Watch Later Plan</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-epic-playground-the-top-10-alternatives-to-grand-theft-auto-v/"><u>[Updated] Epic Playground The Top 10 Alternatives to Grand Theft Auto V</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-navigating-the-intersection-of-youtube-and-fb-video-posts-for-2024/"><u>[Updated] Navigating the Intersection of YouTube and FB Video Posts for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/airpods-pro-to-receive-new-hearing-assistance-functionality-through-ios-15-update-eliminating-the-need-for-new-models/"><u>AirPods Pro To Receive New Hearing Assistance Functionality Through iOS 15 Update, Eliminating the Need for New Models</u></a></li>
-<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-honor-90-gt-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Honor 90 GT | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/snag-the-savings-on-apples-new-m3-macbook-pro-save-an-extra-200-during-amazons-biggest-sale-of-the-season-insights/"><u>Snag the Savings on Apple's New M3 MacBook Pro - Save an Extra $200 During Amazon’s Biggest Sale of the Season Insights</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/spotify-keeps-crashing-a-complete-list-of-fixes-you-can-use-on-vivo-y200-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Spotify Keeps Crashing A Complete List of Fixes You Can Use on Vivo Y200 | Dr.fone</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/be-mastery-on-the-move-crafting-impactful-video-thumbnails-mobile/"><u>YouTube Mastery on the Move Crafting Impactful Video Thumbnails (Mobile)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ounteract-vibration-for-clear-captures/"><u>[New] Counteract Vibration for Clear Captures</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/remier-capturing-device-for-exceptional-youtube-productions-for-2024/"><u>[New] Premier Capturing Device for Exceptional YouTube Productions for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-thumbnail-blueprint-for-successful-videos-for-2024/"><u>[New] The Ultimate Thumbnail Blueprint for Successful Videos for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nlock-the-secrets-of-efficient-banner-use-in-game-channels-for-2024/"><u>[New] Unlock the Secrets of Efficient Banner Use in Game Channels for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-dive-deep-into-video-creation-with-these-top-12-vlogger-friendly-cameras/"><u>[Updated] 2024 Approved Dive Deep Into Video Creation with These Top 12 Vlogger-Friendly Cameras</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-elite-video-editing-tools-tailored-to-windows-platforms/"><u>[Updated] 2024 Approved Elite Video Editing Tools Tailored to Windows Platforms</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-cinematic-composer-software-for-2024/"><u>[Updated] Cinematic Composer Software for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-editors-elite-gadgets-best-machines-for-screen-magic/"><u>[Updated] Editor’s Elite Gadgets Best Machines for Screen Magic</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-free-studio-hd-screen-grab-audit-for-2024/"><u>[Updated] Free Studio HD Screen Grab Audit for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-the-ultimate-upgrade-list-best-accessories-for-phantom-4-for-2024/"><u>[Updated] The Ultimate Upgrade List Best Accessories for Phantom 4 for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-unlock-video-potential-with-expert-chroma-techniques/"><u>[Updated] Unlock Video Potential with Expert Chroma Techniques</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/amd-radeon-rx-580-driver-downloads-and-upgrades-smooth-and-speedily/"><u>AMD Radeon RX # 580 Driver Downloads & Upgrades - Smooth and Speedily</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/beyond-boundaries-channel-youtube-for-exciting-green-screens-for-2024/"><u>Beyond Boundaries Channel Youtube for Exciting Green Screens for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/tifying-payment-systems-in-shortform-creator-ecosystem/"><u>Demystifying Payment Systems in Shortform Creator Ecosystem</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ntling-the-economics-of-youtubes-ambitious-shorts-fund/"><u>Dismantling the Economics of YouTube's Ambitious Shorts Fund</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/elevate-your-snap-game-with-pro-level-boomerang-expertise-for-2024/"><u>Elevate Your Snap Game with Pro-Level Boomerang Expertise for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/exploring-why-the-huawei-p30-pro-remains-a-top-choice-for-tech-enthusiasts/"><u>Exploring Why the Huawei P30 Pro Remains a Top Choice for Tech Enthusiasts</u></a></li>
+<li><a href="https://article-posts.techidaily.com/learning-the-ropes-of-lunapics-user-interface/"><u>Learning the Ropes of LunaPic's User Interface</u></a></li>
+<li><a href="https://techtrends.techidaily.com/troubleshooting-guide-fixing-issues-with-windows-spotlight-on-windows-10/"><u>Troubleshooting Guide: Fixing Issues with Windows Spotlight on Windows 10</u></a></li>
 </ul></div>
 

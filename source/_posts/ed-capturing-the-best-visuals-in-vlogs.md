@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Capturing the Best Visuals in Vlogs"
-date: 2025-01-27T20:38:14.610Z
-updated: 2025-02-03T17:49:30.617Z
+date: 2025-02-13T18:41:07.056Z
+updated: 2025-02-15T19:40:37.116Z
 tags:
   - ai video
   - ai youtube
@@ -34,7 +34,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Video Lighting Basics: Three Point Lighting
@@ -42,7 +42,7 @@ Going outside and using natural light is the cheapest way to get a lot of light 
 ![ Lighting for YouTube Video](https://images.wondershare.com/filmora/article-images/three-point-lighting.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The most common technique of lighting a scene is called **three-point lighting**. It involves three different sources of light in the shot and is used by portrait photographers, which is also a great method for lighting your vlog.
@@ -56,10 +56,6 @@ Rather than setting up another light source on the opposite side of the camera, 
 The **fill light** is less bright than the primary source of light and it is placed on the side opposite to the key light. Its purpose is to reduce shadows produced by the key light and the reflector will need to be mounted on a stand.
 
 The final step to creating three point lighting is to set up another light behind you. This is your 'Backlight', and it will help you stand out from your background. **Backlight or Hair light** is always placed behind and above the subject to create separation between the subject in the shot and the background. This basic lighting technique can be applied in almost every scene you shoot, which is why it is important to keep an open mind and to continue experimenting with possible light setups.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Watch Video! Top Lighting Tips for Vlogging
 
@@ -90,7 +86,7 @@ Sets of reflectors are often under $50, so they are fairly affordable. However, 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips01.JPG)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If your strong main light is too hard on your eyes then you can use a translucent 'reflector' to soften it. Set your translucent reflector, or other screen, up in front of your main light to diffuse it.
@@ -99,6 +95,10 @@ If you are hosting a **beauty vlog** then you might consider a slightly differen
 
 ![lighting tips](https://images.wondershare.com/filmora/article-images/lighting-tips02.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 If you are using all of the lighting options available to you and your video still looks too dark then you can try brightening it by **opening up the aperture of your camera** lens/setting a lower f-stop. Letting more light into your camera can help your footage look brighter, although you also run the risk of making things look overexposed/ washed out if you are not careful.
 
 If you are stuck shooting in **low light conditions** it is best to use a lens with a wider aperture/lower f-stop. This will make the best of the light you do have.
@@ -106,7 +106,7 @@ If you are stuck shooting in **low light conditions** it is best to use a lens w
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Richard Bennett
@@ -130,22 +130,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-links.techidaily.com/new-2024-approved-mastering-iphone-x-animoji-your-comprehensive-users-manual/"><u>[New] 2024 Approved Mastering iPhone X Animoji Your Comprehensive User's Manual</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-best-8-platforms-for-professional-linux-editing/"><u>[New] In 2024, Best 8 Platforms for Professional Linux Editing</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-stunning-appraisal-and-alternative-suggestions/"><u>[New] Stunning Appraisal & Alternative Suggestions</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ransforming-spaces-with-channels-top-10-online-tools-revealed/"><u>[New] Transforming Spaces with Channels Top 10 Online Tools Revealed</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-10plus-top-videos-and-tutorials-on-best-iphoneipad-editing-tools-for-2024/"><u>[Updated] 10+ Top Videos & Tutorials on Best iPhone/iPad Editing Tools for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-accessing-your-curated-music-lists-on-youtube-for-2024/"><u>[Updated] Accessing Your Curated Music Lists on Youtube for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-demystifying-the-process-of-submitting-videos-on-youtube/"><u>[Updated] In 2024, Demystifying the Process of Submitting Videos on YouTube</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-step-by-step-guide-to-screencasting-youtube-content-for-free/"><u>2024 Approved Step-by-Step Guide to Screencasting YouTube Content For Free</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-superior-asmr-video-curation/"><u>2024 Approved Superior ASMR Video Curation</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-top-rated-asmr-mic-picks-for-quality-sound/"><u>2024 Approved Top-Rated ASMR Mic Picks for Quality Sound</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ai-takes-center-stage-in-microsofts-bing-update/"><u>AI Takes Center Stage in Microsoft's Bing Update</u></a></li>
-<li><a href="https://games-able.techidaily.com/get-the-most-out-of-bg3-with-right-hardware/"><u>Get the Most Out of BG3 with Right Hardware</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-mastering-youtube-ultimate-guide-to-live-360-degree-streams/"><u>In 2024, Mastering YouTube Ultimate Guide to Live 360-Degree Streams</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/in-2024-top-video-app-selection-for-immersive-viewing-on-ios/"><u>In 2024, Top Video App Selection for Immersive Viewing on iOS</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-voice-from-images-turning-instagram-into-mp3s/"><u>In 2024, Voice From Images Turning Instagram Into MP3s</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ourney-of-a-youtube-video-from-creation-to-live-streaming-for-2024/"><u>The Journey of a YouTube Video From Creation to Live Streaming for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/understanding-and-utilizing-igtv-for-enhanced-engagement/"><u>Understanding and Utilizing IGTV for Enhanced Engagement</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-essential-gif-making-software-the-ultimate-guide/"><u>[New] In 2024, Essential GIF Making Software The Ultimate Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ur-quick-and-complete-obs-youtube-streaming-path-for-newbies-for-2024/"><u>[New] Our Quick & Complete OBS Youtube Streaming Path for Newbies for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-more-than-just-watch-time-understanding-youtube-views-calculation/"><u>[Updated] 2024 Approved More than Just Watch Time Understanding YouTube Views Calculation</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-illuminating-your-android-videos/"><u>[Updated] Illuminating Your Android Videos</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-ultimate-list-hashtags-for-maximum-video-engagement-in-games/"><u>[Updated] In 2024, Ultimate List Hashtags for Maximum Video Engagement in Games</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-million-viewer-milestones-youtubes-pay-structure-for-2024/"><u>[Updated] Million-Viewer Milestones YouTube's Pay Structure for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-minds-on-trial-best-general-knowledge-channels/"><u>[Updated] Minds on Trial Best General Knowledge Channels</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-how-to-stop-recording-on-quicktime/"><u>2024 Approved How To Stop Recording on QuickTime</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-step-by-step-guide-to-crafting-striking-youtube-thumbnails-mac-edition/"><u>2024 Approved Step by Step Guide to Crafting Striking YouTube Thumbnails - Mac Edition</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-win11s-lightning-quick-visualizer/"><u>2024 Approved Win11's Lightning Quick Visualizer</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/best-android-photo-editor-is-pickup-top/"><u>Best Android Photo Editor Is PickUp Top?</u></a></li>
+<li><a href="https://win-dash.techidaily.com/how-to-get-the-latest-canon-pixma-tr4520-printer-drivers-on-your-windows-device/"><u>How to Get the Latest Canon PIXMA TR4520 Printer Drivers on Your Windows Device</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-buzzing-beats-essential-background-scores-for-viral-video-shorts/"><u>In 2024, Buzzing Beats Essential Background Scores for Viral Video Shorts</u></a></li>
+<li><a href="https://windows11.techidaily.com/procedures-to-enable-or-disable-windows-build-service/"><u>Procedures to Enable or Disable Windows Build Service</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/mline-your-youtube-experience-manage-video-comments/"><u>Streamline Your YouTube Experience Manage Video Comments</u></a></li>
 </ul></div>
 

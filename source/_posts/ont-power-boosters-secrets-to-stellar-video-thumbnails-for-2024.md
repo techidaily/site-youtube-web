@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Font Power Boosters  Secrets to Stellar Video Thumbnails for 2024\""
-date: 2025-02-03T05:23:30.387Z
-updated: 2025-02-03T17:48:31.689Z
+date: 2025-02-10T18:22:08.341Z
+updated: 2025-02-15T17:35:30.065Z
 tags:
   - ai video
   - ai youtube
@@ -58,6 +58,10 @@ YouTube thumbnails capture the viewer's attention and spark their interest. The 
 
 Recent research reveals that YouTube thumbnails with text and numbers get more clicks than thumbnails with plain images. Therefore, choosing a great font to accompany your thumbnail would be wise and make it more visually appealing. Stick around for the fun part of the article, where we discuss twenty best fonts for your YouTube thumbnails.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LI9nKlbhnw8?si=uUXFVbuEqXtFHHv0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Bebas Neue - Popular YouTube Thumbnail Font
 
 The first YouTube thumbnail font on our list is a popular one known as Bebas Neue. You can use this font for your videos and thumbnails regardless of what content you post. The elegant yet sublime design makes it a perfect choice for you if you are just starting out or have yet to explore other options.
@@ -112,19 +116,15 @@ Are you tired of the boring print fonts and girly cursive text? If you answer ye
 
 ![blackopsone youtube thumbnail font](https://images.wondershare.com/filmora/article-images/blackopsone-youtube-thumbnail-font.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 10\. Beauty and the Beast
 
 If you are a streamer, gamer, or like to post life hack videos on YouTube, you are probably looking for some good fonts for YouTube thumbnails to make your video less serious. The Beauty and the Beast font is very whimsical, giving your thumbnail a playful feel.
 
 ![beauty and the beast youtube thumbnail font](https://images.wondershare.com/filmora/article-images/beauty-and-the-beast-youtube-thumbnail-font.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YezPJZzPJ8Q?si=xF1t4BQHFquzvnzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 11\. Chucklesome
 
@@ -132,11 +132,19 @@ You will immediately recognize this font if you grew up watching many cartoons a
 
 ![chucklesome youtube thumbnail font](https://images.wondershare.com/filmora/article-images/chucklesome-youtube-thumbnail-font.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 12\. Caribold
 
 As the name suggests, the Caribold font for YouTube thumbnails is very bold, and the letters almost jump out of the screen at you. The borders, outline, and shadows emphasize the font, making it hard to miss. You can use this font to create thumbnails for "How To" videos.
 
 ![caribold youtube thumbnail font](https://images.wondershare.com/filmora/article-images/caribold-youtube-thumbnail-font.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 13\. Bernhard - Serious YouTube Thumbnail Font
 
@@ -145,7 +153,7 @@ Depending on the content you post, you might want to discard the whimsical feel 
 ![bernhard youtube thumbnail font](https://images.wondershare.com/filmora/article-images/bernhard-youtube-thumbnail-font.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 14\. Dustin Font Quartet
@@ -153,10 +161,6 @@ Depending on the content you post, you might want to discard the whimsical feel 
 It is not uncommon for thumbnails to draw inspiration from other brands. The Dustin font is an excellent example of such a font, which is similar to the Supreme brand logo. This font is pretty versatile as it comes in a pack of four fonts, making you spoilt for choice!
 
 ![dustin font quartet youtube thumbnail font](https://images.wondershare.com/filmora/article-images/dustin-font-quartet-youtube-thumbnail-font.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 15\. The Tide - Chunky-Letter Font for YouTube Thumbnails
 
@@ -187,10 +191,6 @@ Adventure and travel channels help us know what it's like to visit a place, even
 Perhaps your YouTube is missing that feminine touch to tie everything together. The curvy lettering in the Free Love Script is perfect for lifestyle videos or fashion vlogs, which could use a bit of femininity to drive the message home.
 
 ![free love script youtube thumbnail font](https://images.wondershare.com/filmora/article-images/free-love-script-youtube-thumbnail-font.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 20\. Config Rounded
 
@@ -228,6 +228,10 @@ Step3 Drag and drop your photos as shown below to create your YouTube Thumbnail 
 
 ![filmora add media to timeline](https://images.wondershare.com/filmora/article-images/filmora-add-media-to-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Add titles to customize the texts in your Thumbnail.
 
 ![filmora add titles](https://images.wondershare.com/filmora/article-images/filmora-add-titles.jpg)
@@ -243,6 +247,10 @@ Step6 Select a still frame to be your thumbnail. Click the camera icon on the ri
 Step7 The snapshot will appear on the Media panel. Right click the snapshot, and select "Reveal in Explorer" to locate it in your local drive. Then you can use it as your YouTube Thumbnail.
 
 ![filmora reveal in explorer](https://images.wondershare.com/filmora/article-images/filmora-reveal-in-explorer.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You don't need to search for fonts on the Internet when Wondershare Filmora offers downloadable fonts. If you are interested in installing fonts in Filmora, watch this video to learn how.
 
@@ -278,11 +286,19 @@ The letters in the Montserrat video are very simple, with the slightest shadowin
 
 ![montserrat youtube thumbnail font](https://images.wondershare.com/filmora/article-images/montserrat-youtube-thumbnail-font.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 4\. Alfa Slab - YouTube Thumbnail Text Font With a Futuristic Vibe
 
 The Alfa slab font has a futuristic vibe to it, making it the perfect choice for content about new innovations or the future of technology. The blocky yet simple letters are easy to read and don't take away from the main message or the background.
 
 ![alfa slab youtube thumbnail font](https://images.wondershare.com/filmora/article-images/alfa-slab-youtube-thumbnail-font.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 5\. Againts - Best Font for YouTube Thumbnail
 
@@ -302,10 +318,6 @@ The letters in this Oswald font are encapsulated in a dark grey rectangle, makin
 
 ![oswald youtube thumbnail font](https://images.wondershare.com/filmora/article-images/oswald-youtube-thumbnail-font.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vfq0vw0Spz8?si=2EAk6hW-Gb-o33_L" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 8\. Arial Negrata - Print Font for YouTube Thumbnails
 
 We couldn't forget to mention Arial Negrata, which has a beautiful print font and complementary sub-fonts. You can easily vary the fonts' sizes for emphasis and to capture the interest of your audience.
@@ -324,15 +336,15 @@ If you are a streamer, gamer, or like to post life hack videos on YouTube, you a
 
 ![beauty and the beast youtube thumbnail font](https://images.wondershare.com/filmora/article-images/beauty-and-the-beast-youtube-thumbnail-font.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 11\. Chucklesome
 
 You will immediately recognize this font if you grew up watching many cartoons and reading comic books. Chucklesome is another font with the best font color for YouTube thumbnails, making it an excellent choice if your YouTube channel is about games, movies, or comic books. The artsy typeface, bold letters, and bright colors can capture your audience's attention from a mile away.
 
 ![chucklesome youtube thumbnail font](https://images.wondershare.com/filmora/article-images/chucklesome-youtube-thumbnail-font.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 12\. Caribold
 
@@ -364,19 +376,11 @@ The best font for YouTube thumbnail is Badaboom BB font, which has vibrant color
 
 ![badaboom bb youtube thumbnail font](https://images.wondershare.com/filmora/article-images/badaboom-bb-youtube-thumbnail-font.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 17\. River Drive
 
 When inserting text into a thumbnail, you must balance the visual elements to ensure the letters don't overshadow the image. The River Drive font allows you to create bold yet legible text without removing the stunning photo in the background.
 
 ![river drive youtube thumbnail font](https://images.wondershare.com/filmora/article-images/river-drive-youtube-thumbnail-font.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3UyJuZYzjt0?si=W87GeyzVKVORAk7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 18\. Traveler Note
 
@@ -395,10 +399,6 @@ Perhaps your YouTube is missing that feminine touch to tie everything together. 
 If your channel is professional or you post informative content about finances, business, and other important topics, the best YouTube thumbnail font for you is the Config rounded font. It looks pretty modern and works well with any background.
 
 ![config rounded youtube thumbnail font](https://images.wondershare.com/filmora/article-images/config-rounded-youtube-thumbnail-font.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PD0vq5qAYkw?si=5H3KWtCfUOYg1Nlv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Generate Cool YouTube Thumbnail Texts With Wondershare Filmora
 
@@ -475,24 +475,17 @@ A hazy or pixelated thumbnail could discourage the viewer from clicking on your 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-expert-tips-boosting-efficiency-in-screen-recording-using-mobizen/"><u>[New] 2024 Approved Expert Tips Boosting Efficiency in Screen Recording Using Mobizen</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-crack-the-code-unearthing-hidden-gems-in-youtubes-archive/"><u>[New] In 2024, Crack the Code Unearthing Hidden Gems in YouTube's Archive</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/n-2024-step-by-step-guide-transforming-your-yt-gaming-content-with-hashtags/"><u>[New] In 2024, Step-by-Step Guide Transforming Your YT Gaming Content with Hashtags</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-precision-video-capture-experts-for-2024/"><u>[New] Precision Video Capture Experts for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-elevate-your-youtube-gaming-content-with-key-freefire-hashtags/"><u>[Updated] 2024 Approved Elevate Your YouTube Gaming Content With Key FreeFire Hashtags</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-from-hits-to-strikes-expert-youtube-studio-editing-strategies/"><u>[Updated] 2024 Approved From Hits to Strikes Expert YouTube Studio Editing Strategies</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-unlocking-potential-tubebuddy-and-channel-mastery/"><u>[Updated] 2024 Approved Unlocking Potential TubeBuddy & Channel Mastery</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-all-about-youtubes-elite-access-a-complete-breakdown/"><u>[Updated] In 2024, All About YouTube's Elite Access - A Complete Breakdown</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-professional-strategies-for-embedding-timestamps-on-your-channel/"><u>[Updated] In 2024, Professional Strategies for Embedding Timestamps on Your Channel</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ultimate-guide-to-video-visibility-for-youtubers/"><u>[Updated] In 2024, The Ultimate Guide to Video Visibility (For YouTubers)</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-monetizing-mastery-harness-the-power-of-your-youtube-content-on-mobile-for-2024/"><u>[Updated] Monetizing Mastery Harness the Power of Your YouTube Content on Mobile for 2024</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-xiaomi-civi-3-disney-100th-anniversary-edition-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Xiaomi Civi 3 Disney 100th Anniversary Edition?</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-mirror-apple-iphone-11-pro-to-other-iphone-drfone-by-drfone-ios/"><u>How to Mirror Apple iPhone 11 Pro to Other iPhone? | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-fotor-pro-advanced-workflow/"><u>In 2024, Fotor Pro Advanced Workflow</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-is-your-apple-iphone-11-pro-max-in-security-lockout-proper-ways-to-unlock-by-drfone-ios/"><u>In 2024, Is Your Apple iPhone 11 Pro Max in Security Lockout? Proper Ways To Unlock</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-depth-zoom-guidance-for-virtual-team-spaces-in-msteams-for-2024/"><u>In-Depth Zoom Guidance for Virtual Team Spaces in MSTEAMS for 2024</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/to-closure-a-producers-primer/"><u>News to Closure A Producer’s Primer</u></a></li>
-<li><a href="https://facebook.techidaily.com/the-argument-for-permitting-more-than-one-identity-within-a-singular-social-media-account/"><u>The Argument for Permitting More than One Identity Within A Singular Social Media Account</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/the-ultimate-handbook-for-optimal-youtube-banners-and-art-sizes-for-2024/"><u>The Ultimate Handbook for Optimal YouTube Banners & Art Sizes for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-advanced-techniques-for-youtube-editing-via-finalcut-pro/"><u>[New] 2024 Approved Advanced Techniques for YouTube Editing via FinalCut Pro</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-essential-selection-the-greatest-free-editing-software/"><u>[New] In 2024, Essential Selection The Greatest Free Editing Software</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-crafting-a-top-notch-linkedin-image/"><u>[Updated] Crafting a Top-Notch LinkedIn Image</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-detailed-methods-for-seamless-wirecast-livestreams-on-youtube-for-2024/"><u>[Updated] Detailed Methods for Seamless WireCast Livestreams on YouTube for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-achieving-excellent-illumination-on-youtube-videos/"><u>[Updated] In 2024, Achieving Excellent Illumination on YouTube Videos</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-from-couch-to-chart-topper-skyrocketing-your-channels-views/"><u>2024 Approved From Couch to Chart-Topper Skyrocketing Your Channel's Views</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-honor-pattern-lock-if-forgotten-6-ways-by-drfone-android/"><u>In 2024, How to Unlock Honor Pattern Lock if Forgotten? 6 Ways</u></a></li>
+<li><a href="https://fox-access.techidaily.com/in-2024-reclaiming-iphone-hdr-footage-premiere-pros-fixes-for-overexposure/"><u>In 2024, Reclaiming iPhone HDR Footage Premiere Pro's Fixes for Overexposure</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/24-transforming-viewers-into-fans-with-top-yt-video-reacts/"><u>In 2024, Transforming Viewers Into Fans with Top YT Video Reacts</u></a></li>
+<li><a href="https://win-blog.techidaily.com/1726223962974-movavimp3/"><u>MovaviのスマートなMP3音楽ファイル変換ツール -無料版</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/1722697852221-paws-itively-fun-game-time-together/"><u>Paws-Itively Fun: Game Time Together!</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-the-fcpx-shortcut-bible-40-essential-commands-to-know-for-2024/"><u>Updated The FCPX Shortcut Bible 40 Essential Commands to Know for 2024</u></a></li>
 </ul></div>
 

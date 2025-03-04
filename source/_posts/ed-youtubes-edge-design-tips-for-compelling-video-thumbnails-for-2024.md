@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] YouTube's Edge  Design Tips for Compelling Video Thumbnails for 2024\""
-date: 2025-01-27T19:54:10.405Z
-updated: 2025-02-03T18:33:19.444Z
+date: 2025-02-08T18:51:03.454Z
+updated: 2025-02-15T17:31:11.623Z
 tags:
   - ai video
   - ai youtube
@@ -43,13 +43,17 @@ Here are 5 easy tips for creating thumbnails that get views.
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Edit Your Videos Before Creating Video Thumbnails
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 1\. Have a Consistent Layout
 
@@ -60,11 +64,11 @@ An example of a standard layout could be you in the middle of the screen wearing
 ![Consistent Layout](https://images.wondershare.com/filmora/article-images/consistent-layout.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## **2\. Use Your Face**
@@ -72,10 +76,6 @@ An example of a standard layout could be you in the middle of the screen wearing
 People feel automatically connected and drawn into images that make eye contact. This makes thumbnails which feature faces more click-able than thumbnails which don’t, in most genres (i.e. if you make food videos then this may not apply – featuring the food might be more important than featuring your face). [Check out more tips like this here](https://tools.techidaily.com/wondershare/filmora/download/).
 
 Also, if somebody recognizes you in your thumbnail from a previous video of yours, that will go a long way towards making them click.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Use Graphics/Emojis that are On Topic
 
@@ -89,10 +89,6 @@ If you use text in your thumbnail (you don’t have to) then it should be to add
 
 Thumbnails might look large while you’re putting them together in your image editor, but when they’re displayed on YouTube they’re a lot smaller. That goes double if a viewer is watching on their phone. So, make sure that any text you use is large enough that it can be read easily on small screens.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 5\. Keep it Clutter-Free
 
 It’s great to add text and emojis to your thumbnails, but you do need to be careful not to add too much. You never want your thumbnails to look cluttered. Viewers should be able to glance at your thumbnails and know exactly what kind of video to expect – that’s difficult to do if there’s too much to process.
@@ -104,6 +100,10 @@ A good rule for text is to use only 1-3 words. That way they won’t clutter you
 Use these tips to make video thumbnails for YouTube, and tell us what kind of results you get!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/richard-bennett.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Richard Bennett
 
@@ -126,21 +126,20 @@ Follow @Richard Bennett
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-discover-how-these-15-advanced-facebook-gadgets-boost-e-commerce-sale-traffic/"><u>[New] 2024 Approved Discover How These 15 Advanced Facebook Gadgets Boost E-Commerce Sale Traffic</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/n-2024-digital-makeup-mastering-youtubes-chromatic-alignment/"><u>[New] In 2024, Digital Makeup Mastering Youtube's Chromatic Alignment</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/new-in-2024-flip-flop-your-watching-anchoring-yourself-at-the-end-of-queue/"><u>[New] In 2024, Flip-Flop Your Watching Anchoring Yourself at the End of Queue</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/avigating-netflix-and-youtubers-how-jake-paul-succeeded/"><u>[New] Navigating Netflix & YouTubers How Jake Paul Succeeded</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-all-time-highest-chart-youtubes-premier-video-list-for-2024/"><u>[Updated] All-Time Highest Chart YouTube's Premier Video List for 2024</u></a></li>
-<li><a href="https://media-tips.techidaily.com/1-fix-your-4k-streaming-issues-troubleshoot-and-resolve-airplay-not-working/"><u>1. Fix Your 4K Streaming Issues: Troubleshoot and Resolve AirPlay Not Working</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/approved-guide-to-secure-and-cost-free-youtube-music-extraction/"><u>2024 Approved Guide to Secure and Cost-Free YouTube Music Extraction</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-ultimate-guide-to-mastering-powerdirector/"><u>2024 Approved The Ultimate Guide to Mastering PowerDirector</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/flagship-features-with-a-touch-of-simplicity-an-expert-analysis-of-the-google-pixel-5/"><u>Flagship Features with a Touch of Simplicity: An Expert Analysis of the Google Pixel 5</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/online-editors-the-essential-guide-for-2024/"><u>Free Online Editors The Essential Guide for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/gpt-4-welcomes-everyone-despite-freedom-to-use-plus-continues-offering-6-superior-services/"><u>GPT-4 Welcomes Everyone: Despite Freedom to Use, Plus Continues Offering 6 Superior Services</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-discovering-10-superior-history-educational-videos/"><u>In 2024, Discovering 10 Superior History Educational Videos</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/24-peek-into-personality-traits-top-6-quizzes-to-determine-youtuber-preferences/"><u>In 2024, Peek Into Personality Traits Top 6 Quizzes to Determine YouTuber Preferences</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/izing-viewership-with-effective-game-streaming/"><u>Maximizing Viewership with Effective Game Streaming</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/solving-the-sims-4-not-launching-problem-a-step-by-step-guide/"><u>Solving the Sims 4 Not Launching Problem: A Step-by-Step Guide</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/troubleshooting-sound-problems-during-powerpoint-slideshow/"><u>Troubleshooting Sound Problems During PowerPoint Slideshow</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-2023-roundup-premier-professionals-360-cameras/"><u>[New] 2024 Approved 2023 Roundup Premier Professionals’ 360 Cameras</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-deceptive-consequences-of-genuine-popularity-illusions/"><u>[New] 2024 Approved The Deceptive Consequences of Genuine Popularity Illusions</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-downloadable-instagram-footage-tech-tips-for-computers-and-macs/"><u>[New] In 2024, Downloadable Instagram Footage Tech Tips for Computers & Macs</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-freefall-into-success-top-hashtags-and-vlogging-techniques-for-2024/"><u>[Updated] FreeFall Into Success Top Hashtags and Vlogging Techniques for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-curating-your-music-collection-the-easy-guide-to-youtube-playlist-creation-webapp/"><u>[Updated] In 2024, Curating Your Music Collection The Easy Guide to YouTube Playlist Creation (Web/App)</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-thumbnail-tutorial-for-youtube-using-mobile-devices/"><u>[Updated] In 2024, Thumbnail Tutorial for YouTube Using Mobile Devices</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-premier-choice-of-9-free-youtube-logos-and-graphics-maker/"><u>[Updated] Premier Choice of 9 Free YouTube Logos & Graphics Maker</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-mastering-mobile-media-the-art-of-filming-with-a-smartphone/"><u>2024 Approved Mastering Mobile Media The Art of Filming with a Smartphone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-top-free-to-text-on-mac-30-apps-that-deserve-your-notice/"><u>2024 Approved Top Free to Text on Mac 30 Apps That Deserve Your Notice</u></a></li>
+<li><a href="https://discover-brilliant.techidaily.com/ipodappletvdvdx-ipod-dvd-rip-macmp4/"><u>最適なiPod・AppleTV用DVD変換ソフト「マックX iPod DVD Rip」: Macで簡単MP4への高品質ダイレクトコンバージョン</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/all-you-need-to-know-about-adding-apple-music-to-video-for-2024/"><u>All You Need to Know About Adding Apple Music to Video for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/raw-footage-to-youtube-perfection-premiere-pro-techniques-for-2024/"><u>From Raw Footage to YouTube Perfection - Premiere Pro Techniques for 2024</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-the-top-webm-to-mp3-converters-you-need-to-know/"><u>New 2024 Approved The Top WebM to MP3 Converters You Need to Know</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/powerdirector-color-correction-bringing-harmony-to-your-video-edits/"><u>PowerDirector Color Correction Bringing Harmony to Your Video Edits</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ventional-techniques-for-rewinding-videos-on-yt-for-2024/"><u>Unconventional Techniques for Rewinding Videos on YT for 2024</u></a></li>
 </ul></div>
 
